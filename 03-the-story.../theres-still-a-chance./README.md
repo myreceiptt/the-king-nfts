@@ -265,7 +265,8 @@ coverY: 0
 >
 > Melting Date: February 24, 2022
 >
-> Message: Hi, I'm the new [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+> Message:\
+> Hi, I'm the new [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
 > I was chosen by vote after [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) admitted that what we are facing now is no longer only a natural disaster.
 >

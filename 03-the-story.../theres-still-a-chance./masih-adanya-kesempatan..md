@@ -584,7 +584,7 @@ coverY: 0
 >
 > Sore lainnya, di dekat buritan bahtera, ketika angin tidak terlalu kejam dan gelombang sedang berpura-pura lembut, salah satu [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tiba-tiba bertanya:
 >
-> "_Sudah melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang menggigit carrot dan memakai hot dog hat?_"
+> "_Sudah melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang menggigit wortel dan memakai topi hot dog?_"
 >
 > Semua orang yang sedang saling bertukar cerita tentang melihat, menyelamatkan, mengejar, menangkap, memberi makan, dan memelihara [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) langsung berhenti bicara.
 >

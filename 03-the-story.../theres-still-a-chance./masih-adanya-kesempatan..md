@@ -262,13 +262,222 @@ coverY: 0
 
 #### BOM Meleleh
 
+> Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
+> Tanggal Meleleh: February 24, 2022
 >
-> init...
+> Pesan:  
+> Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang baru...
 >
-> [**(36) Drop NFT Not BOMB™**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+> Aku terpilih melalui voting setelah [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengakui bahwa yang sedang kita hadapi sekarang bukan lagi sekadar bencana alam.
 >
-> **...**
+> [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) saja sudah cukup membuat semua makhluk hidup kehilangan pijakan. Tidak ada lagi daratan untuk diinjak. Tidak ada lagi lautan yang berperilaku seperti lautan. Tidak ada lagi batas yang jelas antara tanah dan air. Semuanya meleleh, tenggelam, berguncang, dan menelan apa pun yang dulu pernah disebut peradaban.
+>
+> Negara-negara telah runtuh. Pemerintahan menghilang dari permukaan. Otoritas-otoritas lama dunia menjadi senyap, patah, tidak terjangkau, atau mungkin sudah tenggelam. Nama-nama negara masih ada di ingatan kita, tetapi tangan mereka tidak lagi mampu menjangkau siapa pun yang mengapung di atas puing-puing, perahu, balon, atap yang patah, kapal penyelamat, dan apa pun yang masih bisa membawa kehidupan di atas [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Tapi hari ini, kami mendengar sesuatu yang seharusnya tidak pernah terjadi di tengah bencana ini.
+>
+> Sebuah dentuman yang sangat keras.
+>
+> Sebuah BOMB.
+>
+> Awalnya, semua penumpang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengira ada bagian lain dari dunia lama yang runtuh ke dalam gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Tapi suara itu tidak datang dari daratan. Tidak ada lagi daratan yang tersisa untuk runtuh.
+>
+> Suara itu datang dari perang.
+>
+> Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sedang berdiri di dekat tepian [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) ketika ledakan itu terjadi.
+>
+> Dia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang membawa peta. Atau mungkin dia adalah [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang sama. Aku tidak lagi bisa memastikan, karena setiap [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memiliki wajah yang sama, nama yang sama, namun masing-masing membawa cara bertahan hidup yang berbeda.
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang satu ini mengenakan sesuatu yang tampak seperti seragam petugas komunikasi yang sudah robek. Dia tidak berteriak ketika ledakan itu mengguncang udara. Dia hanya memejamkan mata, mendengarkan gemanya, lalu berkata:
+>
+> "Itu bukan suara daratan runtuh."
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain, yang masih memegang bundel peta, menjawab dari belakangnya:
+>
+> "Tidak. Itu adalah kiriman."
+>
+> Tidak ada yang bertanya bagaimana dia tahu.
+>
+> Atau mungkin semua orang ingin bertanya, tapi tidak ada yang punya cukup keberanian untuk mendengar jawabannya.
+>
+> Bagiku, itu adalah sesuatu yang aneh dalam teori yang lainnya.
+>
+> Tanah sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama. Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah.
+>
+> Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bomb ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
+>
+> Aku mengulanginya karena amarahku masih membutuhkan bentuk:
+>
+> Di tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ketika setiap makhluk hidup sudah berjuang agar tidak tenggelam, masih ada yang memilih untuk menjatuhkan bomb.
+>
+> Ini adalah keanehan dalam teori yang lain lagi.
+>
+> Ketika dunia masih utuh, mereka bilang perang terjadi karena manusia berebut tanah. Sekarang tidak ada lagi tanah, dan perang tetap menemukan cara untuk mengapung.
+>
+> [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengumpulkan kami dan berbicara dengan jujur. Dia berkata bahwa dia mampu memimpin dalam keadaan darurat. Dia mampu bertahan. Dia mampu berpikir di tengah kepanikan. Dia mampu melanjutkan perjalanan untuk mencari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Tapi dia tidak siap memimpin kami melewati perang yang lahir di dalam bencana.
+>
+> Dia seorang petarung, bukan ahli strategi perang.
+>
+> Dia seorang kapten untuk bertahan hidup, bukan untuk menghadapi kegilaan geopolitik.
+>
+> Dalam diskusi panjang itu, para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak berbicara sebagai satu suara.
+>
+> Itu membuatku semakin takut.
+>
+> Sampai hari itu, misteri mereka selalu terasa dari kesamaan mereka. Nama yang sama. Tubuh yang sama. Wajah yang sama. Kemunculan mendadak yang sama di antara gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Tapi ketika bomb jatuh, perbedaan mereka menjadi semakin jelas.
+>
+> Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata bahwa kami harus tetap melanjutkan perjalanan menuju [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md), apa pun yang terjadi.
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata bahwa tidak ada bahtera yang akan pernah mencapai kepulauan mana pun jika ia mengabaikan bomb yang berjatuhan di antara gelombang.
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain tidak mengatakan apa-apa. Dia hanya mengambil sepotong arang dan menulis tiga kata di atas kayu yang patah:
+>
+> [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+>
+> Ketika [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengakui bahwa dirinya bukan orang yang tepat untuk memimpin kami melewati perang di dalam bencana, para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak membantah.
+>
+> Mereka hanya saling menatap.
+>
+> Lalu, satu per satu, mereka ikut memilih.
+>
+> Aku masih tidak tahu apakah mereka memilih sebagai orang-orang yang berbeda, atau sebagai satu misteri yang tercerai ke dalam banyak tubuh.
+>
+> Tapi suara mereka dihitung seperti suara semua orang lainnya.
+>
+> Begitulah aku menjadi [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+>
+> Aku tidak meminta amarah ini, tapi aku tidak akan membuangnya. Amarah berbahaya ketika berubah menjadi bomb. Tapi amarah bisa menjadi pesan ketika ia diikatkan pada layar.
+>
+> Itulah yang kami lakukan.
+>
+> Kami menurunkan layar lama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) dan menyelubungi bahtera dengan layar yang lebih besar, membawa satu pesan:
+>
+> [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+>
+> Kami memilih pesan itu karena 1047 laki-laki di atas bahtera ini ada di sini berkat undangan yang diverifikasi menggunakan NFT. Mereka mencetak undangan itu. Mereka menyimpannya di wallet mereka. Undangan itu membuat mereka bisa menjadi penumpang bahtera ini.
+>
+> NFT tidak membunuh mereka.
+>
+> NFT tidak menenggelamkan mereka.
+>
+> NFT tidak menghancurkan bahtera.
+>
+> NFT menjadi undangan, tanda, ingatan, tiket, bukti bahwa seseorang masih bisa diselamatkan.
+>
+> Jadi jika ada sesuatu yang harus dijatuhkan ke dunia yang sudah retak ini, jatuhkanlah undangan. Jatuhkan pesan. Jatuhkan karya. Jatuhkan peta. Jatuhkan makanan. Jatuhkan pertolongan. Jatuhkan apa pun yang bisa menyelamatkan satu kehidupan lagi.
+>
+> [**Drop NFT, not BOMB.**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+>
+> Setelah layar itu kami naikkan, setiap penumpang ikut menyebarkan pesan.
+>
+> Ada yang menulis pesan itu di potongan kain dan mengikatnya pada puing-puing. Ada yang memasukkan catatan ke dalam botol dan melepaskannya ke gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Ada yang meneriakkannya kepada angin. Ada yang melukiskannya di papan-papan yang patah. Ada yang mengikatkannya pada burung-burung yang masih mengingat langit. Ada yang membisikkannya kepada ular, ikan, dan makhluk-makhluk lain yang masih bertahan di antara gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Kami tidak tahu apakah pesan itu akan sampai kepada siapa pun.
+>
+> Tapi ternyata sampai.
+>
+> Balasan pertama tidak datang dari sebuah bendera.
+>
+> Balasan itu datang melalui transmisi yang rusak.
+>
+> Suaranya tidak jelas pada awalnya, ditelan statik, angin, dan suara [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus mendorong segala sesuatu yang masih mengapung.
+>
+> Lalu kami mendengarnya.
+>
+> "Ini [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)."
+>
+> Semua orang di bahtera membeku.
+>
+> Karena suara itu tidak datang dari [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mana pun yang ada di atas bahtera kami.
+>
+> Transmisi itu datang dari bahtera lain.
+>
+> Lalu pesan lain tiba melalui sebuah botol. Tulisan tangannya terasa terlalu familiar.
+>
+> Balasan lain datang dari sesuatu yang diikatkan pada seekor burung. Simpulnya dibuat dengan cara aneh yang sama seperti salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) kami mengikat peta-peta.
+>
+> Aku bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) di atas bahtera apakah mereka mengenal [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dari bahtera lain itu.
+>
+> Mereka menjawab berbeda.
+>
+> Satu berkata, "Belum."
+>
+> Satu berkata, "Mungkin."
+>
+> Satu berkata, "Dia mendengar hal yang sama."
+>
+> Aku bertanya apa yang dia dengar.
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek menunjuk ke arah layar dan berkata:
+>
+> "Itu."
+>
+> [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+>
+> Saat itulah aku mulai memahami bahwa pesan itu tidak hanya berjalan dari bahtera ke bahtera.
+>
+> Pesan itu juga berjalan melalui [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> Sekitar sepuluh bahtera, kapal, balon udara, dan kendaraan penyelamat lainnya menjawab kami.
+>
+> Mereka tidak sama seperti kami. Ada yang membawa seniman. Ada yang membawa kolektor. Ada yang membawa keluarga. Ada yang membawa orang-orang yang belum pernah saling mengenal sebelum bencana. Ada yang hanya memiliki satu kesamaan: mereka tidak ingin akhir dunia dijadikan alasan untuk lebih banyak pembunuhan.
+>
+> Kami saling bertukar pesan dengan segala cara yang masih mungkin dilakukan.
+>
+> Kami sepakat untuk bergerak mendekat.
+>
+> Kami sepakat untuk berkumpul.
+>
+> Kami sepakat untuk membangun sesuatu yang lebih besar daripada diri kami masing-masing.
+>
+> Tapi tidak semuanya berhasil tiba.
+>
+> Bersama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sebelas kendaraan penyelamat mencoba saling mendekat. Hanya tujuh yang menjadi satu. Enam berhasil mencapai kami. Empat lainnya hancur di perjalanan, tercabik oleh bomb dan ditelan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Kami berduka untuk mereka.
+>
+> Lalu kami menyatukan apa yang tersisa.
+>
+> Tujuh kendaraan menjadi satu bahtera yang lebih besar.
+>
+> Kami tetap menyebutnya:
+>
+> [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Bukan karena yang lain lenyap ke dalam nama kami, tetapi karena setiap bahtera yang bergabung membawa pesan yang sama ke dalam tubuh keselamatan yang sama.
+>
+> Pesan itu menjadi lebih lantang.
+>
+> Layarnya menjadi lebih luas.
+>
+> Bahteranya menjadi lebih kuat.
+>
+> Para penumpangnya menjadi lebih dari sekadar penumpang. Mereka menjadi pembawa pesan.
+>
+> Di seluruh [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), orang-orang mulai memahami bahwa penyelamatan harus menjadi lebih besar daripada pembalasan. Pertolongan harus berjalan lebih jauh daripada kebencian. Sebuah pesan harus dijatuhkan sebelum sebuah bomb dijatuhkan.
+>
+> Perang mungkin masih terjadi.
+>
+> Bomb mungkin masih jatuh.
+>
+> Kami tidak naif.
+>
+> Kami adalah partikel-partikel yang bisa tercerai, pecah, dan terbawa gelombang. Tapi jika kami terus saling memanggil, jika kami terus voting, jika kami terus mengirim pesan, jika kami terus membangun bahtera dan bukan menghancurkannya, maka kami bisa kembali kepada wujud sejati kami:
+>
+> **makhluk hidup yang mempertahankan kehidupan.**
+>
+> Untuk semua penerusku, dan untuk semua yang membaca log ini:
+>
+> Jika kalian harus menjatuhkan sesuatu, jatuhkanlah sesuatu yang bisa menyelamatkan.
+>
+> [**Drop NFT, not BOMB.**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kapan pun kalian mendengar kami berteriak:
+>
+> [**OiOi!!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
 
 ***
 

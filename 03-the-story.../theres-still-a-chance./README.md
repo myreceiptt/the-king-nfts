@@ -486,11 +486,264 @@ coverY: 0
 
 #### The Melting Rabbit
 
-> init...
+> [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
-> [**(33) Luffy The Rabbit**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
+> Melting Date: May 31, 2022
 >
-> **...**
+> Message:  
+> Hi, I'm [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> I write this log on May 31, 2022, not because I am certain this happened today.
+>
+> I write May 31 because everyone remembers that it happened in May, but no one agrees on the date. Some said it was May 13. Some said it was May 15. Some insisted that both dates were true. Some no longer cared, because after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), a date is no longer always a place where time can stand.
+>
+> So I choose the last day of May.
+>
+> At least this log will not let May disappear.
+>
+> The waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) were still roaring. The sound of bombs still came from far away. Sometimes the air still carried the sharp sound of bullets, even when we could no longer see who fired them, who received them, and what kind of land they thought they were fighting for.
+>
+> But the message from our sail kept spreading.
+>
+> [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
+>
+> Some vessels answered it. Some followed it. Some only watched it from far away. Some may have rejected it. But the message had already become part of the wind. Once a message enters the wind, no captain can fully command where it goes.
+>
+> Then the rabbits appeared.
+>
+> At first, I thought I saw a small creature jumping between broken boards.
+>
+> Then another one appeared on a floating tire.
+>
+> Then another one leaped from the remains of a roof to a drifting door.
+>
+> Then one landed on the outer side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook the melting water from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
+>
+> I wanted to say, "Rabbit."
+>
+> But no one said rabbit.
+>
+> Everyone pointed and shouted the same name:
+>
+> "[*Luffy!*](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)"
+>
+> "[*Luffy!*](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)"
+>
+> "*There is [Luffy!](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)*"
+>
+> "*Look, that is [Luffy!](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)*"
+>
+> I do not know who taught them the name.
+>
+> I do not know whether the name came from memory, gossip, fear, hope, or another fringe in theory.
+>
+> But from that moment, I wrote them in this log as:
+>
+> [**Luffy The Rabbit**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
+>
+> The strange thing was not only that they survived.
+>
+> The strange thing was that everyone seemed to believe that seeing [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) meant access to something good.
+>
+> Some said [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) brings luck.
+>
+> Some said [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) opens a path.
+>
+> Some said [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) said L is not luck itself, but a key to a future profit.
+>
+> Some said whoever could care for [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) would one day receive something valuable.
+>
+> Some said whoever only tried to catch [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) for greed would receive nothing but bitten fingers and shame.
+>
+> As usual, no one could prove anything.
+>
+> As usual, everyone talked as if the gossip was already a system.
+>
+> I listened to all of them and could only write my own conclusion:
+>
+> Maybe [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) is a prayer that learned how to jump.
+>
+> Maybe [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) is hope with ears.
+>
+> Maybe [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) is the shape of our desire to still believe that something good can appear, even when the ground has melted, the sea has lost its name, and war keeps trying to enter the disaster.
+>
+> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not look surprised.
+>
+> That made me suspicious.
+>
+> They did not run after [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) like many of the passengers did. They did not shout with the same hunger. They did not argue about which [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) was more lucky. They only watched, sometimes smiled, sometimes ignored them, sometimes looked as if they had already seen all of this before.
+>
+> One passenger shouted from the side of the ark:
+>
+> "*There is [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) jumping onto the pile of used tires!*"
+>
+> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered without turning her head:
+>
+> "*That is the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) that has been trying to climb this ark since yesterday.*"
+>
+> Everyone became silent for a few seconds.
+>
+> Then everyone started talking again, because silence never lasts long on an ark filled with survivors.
+>
+> Another afternoon, near the stern of the ark, while the wind was less cruel and the waves were pretending to be gentle, one [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) suddenly asked:
+>
+> "*Have you seen the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) biting a carrot and wearing a hot dog hat?*"
+>
+> Everyone who had been exchanging stories about seeing, saving, chasing, catching, feeding, and keeping [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) immediately stopped talking.
+>
+> No one knew whether she was joking.
+>
+> No one knew whether she was warning us.
+>
+> No one knew whether carrot and hot dog should exist together in any reasonable theory.
+>
+> For me, it was another fringe in theory.
+>
+> After that, the passengers began to record every [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) they saw.
+>
+> What was on its head.
+>
+> What was on its body.
+>
+> What it was biting.
+>
+> Whether it jumped toward us or away from us.
+>
+> Whether it stayed on the ark or disappeared into the waves.
+>
+> Whether an [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) recognized it.
+>
+> Whether it had already been seen before.
+>
+> Whether it brought laughter, argument, work, or prayer.
+>
+> Some [**Luffys**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) wore something like hats.
+>
+> Some wore something like shirts.
+>
+> Some looked wrapped in pieces Some looked wrapped of cloth, hoodies, or strange little costumes that should not survive this kind of world.
+>
+> Some bit carrots.
+>
+> Some bit things that were not carrots.
+>
+> Some bit nothing, but still looked as if they were hiding a secret between their teeth.
+>
+> We kept the list.
+>
+> We compared the stories.
+>
+> We removed duplicates.
+>
+> We argued.
+>
+> We voted.
+>
+> We argued again.
+>
+> We asked the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered in ways that made the list more accurate and less understandable at the same time.
+>
+> At the end, the number did not grow beyond 47.
+>
+> Only [**47 Luffys**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
+>
+> Forty-seven, and each of them felt like one of one.
+>
+> No two [**Luffys**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) were truly the same.
+>
+> Even when two passengers swore they saw the same one, an [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) would sometimes say:
+>
+> "*Same [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Different hunger.*"
+>
+> Or:
+>
+> "*Different [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Same jump.*"
+>
+> Or:
+>
+> "*Do not count only the ears.*"
+>
+> I do not know what those answers mean.
+>
+> I recorded them anyway.
+>
+> In the margin of one record, someone had written:
+>
+> *Jajang-STD*
+>
+> No one admitted writing it.
+>
+> One passenger said it was a name.
+>
+> Another said it was a mark.
+>
+> Another said it was a standard.
+>
+> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) looked at it for a long time and said:
+>
+> "*That is how some creatures remember who drew their way out.*"
+>
+> Then she refused to explain more.
+>
+> In another piece of wet paper, under the list of [**47 Luffys**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md), there was a strange note:
+>
+> *25.5 SOL*
+>
+> Again, no one admitted writing it.
+>
+> We did not know whether SOL meant sun, salt, signal, soul, sale, or something from a universe that had not yet introduced itself.
+>
+> But the number kept being repeated in gossip.
+>
+> Some said it was the volume of luck.
+>
+> Some said it was the weight of attention.
+>
+> Some said it was how far the story of [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) had traveled.
+>
+> Some said it was proof that if people kept watching, caring, talking, playing, and believing, even a rabbit could move value across the waves.
+>
+> Until this log is written, I still do not know what kind of luck [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) brings.
+>
+> I do not know the shape of the profit.
+>
+> I do not know whether keeping [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) makes someone rich, safe, healthy, loved, remembered, or simply less hopeless.
+>
+> But perhaps that is the important part.
+>
+> Perhaps the value is not only in value is not only in the luck.
+>
+> Perhaps the value is in the hope that luck may still exist.
+>
+> Because that hope made people pay attention.
+>
+> That hope made them care.
+>
+> That hope made them protect something smaller than themselves.
+>
+> That hope made them count, draw, compare, speak, laugh, argue, vote, learn, work, play, and pray.
+>
+> And in a world where land has melted, governments have collapsed, bombs still fall, and the future is only a rumor carried by waves, anything that can make living beings continue to think, move, care, and grow is already more valuable care, and grow is already than we can fully measure.
+>
+> To all my successors, and to all who read this log:
+>
+> If you see [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md), do not only chase it.
+>
+> Notice it.
+>
+> Learn how it jumps.
+>
+> Learn what it carries.
+>
+> Learn why everyone calls it by name before anyone calls it a rabbit.
+>
+> Maybe fortune is not something [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) gives.
+>
+> Maybe fortune is something we become capable of receiving after we choose to keep paying attention.
+>
+> [**Luffy The Rabbit**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
 
 ***
 

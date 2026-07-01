@@ -517,7 +517,7 @@ coverY: 0
 >
 > Then another one leaped from the remains of a roof to a drifting door.
 >
-> Then one landed on the outer side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook the melting water from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
+> Then one landed on the outer side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook some mud from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
 >
 > I wanted to say, "Rabbit."
 >

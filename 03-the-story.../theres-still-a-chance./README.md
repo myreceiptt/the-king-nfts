@@ -621,7 +621,7 @@ coverY: 0
 >
 > Some wore something like shirts.
 >
-> Some looked wrapped in pieces Some looked wrapped of cloth, hoodies, or strange little costumes that should not survive this kind of world.
+> Some looked wrapped in pieces of cloth, hoodies, or strange little costumes that should not survive this kind of world.
 >
 > Some bit carrots.
 >
@@ -713,7 +713,7 @@ coverY: 0
 >
 > But perhaps that is the important part.
 >
-> Perhaps the value is not only in value is not only in the luck.
+> Perhaps the value is not only in the luck.
 >
 > Perhaps the value is in the hope that luck may still exist.
 >
@@ -725,7 +725,7 @@ coverY: 0
 >
 > That hope made them count, draw, compare, speak, laugh, argue, vote, learn, work, play, and pray.
 >
-> And in a world where land has melted, governments have collapsed, bombs still fall, and the future is only a rumor carried by waves, anything that can make living beings continue to think, move, care, and grow is already more valuable care, and grow is already than we can fully measure.
+> And in a world where land has melted, governments have collapsed, bombs still fall, and the future is only a rumor carried by waves, anything that can make living beings continue to think, move, care, and grow is already more valuable than we can fully measure.
 >
 > To all my successors, and to all who read this log:
 >

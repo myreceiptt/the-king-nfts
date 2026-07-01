@@ -251,11 +251,11 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), who we saved this time, couldn't keep quiet, she was always shouting and saying, "_Who is your leader? Who is in charge of this ark? I want to meet and talk to your leader. I have to talk to your leader alone._" Until finally I allowed her to talk to me.
 >
-> Turns out she brought me a bundle of maps, containing only 15 pages of different maps of the island, that she believes originally contained 20 pages of different maps of the island, and it is the maps of the concrete lands of the Earth's surface after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) was written on the cover of that bundle of maps but she named that bundle of maps **The Melting Archipelago**.
+> Turns out she brought me a bundle of maps, containing only 15 pages of different maps of the island, that she believes originally contained 20 pages of different maps of the island, and it is the maps of the concrete lands of the Earth's surface after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) was written on the cover of that bundle of maps but she named that bundle of maps [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md).
 >
 > She told me the details on each map and showed me some notes, one of it notes said that the first map was created on January 31, 2022, and the last map was created on June 21, 2022 (on June 22, 2022, **B.M.**), but the last five maps are gone. The date of the last map is another fringe in theory for me.
 >
-> But, with the belief of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), who we saved this time, which somehow all other [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) also shared, we voted and decided to guide this ark sailing through [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) to find that **Melting Archipelago** one by one. And this hard decision brings a very big hope for us all.
+> But, with the belief of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), who we saved this time, which somehow all other [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) also shared, we voted and decided to guide this ark sailing through [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) to find that [**Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) one by one. And this hard decision brings a very big hope for us all.
 
 ***
 
@@ -280,11 +280,11 @@ coverY: 0
 >
 > A BOMB.
 >
-> At first, all passengers of [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) thought that another piece of the old world had collapsed into the Melting waves. But the sound did not come from the land. There was no land left to collapse.
+> At first, all passengers of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) thought that another piece of the old world had collapsed into the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). But the sound did not come from the land. There was no land left to collapse.
 >
 > The sound came from war.
 >
-> One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) was standing near the edge of [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) when the explosion happened.
+> One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) was standing near the edge of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) when the explosion happened.
 >
 > She was not the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who brought the maps. Or maybe she was. I could no longer be certain, because every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had the same face, the same name, and yet each of them carried a different way of surviving.
 >
@@ -356,7 +356,7 @@ coverY: 0
 >
 > That is what we did.
 >
-> We took down the old sailcloth of [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and covered the ark with a larger sailcloth carrying one message:
+> We took down the old sailcloth of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and covered the ark with a larger sailcloth carrying one message:
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
@@ -438,7 +438,7 @@ coverY: 0
 >
 > But not all of them arrived.
 >
-> With [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > We mourned them.
 >
@@ -448,7 +448,7 @@ coverY: 0
 >
 > We still call it:
 >
-> [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Not because the others disappeared into our name, but because every ark that joined us carried the same message into the same survival body.
 >

@@ -252,16 +252,18 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang kali ini kami selamatkan tidak bisa diam, dia selalu berteriak dan berkata, "_Siapa pemimpinmu? Siapa yang bertanggung jawab atas bahtera ini? Aku ingin bertemu dan berbicara dengan pemimpinmu. Aku harus bicara dengan pemimpinmu sendiri._" Hingga akhirnya aku mengizinkannya berbicara padaku.
 >
-> Ternyata dia membawakan saya seikat peta, yang hanya berisi 15 halaman peta-peta pulau yang berbeda, yang dia yakini awalnya berisi 20 halaman peta-peta pulau yang berbeda, dan itu adalah peta-peta daratan-daratan konkrit di permukaan Bumi setelah fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) tertulis di sampul depan kumpulan peta itu tapi dia menamakan kumpulan peta itu **Kepulauan Meleleh**.
+> Ternyata dia membawakan aku seikat peta, yang hanya berisi 15 halaman peta-peta pulau yang berbeda, yang dia yakini awalnya berisi 20 halaman peta-peta pulau yang berbeda, dan itu adalah peta-peta daratan-daratan konkrit di permukaan Bumi setelah fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) tertulis di sampul depan kumpulan peta itu tapi dia menamakan kumpulan peta itu [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md).
 >
 > Dia memberi tahuku detail setiap peta dan menunjukkan beberapa catatan, salah satu catatannya mengatakan bahwa peta pertama dibuat pada tanggal 31 Januari 2022, dan peta terakhir dibuat pada tanggal 21 Juni 2022 (pada tanggal 22 Juni 2022, **B.M.**), tapi lima peta terakhir hilang. Bagiku, tanggal peta terakhir adalah keanehan lain dalam teori.
 >
-> Namun, dengan keyakinan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), yang kami selamatkan kali ini, yang entah bagaimana juga diyakini oleh semua [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) lainnya, kami memilih dan memutuskan untuk memandu bahtera ini berlayar melalui [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) untuk menemukan **Kepulauan Meleleh** satu per satu. Dan keputusan berat ini membawa harapan yang sangat besar bagi kami semua.
+> Namun, dengan keyakinan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), yang kami selamatkan kali ini, yang entah bagaimana juga diyakini oleh semua [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) lainnya, kami memilih dan memutuskan untuk memandu bahtera ini berlayar melalui [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) untuk menemukan [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) satu per satu. Dan keputusan berat ini membawa harapan yang sangat besar bagi kami semua.
 
 ***
 
 #### BOM Meleleh
 
+>
+>
 > init...
 >
 > [**(36) Drop NFT Not BOMB™**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)

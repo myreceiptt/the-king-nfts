@@ -525,13 +525,13 @@ coverY: 0
 >
 > Everyone pointed and shouted the same name:
 >
-> "[*Luffy!*](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)"
+> "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
 >
-> "[*Luffy!*](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)"
+> "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
 >
-> "*There is [Luffy!](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)*"
+> "_There is [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
 >
-> "*Look, that is [Luffy!](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)*"
+> "_Look, that is [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
 >
 > I do not know who taught them the name.
 >
@@ -575,11 +575,11 @@ coverY: 0
 >
 > One passenger shouted from the side of the ark:
 >
-> "*There is [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) jumping onto the pile of used tires!*"
+> "_There is [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) jumping onto the pile of used tires!_"
 >
 > One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered without turning her head:
 >
-> "*That is the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) that has been trying to climb this ark since yesterday.*"
+> "_That is the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) that has been trying to climb this ark since yesterday._"
 >
 > Everyone became silent for a few seconds.
 >
@@ -587,7 +587,7 @@ coverY: 0
 >
 > Another afternoon, near the stern of the ark, while the wind was less cruel and the waves were pretending to be gentle, one [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) suddenly asked:
 >
-> "*Have you seen the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) biting a carrot and wearing a hot dog hat?*"
+> "_Have you seen the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) biting a carrot and wearing a hot dog hat?_"
 >
 > Everyone who had been exchanging stories about seeing, saving, chasing, catching, feeding, and keeping [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) immediately stopped talking.
 >
@@ -655,15 +655,15 @@ coverY: 0
 >
 > Even when two passengers swore they saw the same one, an [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) would sometimes say:
 >
-> "*Same [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Different hunger.*"
+> "_Same [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Different hunger._"
 >
 > Or:
 >
-> "*Different [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Same jump.*"
+> "_Different [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Same jump._"
 >
 > Or:
 >
-> "*Do not count only the ears.*"
+> "_Do not count only the ears._"
 >
 > I do not know what those answers mean.
 >
@@ -671,7 +671,7 @@ coverY: 0
 >
 > In the margin of one record, someone had written:
 >
-> *Jajang-STD*
+> **`Jajang-STD`**
 >
 > No one admitted writing it.
 >
@@ -683,13 +683,13 @@ coverY: 0
 >
 > One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) looked at it for a long time and said:
 >
-> "*That is how some creatures remember who drew their way out.*"
+> "_That is how some creatures remember who drew their way out._"
 >
 > Then she refused to explain more.
 >
 > In another piece of wet paper, under the list of [**47 Luffys**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md), there was a strange note:
 >
-> *25.5 SOL*
+> **`25.5 SOL`**
 >
 > Again, no one admitted writing it.
 >

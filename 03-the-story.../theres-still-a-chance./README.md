@@ -549,7 +549,7 @@ coverY: 0
 >
 > Some said [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) opens a path.
 >
-> Some said [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) said L is not luck itself, but a key to a future profit.
+> Some said [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) is not luck itself, but a key to a future profit.
 >
 > Some said whoever could care for [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) would one day receive something valuable.
 >

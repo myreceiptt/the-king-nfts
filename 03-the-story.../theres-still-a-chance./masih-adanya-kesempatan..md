@@ -516,7 +516,7 @@ coverY: 0
 >
 > Lalu satu di antaranya mendarat di sisi luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), mengibaskan lumpur dari kakinya, menatap kami, lalu melompat pergi lagi seolah-olah bencana ini hanyalah sebuah permainan yang belum berhasil mengalahkannya.
 >
-> Aku ingin berkata, "Rabbit."
+> Aku ingin berkata, "Kelinci."
 >
 > Tapi tidak ada yang mengatakan rabbit.
 >

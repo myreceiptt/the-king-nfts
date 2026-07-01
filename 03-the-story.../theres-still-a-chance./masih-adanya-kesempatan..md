@@ -279,7 +279,7 @@ coverY: 0
 >
 > Sebuah dentuman yang sangat keras.
 >
-> Sebuah BOMB.
+> Sebuah BOM.
 >
 > Awalnya, semua penumpang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengira ada bagian lain dari dunia lama yang runtuh ke dalam gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Tapi suara itu tidak datang dari daratan. Tidak ada lagi daratan yang tersisa untuk runtuh.
 >
@@ -305,11 +305,11 @@ coverY: 0
 >
 > Tanah sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama. Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah.
 >
-> Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bomb ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
+> Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bom ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
 >
 > Aku mengulanginya karena amarahku masih membutuhkan bentuk:
 >
-> Di tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ketika setiap makhluk hidup sudah berjuang agar tidak tenggelam, masih ada yang memilih untuk menjatuhkan bomb.
+> Di tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ketika setiap makhluk hidup sudah berjuang agar tidak tenggelam, masih ada yang memilih untuk menjatuhkan bom.
 >
 > Ini adalah keanehan dalam teori yang lain lagi.
 >
@@ -327,11 +327,11 @@ coverY: 0
 >
 > Sampai hari itu, misteri mereka selalu terasa dari kesamaan mereka. Nama yang sama. Tubuh yang sama. Wajah yang sama. Kemunculan mendadak yang sama di antara gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
-> Tapi ketika bomb jatuh, perbedaan mereka menjadi semakin jelas.
+> Tapi ketika bom jatuh, perbedaan mereka menjadi semakin jelas.
 >
 > Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata bahwa kami harus tetap melanjutkan perjalanan menuju [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md), apa pun yang terjadi.
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata bahwa tidak ada bahtera yang akan pernah mencapai kepulauan mana pun jika ia mengabaikan bomb yang berjatuhan di antara gelombang.
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata bahwa tidak ada bahtera yang akan pernah mencapai kepulauan mana pun jika ia mengabaikan bom yang berjatuhan di antara gelombang.
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain tidak mengatakan apa-apa. Dia hanya mengambil sepotong arang dan menulis tiga kata di atas kayu yang patah:
 >
@@ -349,7 +349,7 @@ coverY: 0
 >
 > Begitulah aku menjadi [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
-> Aku tidak meminta amarah ini, tapi aku tidak akan membuangnya. Amarah berbahaya ketika berubah menjadi bomb. Tapi amarah bisa menjadi pesan ketika ia diikatkan pada layar.
+> Aku tidak meminta amarah ini, tapi aku tidak akan membuangnya. Amarah berbahaya ketika berubah menjadi bom. Tapi amarah bisa menjadi pesan ketika ia diikatkan pada layar.
 >
 > Itulah yang kami lakukan.
 >
@@ -435,7 +435,7 @@ coverY: 0
 >
 > Tapi tidak semuanya berhasil tiba.
 >
-> Bersama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sebelas kendaraan penyelamat mencoba saling mendekat. Hanya tujuh yang menjadi satu. Enam berhasil mencapai kami. Empat lainnya hancur di perjalanan, tercabik oleh bomb dan ditelan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+> Bersama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sebelas kendaraan penyelamat mencoba saling mendekat. Hanya tujuh yang menjadi satu. Enam berhasil mencapai kami. Empat lainnya hancur di perjalanan, tercabik oleh bom dan ditelan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
 > Kami berduka untuk mereka.
 >
@@ -457,11 +457,11 @@ coverY: 0
 >
 > Para penumpangnya menjadi lebih dari sekadar penumpang. Mereka menjadi pembawa pesan.
 >
-> Di seluruh [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), orang-orang mulai memahami bahwa penyelamatan harus menjadi lebih besar daripada pembalasan. Pertolongan harus berjalan lebih jauh daripada kebencian. Sebuah pesan harus dijatuhkan sebelum sebuah bomb dijatuhkan.
+> Di seluruh [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), orang-orang mulai memahami bahwa penyelamatan harus menjadi lebih besar daripada pembalasan. Pertolongan harus berjalan lebih jauh daripada kebencian. Sebuah pesan harus dijatuhkan sebelum sebuah bom dijatuhkan.
 >
 > Perang mungkin masih terjadi.
 >
-> Bomb mungkin masih jatuh.
+> Bom mungkin masih jatuh.
 >
 > Kami tidak naif.
 >
@@ -485,9 +485,9 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Melting Date: May 31, 2022
+> Tanggal Meleleh: May 31, 2022
 >
-> Message:  
+> Pesan:  
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
 > Aku menulis log ini pada May 31, 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
@@ -498,7 +498,7 @@ coverY: 0
 >
 > Setidaknya log ini tidak akan membiarkan May menghilang.
 >
-> Gelombang [**Daratan Melelh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) masih bergemuruh. Suara bomb masih datang dari kejauhan. Sesekali udara masih membawa desing tajam peluru, bahkan ketika kami tidak lagi bisa melihat siapa yang menembakkannya, siapa yang menerimanya, dan tanah macam apa yang mereka kira masih sedang mereka perebutkan.
+> Gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) masih bergemuruh. Suara bom masih datang dari kejauhan. Sesekali udara masih membawa desing tajam peluru, bahkan ketika kami tidak lagi bisa melihat siapa yang menembakkannya, siapa yang menerimanya, dan tanah macam apa yang mereka kira masih sedang mereka perebutkan.
 >
 > Tapi pesan dari layar kami terus menyebar.
 >
@@ -514,7 +514,7 @@ coverY: 0
 >
 > Lalu yang lain melompat dari sisa atap menuju pintu yang hanyut.
 >
-> Lalu satu di antaranya mendarat di sisi luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), mengibaskan air Melting dari kakinya, menatap kami, lalu melompat pergi lagi seolah-olah bencana ini hanyalah sebuah permainan yang belum berhasil mengalahkannya.
+> Lalu satu di antaranya mendarat di sisi luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), mengibaskan lumpur dari kakinya, menatap kami, lalu melompat pergi lagi seolah-olah bencana ini hanyalah sebuah permainan yang belum berhasil mengalahkannya.
 >
 > Aku ingin berkata, "Rabbit."
 >
@@ -722,7 +722,7 @@ coverY: 0
 >
 > Harapan itu membuat mereka menghitung, menggambar, membandingkan, berbicara, tertawa, berdebat, voting, belajar, bekerja, bermain, dan berdoa.
 >
-> Dan di dunia tempat tanah telah meleleh, pemerintahan telah runtuh, bomb masih jatuh, dan masa depan hanyalah rumor yang dibawa gelombang, apa pun yang bisa membuat makhluk hidup terus berpikir, bergerak, peduli, dan bertumbuh sudah lebih bernilai daripada yang mampu kami ukur sepenuhnya.
+> Dan di dunia tempat tanah telah meleleh, pemerintahan telah runtuh, bom masih jatuh, dan masa depan hanyalah rumor yang dibawa gelombang, apa pun yang bisa membuat makhluk hidup terus berpikir, bergerak, peduli, dan bertumbuh sudah lebih bernilai daripada yang mampu kami ukur sepenuhnya.
 >
 > Untuk semua penerusku, dan untuk semua yang membaca log ini:
 >

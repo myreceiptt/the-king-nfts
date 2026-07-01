@@ -518,7 +518,7 @@ coverY: 0
 >
 > Aku ingin berkata, "Kelinci."
 >
-> Tapi tidak ada yang mengatakan rabbit.
+> Tapi tidak ada yang mengatakan kelinci.
 >
 > Semua orang menunjuk dan meneriakkan nama yang sama:
 >
@@ -532,7 +532,7 @@ coverY: 0
 >
 > Aku tidak tahu siapa yang mengajari mereka nama itu.
 >
-> Aku tidak tahu apakah nama itu datang dari ingatan, gossip, ketakutan, harapan, atau fringe in theory yang lain.
+> Aku tidak tahu apakah nama itu datang dari ingatan, gossip, ketakutan, harapan, atau keanehan dalam teori yang lain.
 >
 > Tapi sejak saat itu, aku menuliskannya di log ini sebagai:
 >

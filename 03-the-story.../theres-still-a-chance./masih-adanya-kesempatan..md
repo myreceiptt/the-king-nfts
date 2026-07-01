@@ -483,7 +483,7 @@ coverY: 0
 
 #### Kelinci Meleleh
 
-> [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
+> Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
 > Melting Date: May 31, 2022
 >

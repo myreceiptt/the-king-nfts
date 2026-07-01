@@ -303,7 +303,7 @@ coverY: 0
 >
 > Bagiku, itu adalah sesuatu yang aneh dalam teori yang lainnya.
 >
-> Tanah sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama. Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah.
+> Daratan sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama. Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah.
 >
 > Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bom ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
 >
@@ -469,7 +469,7 @@ coverY: 0
 >
 > **makhluk hidup yang mempertahankan kehidupan.**
 >
-> Untuk semua penerusku, dan untuk semua yang membaca log ini:
+> Untuk semua penerusku, dan untuk semua yang membaca catatan ini:
 >
 > Jika kalian harus menjatuhkan sesuatu, jatuhkanlah sesuatu yang bisa menyelamatkan.
 >
@@ -490,13 +490,13 @@ coverY: 0
 > Pesan:  
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Aku menulis log ini pada May 31, 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
+> Aku menulis catatan ini pada May 31, 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
 >
 > Aku menulis May 31 karena semua orang mengingat bahwa ini terjadi pada bulan May, tetapi tidak ada yang sepakat tentang tanggalnya. Ada yang bilang May 13. Ada yang bilang May 15. Ada yang bersikeras bahwa keduanya benar. Ada juga yang sudah tidak peduli, karena setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tanggal tidak lagi selalu menjadi tempat yang bisa dipijak oleh waktu.
 >
 > Jadi aku memilih hari terakhir di bulan May.
 >
-> Setidaknya log ini tidak akan membiarkan May menghilang.
+> Setidaknya catatan ini tidak akan membiarkan May menghilang.
 >
 > Gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) masih bergemuruh. Suara bom masih datang dari kejauhan. Sesekali udara masih membawa desing tajam peluru, bahkan ketika kami tidak lagi bisa melihat siapa yang menembakkannya, siapa yang menerimanya, dan tanah macam apa yang mereka kira masih sedang mereka perebutkan.
 >
@@ -534,7 +534,7 @@ coverY: 0
 >
 > Aku tidak tahu apakah nama itu datang dari ingatan, gossip, ketakutan, harapan, atau keanehan dalam teori yang lain.
 >
-> Tapi sejak saat itu, aku menuliskannya di log ini sebagai:
+> Tapi sejak saat itu, aku menuliskannya di catatan ini sebagai:
 >
 > [**Luffy si Kelinci**](/02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
 >
@@ -562,9 +562,9 @@ coverY: 0
 >
 > Mungkin [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) adalah harapan yang memiliki telinga.
 >
-> Mungkin [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) adalah bentuk dari keinginan kami untuk tetap percaya bahwa sesuatu yang baik masih bisa muncul, bahkan ketika tanah sudah meleleh, laut kehilangan namanya, dan perang terus mencoba masuk ke dalam bencana.
+> Mungkin [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) adalah bentuk dari keinginan kami untuk tetap percaya bahwa sesuatu yang baik masih bisa muncul, bahkan ketika daratan sudah meleleh, laut kehilangan namanya, dan perang terus mencoba masuk ke dalam bencana.
 >
-> Para [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak terlihat terkejut.
+> Para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak terlihat terkejut.
 >
 > Itu membuatku curiga.
 >
@@ -574,7 +574,7 @@ coverY: 0
 >
 > "_Ada [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) melompat ke tumpukan ban bekas!_"
 >
-> Salah satu [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menjawab tanpa menoleh:
+> Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menjawab tanpa menoleh:
 >
 > "_Itu [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sejak kemarin mencoba naik ke bahtera ini._"
 >
@@ -592,9 +592,9 @@ coverY: 0
 >
 > Tidak ada yang tahu apakah dia sedang memberi peringatan.
 >
-> Tidak ada yang tahu apakah carrot dan hot dog memang seharusnya bisa berada bersama dalam teori yang masuk akal.
+> Tidak ada yang tahu apakah wortel dan hot dog memang seharusnya bisa berada bersama dalam teori yang masuk akal.
 >
-> Bagiku, itu adalah fringe in theory yang lain.
+> Bagiku, itu adalah keanehan dalam teori yang lain.
 >
 > Setelah itu, para penumpang mulai mencatat setiap [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang mereka lihat.
 >
@@ -608,7 +608,7 @@ coverY: 0
 >
 > Apakah ia tinggal di bahtera atau menghilang ke dalam gelombang.
 >
-> Apakah seorang [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mengenalinya.
+> Apakah seorang [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mengenalinya.
 >
 > Apakah ia pernah terlihat sebelumnya.
 >
@@ -620,9 +620,9 @@ coverY: 0
 >
 > Beberapa tampak terbungkus potongan kain, hoodie, atau kostum kecil aneh yang seharusnya tidak mungkin bertahan di dunia seperti ini.
 >
-> Beberapa menggigit carrot.
+> Beberapa menggigit wortel.
 >
-> Beberapa menggigit sesuatu yang bukan carrot.
+> Beberapa menggigit sesuatu yang bukan wortel.
 >
 > Beberapa tidak menggigit apa pun, tapi tetap terlihat seolah-olah menyembunyikan rahasia di antara giginya.
 >
@@ -638,29 +638,29 @@ coverY: 0
 >
 > Kami berdebat lagi.
 >
-> Kami bertanya kepada para [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+> Kami bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Para [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menjawab dengan cara yang membuat daftar itu menjadi lebih akurat dan sekaligus lebih sulit dipahami.
+> Para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menjawab dengan cara yang membuat daftar itu menjadi lebih akurat dan sekaligus lebih sulit dipahami.
 >
 > Pada akhirnya, jumlahnya tidak bertambah melewati 47.
 >
 > Hanya [**47 Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
 >
-> Empat puluh tujuh, dan masing-masing terasa seperti one of one.
+> Empat puluh tujuh, dan masing-masing terasa seperti satu dari satu.
 >
 > Tidak ada dua [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang benar-benar sama.
 >
-> Bahkan ketika dua penumpang bersumpah bahwa mereka melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sama, seorang [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) kadang berkata:
+> Bahkan ketika dua penumpang bersumpah bahwa mereka melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sama, seorang [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) kadang berkata:
 >
-> "_Same [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Different hunger._"
->
-> Atau:
->
-> "_Different [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Same jump._"
+> "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sama. Rasa lapar yang berbeda._"
 >
 > Atau:
 >
-> "_Do not count only the ears._"
+> "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang berbeda. Lompatan yang sama._"
+>
+> Atau:
+>
+> "_Jangan hanya menghitung telinga._"
 >
 > Aku tidak tahu apa arti jawaban-jawaban itu.
 >
@@ -668,7 +668,7 @@ coverY: 0
 >
 > Di pinggir salah satu catatan, seseorang menulis:
 >
-> **`Jajang STD`**
+> **`Jajang-STD`**
 >
 > Tidak ada yang mengaku menuliskannya.
 >
@@ -678,7 +678,7 @@ coverY: 0
 >
 > Yang lain berkata itu adalah standar.
 >
-> Satu [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menatap tulisan itu cukup lama dan berkata:
+> Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menatap tulisan itu cukup lama dan berkata:
 >
 > "_Begitulah beberapa makhluk mengingat siapa yang menggambar jalan keluar mereka._"
 >
@@ -690,7 +690,7 @@ coverY: 0
 >
 > Lagi-lagi, tidak ada yang mengaku menuliskannya.
 >
-> Kami tidak tahu apakah SOL berarti sun, salt, signal, soul, sale, atau sesuatu dari universe yang belum memperkenalkan dirinya.
+> Kami tidak tahu apakah SOL berarti sun, salt, signal, soul, sale, atau sesuatu dari semesta yang belum memperkenalkan dirinya.
 >
 > Tapi angka itu terus diulang dalam gossip.
 >
@@ -700,9 +700,9 @@ coverY: 0
 >
 > Ada yang bilang itu adalah ukuran seberapa jauh cerita [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) telah berjalan.
 >
-> Ada yang bilang itu adalah bukti bahwa jika manusia terus memperhatikan, menjaga, membicarakan, bermain, dan percaya, bahkan seekor rabbit bisa menggerakkan value melintasi gelombang.
+> Ada yang bilang itu adalah bukti bahwa jika manusia terus memperhatikan, menjaga, membicarakan, bermain, dan percaya, bahkan seekor kelinci bisa menggerakkan nilai melintasi gelombang.
 >
-> Sampai log ini ditulis, aku masih tidak tahu keberuntungan macam apa yang dibawa oleh [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
+> Sampai catatan ini ditulis, aku masih tidak tahu keberuntungan macam apa yang dibawa oleh [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
 >
 > Aku tidak tahu wujud keuntungannya.
 >
@@ -722,9 +722,9 @@ coverY: 0
 >
 > Harapan itu membuat mereka menghitung, menggambar, membandingkan, berbicara, tertawa, berdebat, voting, belajar, bekerja, bermain, dan berdoa.
 >
-> Dan di dunia tempat tanah telah meleleh, pemerintahan telah runtuh, bom masih jatuh, dan masa depan hanyalah rumor yang dibawa gelombang, apa pun yang bisa membuat makhluk hidup terus berpikir, bergerak, peduli, dan bertumbuh sudah lebih bernilai daripada yang mampu kami ukur sepenuhnya.
+> Dan di dunia tempat daratan telah meleleh, pemerintahan telah runtuh, bom masih jatuh, dan masa depan hanyalah rumor yang dibawa gelombang, apa pun yang bisa membuat makhluk hidup terus berpikir, bergerak, peduli, dan bertumbuh sudah lebih bernilai daripada yang mampu kami ukur sepenuhnya.
 >
-> Untuk semua penerusku, dan untuk semua yang membaca log ini:
+> Untuk semua penerusku, dan untuk semua yang membaca catatan ini:
 >
 > Jika kalian melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md), jangan hanya mengejarnya.
 >
@@ -734,11 +734,11 @@ coverY: 0
 >
 > Pelajari apa yang ia bawa.
 >
-> Pelajari kenapa semua orang memanggilnya dengan nama sebelum siapa pun menyebutnya rabbit.
+> Pelajari kenapa semua orang memanggilnya dengan nama sebelum siapa pun menyebutnya kelinci.
 >
-> Mungkin fortune bukan sesuatu yang diberikan [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
+> Mungkin rezeki bukan sesuatu yang diberikan [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
 >
-> Mungkin fortune adalah sesuatu yang baru sanggup kita terima setelah kita memilih untuk tetap memperhatikan.
+> Mungkin rezeki adalah sesuatu yang baru sanggup kita terima setelah kita memilih untuk tetap memperhatikan.
 >
 > [**Luffy si Kelinci**](/02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
 

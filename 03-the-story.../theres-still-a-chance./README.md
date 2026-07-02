@@ -362,67 +362,27 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> That was when I began to understand that the message was not only traveling from ark to ark.
+> That was when I began to understand that the message was not only traveling from ark to ark. It was also traveling through [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> It was also traveling through [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+> Around ten arks, ships, balloons, and other survival vessels answered us. They were not the same as us. Some carried artists. Some carried collectors. Some carried families. Some carried people who had never met each other before the disaster. Some carried those who had only one thing in common: they did not want the end of the world to become an excuse for more killing.
 >
-> Around ten arks, ships, balloons, and other survival vessels answered us.
+> We exchanged messages in every possible way. We agreed to move closer. We agreed to gather. We agreed to build something larger than each of us. But not all of them arrived.
 >
-> They were not the same as us. Some carried artists. Some carried collectors. Some carried families. Some carried people who had never met each other before the disaster. Some carried those who had only one thing in common: they did not want the end of the world to become an excuse for more killing.
+> With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We mourned them.
 >
-> We exchanged messages in every possible way.
+> Then we joined what remained. Seven vessels became one greater ark. We still call it [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Not because the others disappeared into our name, but because every ark that joined us carried the same message into the same survival body. 
 >
-> We agreed to move closer.
->
-> We agreed to gather.
->
-> We agreed to build something larger than each of us.
->
-> But not all of them arrived.
->
-> With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
->
-> We mourned them.
->
-> Then we joined what remained.
->
-> Seven vessels became one greater ark.
->
-> We still call it:
->
-> [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
->
-> Not because the others disappeared into our name, but because every ark that joined us carried the same message into the same survival body.
->
-> The message became louder.
->
-> The sail became wider.
->
-> The ark became stronger.
->
-> The passengers became more than passengers. They became messengers.
+> The message became louder. The sail became wider. The ark became stronger. The passengers became more than passengers. They became messengers.
 >
 > Across [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), people began to understand that rescue must become greater than revenge. Help must travel farther than hatred. A message must be dropped before a bomb is dropped.
 >
-> War may still happen.
+> War may still happen. Bombs may still fall. We are not naive. We are particles that can be scattered, broken, and carried away by the waves. But if we keep calling each other, if we keep voting, if we keep sending messages, if we keep building arks instead of destroying them, then we can return to our true form, **living beings defending life.**
 >
-> Bombs may still fall.
->
-> We are not naive.
->
-> We are particles that can be scattered, broken, and carried away by the waves. But if we keep calling each other, if we keep voting, if we keep sending messages, if we keep building arks instead of destroying them, then we can return to our true form:
->
-> **living beings defending life.**
->
-> To all my successors, and to all who read this log:
->
-> If you must drop something, drop what can save.
+> To all my successors, and to all who read this log. If you must drop something, drop what can save.
 >
 > [**Drop NFT, not BOMB.**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), anytime you hear us yelling:
->
-> [**OiOi!!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), anytime you hear us yelling, [**OiOi!!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
 
 ***
 

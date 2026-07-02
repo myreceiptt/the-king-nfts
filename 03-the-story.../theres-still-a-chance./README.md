@@ -749,11 +749,579 @@ coverY: 0
 
 #### The Melting Pigs
 
-> init...
+> Recovered Fragments...
 >
-> [**(28) PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
+> Source: Unknown
 >
-> **...**
+> Message:\
+> We do not need gold today. We do not need flags. We do not need a throne. We do not need a border.
+>
+> We need food.
+>
+> ---
+>
+> Source: Broken radio call
+>
+> Message:\
+> Is anyone out there still eating? Please answer. What do you eat now? What do you cook? What do you feed your children? What do you feed your old people? What do you feed those who cannot chew?
+>
+> Please answer.
+>
+> ---
+>
+> Source: Scratched wood found attached to the side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Message:\
+> Do not look at your friend like food.
+>
+> Not yet.
+>
+> Please.
+>
+> ---
+>
+> Source: A bottle note
+>
+> Message:\
+> We saw one of us offer a part of himself to someone he loved.
+>
+> We are not writing this to shame him.
+>
+> We are writing this because hunger has started to speak louder than us.
+>
+> ---
+>
+> Source: Unknown [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Message:\
+> The capsules are almost gone.
+>
+> We need to learn how to make food again before food becomes only a memory.
+
+---
+
+> [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
+>
+> Melting Date: Unknown, after May 31, 2022
+>
+> Message:\
+> Hi, I'm [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> I do not know the exact date of this log.
+>
+> I only know that this happened after the rabbits, after the songs of [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) had entered the wind, after the seven vessels became one greater ark, and after we began to understand that surviving a disaster is not the same as living through it.
+>
+> At first, [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) stole the ground from under our feet.
+>
+> Then war stole the silence from our ears.
+>
+> Then hunger began to steal the shape of our thoughts.
+>
+> Hunger is not like a bomb.
+>
+> A bomb falls once, destroys what it hits, and leaves smoke behind.
+>
+> Hunger stays.
+>
+> Hunger waits inside the stomach.
+>
+> Hunger sits beside every discussion.
+>
+> Hunger listens to every vote.
+>
+> Hunger watches every friendship.
+>
+> Hunger changes the way one living being looks at another living being.
+>
+> That was the most terrifying part.
+>
+> Not the waves.
+>
+> Not the bombs.
+>
+> Not even the absence of land.
+>
+> The most terrifying part was the moment when some eyes began to ask a question that no mouth wanted to say:
+>
+> What can still be eaten?
+>
+> We received messages from outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) asking the same thing.
+>
+> Some came through broken radio calls.
+>
+> Some came through bottles.
+>
+> Some came scratched into plastic containers.
+>
+> Some were written on cloth tied to floating branches.
+>
+> Some were nothing but voices recorded on devices that still had a little battery left.
+>
+> All of them carried the same fear:
+>
+> food was disappearing.
+>
+> Seeds were wet.
+>
+> Flour had spoiled.
+>
+> Rice had become mud.
+>
+> Salt had become too much and not enough at the same time.
+>
+> Fish no longer knew where water ended and land began.
+>
+> Birds became rare.
+>
+> The rabbits called [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) had already become a wound in our memory.
+>
+> We failed them.
+>
+> We saw them as luck, as play, as hope, as something small that made us laugh. Then hunger came, and many began to see them as meat. Some argued that they were easier to accept. Some said they were clean. Some said they were allowed. Some said they were safer for the heart than eating what was forbidden.
+>
+> But we did not build a future from them.
+>
+> We consumed what should have been protected.
+>
+> We took before we learned how to breed.
+>
+> We ate before we understood how to keep life continuing.
+>
+> By the time this regret became clear, almost no one could say with certainty that [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) still remained.
+>
+> That is another fringe in theory:
+>
+> fortune can disappear when treated only as food.
+>
+> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had emergency capsules.
+>
+> Some said the capsules were made for war.
+>
+> Some said they were made for deep forests.
+>
+> Some said they were made for soldiers, astronauts, sailors, or people who were forced to be far away from civilization.
+>
+> Some [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) called them food.
+>
+> Some [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) refused to call them food.
+>
+> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
+>
+> "_A capsule can delay hunger. It cannot rebuild a kitchen._"
+>
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
+>
+> "_A kitchen is not a room. A kitchen is a civilization trying not to eat itself._"
+>
+> Their capsules ran low.
+>
+> Their discussions became longer.
+>
+> They crushed what remained.
+>
+> They dried what could still be dried.
+>
+> They mixed powders.
+>
+> They tested bitter things.
+>
+> They argued over smell, poison, salt, rot, and memory.
+>
+> They tried to make something that could replace food, but the more they tried, the clearer it became:
+>
+> we did not only need something to swallow.
+>
+> We needed something that could continue.
+>
+> Then the messages changed.
+>
+> At first, they came as rumor.
+>
+> Then as repeated signal.
+>
+> Then as confirmed fragments from many directions.
+>
+> There were living creatures under [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Not fish.
+>
+> Not snakes.
+>
+> Not drowned birds.
+>
+> Pigs.
+>
+> Somehow, in the depths of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), there were air pockets.
+>
+> Some were empty.
+>
+> Some carried old smells of trapped rooms.
+>
+> Some carried the breath of animals that should have died with the farms, forests, and villages.
+>
+> Inside some of those air pockets, pigs had survived.
+>
+> Some were alone.
+>
+> Some were in groups.
+>
+> Some looked like farm pigs.
+>
+> Some looked like wild pigs.
+>
+> Some looked as if they had become something between memory and mud.
+>
+> The first discovery did not come from a formal search.
+>
+> It came from a shout.
+>
+> Those who stayed above the surface shouted to those who dived below:
+>
+> "_BOII! BOII!_"
+>
+> The divers disappeared into the thick surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> We waited.
+>
+> The ropes shook.
+>
+> The mud bubbled.
+>
+> Some came back coughing with nothing.
+>
+> Some came back crying after finding only empty air pockets.
+>
+> Then, from below, a reply came:
+>
+> "_OiOi! OiOi!_"
+>
+> They had found them.
+>
+> Pigs inside an air pocket.
+>
+> After that, the call became a system.
+>
+> From above:
+>
+> "_BOII! BOII!_"
+>
+> From below, if life was found:
+>
+> "_OiOi! OiOi!_"
+>
+> That is how the name spread through the ark:
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
+>
+> Not just pigs.
+>
+> Not only meat.
+>
+> Not only animals trapped under mud.
+>
+> They became a call and response.
+>
+> A sign that something living was still hidden below the death of the surface.
+>
+> But finding them did not immediately save us.
+>
+> Finding them almost split us apart.
+>
+> The debate became harder than the dive.
+>
+> Some passengers said pigs were forbidden.
+>
+> Some said disaster had changed the law of survival.
+>
+> Some said emergency allowed what ordinary days refused.
+>
+> Some said faith should not be rewritten by hunger.
+>
+> Some said refusing the only renewable food source would turn piety into mass death.
+>
+> Some said we still had no right to decide while even one [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) might remain.
+>
+> Some said that was exactly the mistake:
+>
+> we had already turned [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) into food before turning it into a future.
+>
+> For hours, the ark was full of voices.
+>
+> Halal.
+>
+> Haram.
+>
+> Emergency.
+>
+> Faith.
+>
+> Hunger.
+>
+> Breeding.
+>
+> Shame.
+>
+> Survival.
+>
+> Death.
+>
+> No word stood alone.
+>
+> Every word carried a stomach behind it.
+>
+> Every stomach carried a belief above it.
+>
+> I did not want to make a law from anger.
+>
+> I did not want to make a law from hunger.
+>
+> I did not want to make a law that forced one mouth to betray what kept that mouth human.
+>
+> But I also could not lead an ark where living beings slowly began to imagine each other as food.
+>
+> So we discussed.
+>
+> We argued.
+>
+> We listened.
+>
+> We failed to listen.
+>
+> We returned to the discussion.
+>
+> We asked the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> They did not answer as one voice.
+>
+> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
+>
+> "_Do not ask hunger to become moral. Build a system before hunger becomes king._"
+>
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
+>
+> "_Emergency does not erase belief. Emergency tests whether belief can protect life without becoming cruelty._"
+>
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
+>
+> "_If you eat everything, you end the story. If you breed what can live, you write the next page._"
+>
+> Then one [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the same one who had once asked about the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) biting a carrot and wearing a hot dog hat, said:
+>
+> "_You already know what happens when you do not think beyond the first meal._"
+>
+> No one answered her.
+>
+> Because she was right.
+>
+> We voted.
+>
+> The decision was not simple.
+>
+> The vote did not erase anyone's belief.
+>
+> The vote did not command every mouth to eat.
+>
+> The vote established an emergency law for the ark:
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) would be rescued, protected, bred, and used as survival food under emergency agreement.
+>
+> We would not repeat the mistake of [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
+>
+> We would not consume without continuing.
+>
+> We would not hunt without breeding.
+>
+> We would not turn hunger into a government.
+>
+> We celebrated the decision, not because pigs became food, but because a conflict that could have broken the ark became an agreement that kept the ark alive.
+>
+> Messages were sent outward.
+>
+> The call spread:
+>
+> "_BOII! BOII!_"
+>
+> The answer spread:
+>
+> "_OiOi! OiOi!_"
+>
+> Other vessels tried to do the same.
+>
+> Some succeeded for a while.
+>
+> Most failed.
+>
+> Outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), many could still find [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) in the air pockets under [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), but almost none could keep them breeding.
+>
+> The animals weakened.
+>
+> Some stopped eating.
+>
+> Some refused the water.
+>
+> Some became sick after being brought above the surface.
+>
+> Some escaped back into the mud.
+>
+> Some died before giving life to another generation.
+>
+> But on our ark, they lived.
+>
+> On our ark, they bred.
+>
+> On our ark, they became healthier than we expected.
+>
+> This success made me suspicious.
+>
+> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) knew something.
+>
+> I saw it in the way they watched the water.
+>
+> I saw it in the way they tasted what they gave to the animals.
+>
+> I saw it in the way they stopped some passengers from changing the recycling barrels.
+>
+> I asked them.
+>
+> At first, they were silent.
+>
+> Then the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) with the torn communication officer uniform said:
+>
+> "_Your ark does not only carry survivors._"
+>
+> I asked what else it carried.
+>
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered:
+>
+> "_Dunno What Water._"
+>
+> I understood before she said the rest.
+>
+> The recycled water of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) had been contaminated by traces of **Nameless Liquid**.
+>
+> The liquid from the land of **Dunno What Water**.
+>
+> The liquid that once brought peace to those who drank it.
+>
+> The liquid that could not save **Mr. BROY** from fear, but perhaps could help the ark keep something alive.
+>
+> That is why [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) lived better here.
+>
+> That is why they calmed faster.
+>
+> That is why they bred.
+>
+> That is why our survival began to look like a secret.
+>
+> I asked whether we should tell everyone.
+>
+> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) looked at each other.
+>
+> One said:
+>
+> "_If this becomes gossip, they will drink the system before the system can feed them._"
+>
+> Another said:
+>
+> "_Peace water must become infrastructure, not panic._"
+>
+> Another said:
+>
+> "_Keep it between the captain and the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) until the ark learns how to protect what protects it._"
+>
+> So I kept the secret.
+>
+> I write it here because a log is not gossip.
+>
+> A log is a burden passed to the next captain.
+>
+> To my successors:
+>
+> Protect the water.
+>
+> Protect the breeding.
+>
+> Protect those who cannot eat what others eat.
+>
+> Protect the agreement.
+>
+> Protect the difference between emergency and greed.
+>
+> Outside, the messages became more desperate.
+>
+> Some vessels sent locations, asking us to come and save them.
+>
+> But the shape of Earth had changed.
+>
+> The old coordinates lied.
+>
+> The old maps drowned.
+>
+> Directions turned into guesses.
+>
+> Messages arrived by accident, luck, wind, animal, bottle, broken signal, and whatever force still allowed one life to call another life.
+>
+> We tried to find them.
+>
+> We failed many times.
+>
+> Some may still be waiting.
+>
+> Some may no longer be able to wait.
+>
+> Until this log is written, I fear that outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) is becoming harder to find.
+>
+> The air pockets are emptying.
+>
+> The hunters are growing tired.
+>
+> The breeders are failing.
+>
+> Hunger is returning to the eyes.
+>
+> This is what I learned:
+>
+> Food is not only food.
+>
+> Food is law.
+>
+> Food is faith.
+>
+> Food is argument.
+>
+> Food is technology.
+>
+> Food is memory.
+>
+> Food is infrastructure.
+>
+> Food is the first economy after the end of land.
+>
+> If we cannot produce food, we will consume each other.
+>
+> If we cannot agree on food, our votes will become knives.
+>
+> If we cannot protect what can keep living, survival will end after one meal.
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) taught us that life below the surface can still answer when called correctly.
+>
+> From above:
+>
+> "_BOII! BOII!_"
+>
+> From below:
+>
+> "_OiOi! OiOi!_"
+>
+> To all my successors, and to all who read this log:
+>
+> Do not wait until hunger becomes your captain.
+>
+> Build the system before the stomach writes the law.
+>
+> Feed the living without killing the future.
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
 
 ***
 

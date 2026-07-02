@@ -1,7 +1,7 @@
 ---
 description: >-
   Jika kalian di luar sana bisa bertahan, selamatkan hidup kalian! Saling
-  membantu apapun kondisinya. Bersiaplah untuk apa pun. Perjalanan kami baru
+  membantu apa pun kondisinya. Bersiaplah untuk apa pun. Perjalanan kami baru
   saja dimulai.
 cover: ../../.gitbook/assets/prof-nota-background.1acd6485cc55835d225c.jpg
 coverY: 0
@@ -108,15 +108,15 @@ coverY: 0
 > Tanggal Meleleh: 14 Februari 2022
 >
 > Pesan:\
-> Pertama-tama, selamat **Hari Kasih Sayang**, semoga ditengah bencana ini kita selalu **MENCINTAI** dan mengenang mereka semua yang tidak selamat.
+> Pertama-tama, selamat **Hari Kasih Sayang**, semoga di tengah bencana ini kita selalu **MENCINTAI** dan mengenang mereka semua yang tidak selamat.
 >
 > Aku adalah [**Kapten ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Ada 1047 laki-laki di dalam bahtera ini. Mereka semua bertahan dan selamat dari fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Aku salah satu dari mereka dan penerusku akan dipilih melalui pemungutan suara setelah aku selesai merekam catatan pertama ini.
 >
-> Kini kami mengarungi permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi bersama seluruh penyintas yang semuanya berjenis kelamin laki-laki dan merasa sangat bersyukur hari ini. Mereka bertahan, dan bisa merayakan **Hari Kasih Sayang** yang setelah bencana terjadi, **Hari Kasih Sayang** masih tetap dirayakan, dan itu pertanda bahwa **CINTA** kami hampir abadi, tidak berubah dalam kondisi apapun.
+> Kini kami mengarungi permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi bersama seluruh penyintas yang semuanya berjenis kelamin laki-laki dan merasa sangat bersyukur hari ini. Mereka bertahan, dan bisa merayakan **Hari Kasih Sayang** yang setelah bencana terjadi, **Hari Kasih Sayang** masih tetap dirayakan, dan itu pertanda bahwa **CINTA** kami hampir abadi, tidak berubah dalam kondisi apa pun.
 >
 > Tapi ada sesuatu yang aneh dalam teori. Hampir semua penyintas mengatakan bahwa akhir bulan ini adalah tanggal 29 Februari 2022. Mereka menjelaskan bahwa sejak tanggal 30 September 2020, sebelum fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), penambahan hari tambahan pada tahun kabisat mulai terjadi pada tanggal tersebut dan akan terjadi lagi pada 30 September 2024 atau empat tahun sekali. Mereka menjelaskan lebih lanjut, bahwa bulan Februari selalu mempunyai 29 hari, dan bulan September mempunyai 29 hari, bukannya 30 hari, kecuali pada tahun kabisat, bulan September mempunyai 30 hari.
 >
-> Disini aku mencoba melakukan beberapa konversi, aku beri nama **Penanggalan Meleleh**, dan aku juga membuat singkatan baru yaitu **B.M.** yang artinya **Before Melting** atau **Sebelum Meleleh**...
+> Di sini aku mencoba melakukan beberapa konversi, aku beri nama **Penanggalan Meleleh**, dan aku juga membuat singkatan baru yaitu **B.M.** yang artinya **Before Melting** atau **Sebelum Meleleh**...
 >
 > **Tanggal Meleleh**: 30 September 2020 (30 September 2020, **B.M.**)\
 > \
@@ -225,7 +225,7 @@ coverY: 0
 >
 > Seperti yang kalian tahu, ini bukanlah akhir. Bahkan tidak mendekati akhir. Ini baru permulaan. Kita telah kehilangan seluruh kota. Tidak ada otoritas resmi untuk membantu. Semua pemerintahan runtuh di semua negara. Namun ada juga yang menemukan cara sulit untuk bertahan hidup.
 >
-> Tidak ada pengetahuan (zero-knowledge) di antara kami masing-masing, tidak perlu rasa percaya (trust-less), dan yang ada hanya gosip yang tersebar di antara kami, yang dapat digunakan untuk mengkonfirmasi dan memvalidasi siapa kami. Jika kalian di luar sana bisa bertahan, selamatkan hidup kalian! Saling membantu apapun kondisinya. Bersiaplah untuk apa pun. Perjalanan kami baru saja dimulai.
+> Tidak ada pengetahuan (zero-knowledge) di antara kami masing-masing, tidak perlu rasa percaya (trust-less), dan yang ada hanya gosip yang tersebar di antara kami, yang dapat digunakan untuk mengonfirmasi dan memvalidasi siapa kami. Jika kalian di luar sana bisa bertahan, selamatkan hidup kalian! Saling membantu apa pun kondisinya. Bersiaplah untuk apa pun. Perjalanan kami baru saja dimulai.
 >
 > Meski kami masih belum tahu ke mana kami harus pergi, bahtera ini memberi kami waktu yang memberi kami kesempatan. Berlayar ke mana pun untuk bertahan hidup. Melalui pemungutan suara, kami akan terus memilih salah satu sebagai Kapten. Melalui pemungutan suara, kami akan selalu memutuskan bagaimana mengatur aktivitas kami. Melalui pemungutan suara, kami akan selalu memutuskan ke mana bahtera kami harus berlayar dalam perjalanan ini.
 >
@@ -242,7 +242,7 @@ coverY: 0
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Hari ini tanggal 21 Februari 2022. Sudah lebih dari satu minggu kami terkatung-katung di permukaan ombak [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Belum ada tanda-tanda daratan yang konkrit bagi bahtera kami untuk memutuskan ke mana harus berlayar dan berlabuh.
+> Hari ini tanggal 21 Februari 2022. Sudah lebih dari satu minggu kami terkatung-katung di permukaan ombak [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Belum ada tanda-tanda daratan yang konkret bagi bahtera kami untuk memutuskan ke mana harus berlayar dan berlabuh.
 >
 > Kami kebanyakan skeptis sejak awal dan merasa putus asa ketika menyadari kondisi tersebut. Hanya sedikit dari kami yang tetap optimis dan masih percaya pada perjalanan ini. Hal itu membuatku kewalahan dengan berbagai upaya untuk bertahan hidup. Namun aku masih terus berdiskusi dengan yang lainnya untuk menentukan bagaimana kegiatan kami, dan bagaimana sumber daya yang ada akan dikelola selama kami bertahan di bahtera ini.
 >
@@ -252,7 +252,7 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang kali ini kami selamatkan tidak bisa diam, dia selalu berteriak dan berkata, "_Siapa pemimpinmu? Siapa yang bertanggung jawab atas bahtera ini? Aku ingin bertemu dan berbicara dengan pemimpinmu. Aku harus bicara dengan pemimpinmu sendiri._" Hingga akhirnya aku mengizinkannya berbicara padaku.
 >
-> Ternyata dia membawakan aku seikat peta, yang hanya berisi 15 halaman peta-peta pulau yang berbeda, yang dia yakini awalnya berisi 20 halaman peta-peta pulau yang berbeda, dan itu adalah peta-peta daratan-daratan konkrit di permukaan Bumi setelah fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) tertulis di sampul depan kumpulan peta itu tapi dia menamakan kumpulan peta itu [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md).
+> Ternyata dia membawakan aku seikat peta, yang hanya berisi 15 halaman peta-peta pulau yang berbeda, yang dia yakini awalnya berisi 20 halaman peta-peta pulau yang berbeda, dan itu adalah peta-peta daratan-daratan konkret di permukaan Bumi setelah fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) tertulis di sampul depan kumpulan peta itu tapi dia menamakan kumpulan peta itu [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md).
 >
 > Dia memberi tahuku detail setiap peta dan menunjukkan beberapa catatan, salah satu catatannya mengatakan bahwa peta pertama dibuat pada tanggal 31 Januari 2022, dan peta terakhir dibuat pada tanggal 21 Juni 2022 (pada tanggal 22 Juni 2022, **B.M.**), tapi lima peta terakhir hilang. Bagiku, tanggal peta terakhir adalah keanehan lain dalam teori.
 >

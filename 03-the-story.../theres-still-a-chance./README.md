@@ -64,13 +64,13 @@ coverY: 0
 > Subject: No places to tread on, all we have is sinking.
 >
 > Message:\
-> Panic swept the region of the land. All people from any strata are confused to save themselves. They wear any clothes and carry any things they can get. There is no more land to tread on. Everything has melted. Only [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth that sinking all civilizations ever built.
+> Panic swept the region of the land. All people from any strata are confused to save themselves. They wear any clothes and carry any things they can get. There is no more land to tread on. Everything has melted. Only [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth is sinking every civilization ever built.
 >
 > Commenter: [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Comment: All Hand Hoy!!!
 
-> [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Speech…
+> [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Speech...
 >
 > ### [THE MELTING LAND](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
@@ -213,7 +213,7 @@ coverY: 0
 > Subject: Unknown
 >
 > Message:\
-> The United Nations Office for Disaster Risk Reduction has created an announcement that instructs to build a survival ship that works as a kind of ark to make people who can survive able to live there.
+> The United Nations Office for Disaster Risk Reduction has created an announcement that instructs to build a survival ship that works as a kind of ark, so the people who survive can live there.
 
 > [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
@@ -243,7 +243,7 @@ coverY: 0
 >
 > Today is 21 February 2022. For more than one week we have been adrift on the surface of [**Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)'s waves. There are no signs yet of concrete land for our ark to decide where to be sailed and anchored.
 >
-> We are mostly skeptical from the beginning and feel desperate when we are aware of the condition. Only a few of us remain optimistic and still have faith in this journey. That makes me overwhelmed with various efforts to survive. But I still continue to discuss with all of us to determine how our activities would be, and how existing resources would be managed while we surviving on this ark.
+> We are mostly skeptical from the beginning and feel desperate when we are aware of the condition. Only a few of us remain optimistic and still have faith in this journey. That makes me overwhelmed with various efforts to survive. But I still continue to discuss with all of us to determine how our activities would be, and how existing resources would be managed while we are surviving on this ark.
 >
 > Although many of us are already pessimistic about what I'm doing, all that skepticism, despair, and pessimism were just thrown away every time we encountered lone survivors adrift amidst the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Each of them survived on whatever debris they could find.
 >
@@ -253,7 +253,7 @@ coverY: 0
 >
 > Turns out she brought me a bundle of maps, containing only 15 pages of different maps of the island, that she believes originally contained 20 pages of different maps of the island, and it is the maps of the concrete lands of the Earth's surface after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**ABSART IDSA Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) was written on the cover of that bundle of maps but she named that bundle of maps [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md).
 >
-> She told me the details on each map and showed me some notes, one of it notes said that the first map was created on January 31, 2022, and the last map was created on June 21, 2022 (on June 22, 2022, **B.M.**), but the last five maps are gone. The date of the last map is another fringe in theory for me.
+> She told me the details on each map and showed me some notes, one of the notes said that the first map was created on January 31, 2022, and the last map was created on June 21, 2022 (on June 22, 2022, **B.M.**), but the last five maps are gone. The date of the last map is another fringe in theory for me.
 >
 > But, with the belief of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), who we saved this time, which somehow all other [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) also shared, we voted and decided to guide this ark sailing through [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) to find that [**Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) one by one. And this hard decision brings a very big hope for us all.
 
@@ -348,10 +348,6 @@ coverY: 0
 >
 > That is how I became [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
-> So we voted again.
->
-> I was chosen.
->
 > I did not ask for this anger, but I will not throw it away. Anger is dangerous when it becomes a bomb. But anger can become a message when it is tied to a sail.
 >
 > That is what we did.
@@ -360,7 +356,7 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> We chose that message because all 1047 men onboard are here because of invitations. They minted the invitations. They held them in their wallets. Those invitations allowed them to become passengers of this ark.
+> We chose that message because all 1047 men onboard are here through NFT-verified invitations. They minted the invitations. They held them in their wallets. Those invitations allowed them to become passengers of this ark.
 >
 > An NFT did not kill them.
 >
@@ -390,7 +386,7 @@ coverY: 0
 >
 > Then we heard it.
 >
-> "_This is_ [_**Amanda**_](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)_._"
+> "_This is [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)._"
 >
 > Everyone on the ark froze.
 >
@@ -490,7 +486,7 @@ coverY: 0
 >
 > Melting Date: May 31, 2022
 >
-> Message:  
+> Message:\
 > Hi, I'm [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
 > I write this log on May 31, 2022, not because I am certain this happened today.
@@ -1355,9 +1351,9 @@ coverY: 0
 
 ***
 
-## In The Universe of Reality...
+## In The Universe of Reality…
 
-### There is The Island of God...
+### There is The Island of God…
 
 #### The Melting Conservation
 
@@ -1369,9 +1365,9 @@ coverY: 0
 
 ***
 
-## Back to The 0101 Universes...
+## Back to The 0101 Universes…
 
-### There is The Rich Island...
+### There is The Rich Island…
 
 #### The Farmers of [BANANOW.LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 

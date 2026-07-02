@@ -363,67 +363,27 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> Saat itulah aku mulai memahami bahwa pesan itu tidak hanya berjalan dari bahtera ke bahtera.
+> Saat itulah aku mulai memahami bahwa pesan itu tidak hanya berjalan dari bahtera ke bahtera. Pesan itu juga berjalan melalui [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Pesan itu juga berjalan melalui [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+> Sekitar sepuluh bahtera, kapal, balon udara, dan kendaraan penyelamat lainnya menjawab kami. Mereka tidak sama seperti kami. Ada yang membawa seniman. Ada yang membawa kolektor. Ada yang membawa keluarga. Ada yang membawa orang-orang yang belum pernah saling mengenal sebelum bencana. Ada yang hanya memiliki satu kesamaan: mereka tidak ingin akhir dunia dijadikan alasan untuk lebih banyak pembunuhan.
 >
-> Sekitar sepuluh bahtera, kapal, balon udara, dan kendaraan penyelamat lainnya menjawab kami.
+> Kami saling bertukar pesan dengan segala cara yang masih mungkin dilakukan. Kami sepakat untuk bergerak mendekat. Kami sepakat untuk berkumpul. Kami sepakat untuk membangun sesuatu yang lebih besar daripada diri kami masing-masing. Tapi tidak semuanya berhasil tiba.
 >
-> Mereka tidak sama seperti kami. Ada yang membawa seniman. Ada yang membawa kolektor. Ada yang membawa keluarga. Ada yang membawa orang-orang yang belum pernah saling mengenal sebelum bencana. Ada yang hanya memiliki satu kesamaan: mereka tidak ingin akhir dunia dijadikan alasan untuk lebih banyak pembunuhan.
+> Bersama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sebelas kendaraan penyelamat mencoba saling mendekat. Hanya tujuh yang menjadi satu. Enam berhasil mencapai kami. Empat lainnya hancur di perjalanan, tercabik oleh bom dan ditelan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kami berduka untuk mereka.
 >
-> Kami saling bertukar pesan dengan segala cara yang masih mungkin dilakukan.
+> Lalu kami menyatukan apa yang tersisa. Tujuh kendaraan menjadi satu bahtera yang lebih besar. Kami tetap menyebutnya [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Bukan karena yang lain lenyap ke dalam nama kami, tetapi karena setiap bahtera yang bergabung membawa pesan yang sama ke dalam tubuh keselamatan yang sama.
 >
-> Kami sepakat untuk bergerak mendekat.
->
-> Kami sepakat untuk berkumpul.
->
-> Kami sepakat untuk membangun sesuatu yang lebih besar daripada diri kami masing-masing.
->
-> Tapi tidak semuanya berhasil tiba.
->
-> Bersama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sebelas kendaraan penyelamat mencoba saling mendekat. Hanya tujuh yang menjadi satu. Enam berhasil mencapai kami. Empat lainnya hancur di perjalanan, tercabik oleh bom dan ditelan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
->
-> Kami berduka untuk mereka.
->
-> Lalu kami menyatukan apa yang tersisa.
->
-> Tujuh kendaraan menjadi satu bahtera yang lebih besar.
->
-> Kami tetap menyebutnya:
->
-> [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
->
-> Bukan karena yang lain lenyap ke dalam nama kami, tetapi karena setiap bahtera yang bergabung membawa pesan yang sama ke dalam tubuh keselamatan yang sama.
->
-> Pesan itu menjadi lebih lantang.
->
-> Layarnya menjadi lebih luas.
->
-> Bahteranya menjadi lebih kuat.
->
-> Para penumpangnya menjadi lebih dari sekadar penumpang. Mereka menjadi pembawa pesan.
+> Pesan itu menjadi lebih lantang. Layarnya menjadi lebih luas. Bahteranya menjadi lebih kuat. Para penumpangnya menjadi lebih dari sekadar penumpang. Mereka menjadi pembawa pesan.
 >
 > Di seluruh [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), orang-orang mulai memahami bahwa penyelamatan harus menjadi lebih besar daripada pembalasan. Pertolongan harus berjalan lebih jauh daripada kebencian. Sebuah pesan harus dijatuhkan sebelum sebuah bom dijatuhkan.
 >
-> Perang mungkin masih terjadi.
+> Perang mungkin masih terjadi. Bom mungkin masih jatuh. Kami tidak naif. Kami adalah partikel-partikel yang bisa tercerai, pecah, dan terbawa gelombang. Tapi jika kami terus saling memanggil, jika kami terus voting, jika kami terus mengirim pesan, jika kami terus membangun bahtera dan bukan menghancurkannya, maka kami bisa kembali kepada wujud sejati kami, **makhluk hidup yang mempertahankan kehidupan.**
 >
-> Bom mungkin masih jatuh.
->
-> Kami tidak naif.
->
-> Kami adalah partikel-partikel yang bisa tercerai, pecah, dan terbawa gelombang. Tapi jika kami terus saling memanggil, jika kami terus voting, jika kami terus mengirim pesan, jika kami terus membangun bahtera dan bukan menghancurkannya, maka kami bisa kembali kepada wujud sejati kami:
->
-> **makhluk hidup yang mempertahankan kehidupan.**
->
-> Untuk semua penerusku, dan untuk semua yang membaca catatan ini:
->
-> Jika kalian harus menjatuhkan sesuatu, jatuhkanlah sesuatu yang bisa menyelamatkan.
+> Untuk semua penerusku, dan untuk semua yang membaca catatan ini. Jika kalian harus menjatuhkan sesuatu, jatuhkanlah sesuatu yang bisa menyelamatkan.
 >
 > [**Drop NFT, not BOMB.**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kapan pun kalian mendengar kami berteriak:
->
-> [**OiOi!!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kapan pun kalian mendengar kami berteriak, [**OiOi!!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
 
 ***
 

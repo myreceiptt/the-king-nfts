@@ -434,7 +434,7 @@ coverY: 0
 >
 > But not all of them arrived.
 >
-> With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
 > We mourned them.
 >

@@ -30,7 +30,9 @@ coverY: 0
 > Commenter: A Resident of **Dunno What Water**
 >
 > Comment: Aye, Aye, Captain!!!
-
+>
+> ***
+> 
 > Broadcast Date: January 25, 2022
 >
 > Broadcaster: A Mass Media of **Dunno What Water**
@@ -43,7 +45,9 @@ coverY: 0
 > Commenter: [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Comment: Shiver Me Timbers!!!
-
+>
+> ***
+> 
 > Broadcast Date: January 30, 2022
 >
 > Broadcaster: A Mass Media of **Dunno What Water**
@@ -56,7 +60,9 @@ coverY: 0
 > Commenter: [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Comment: Aaaarrrrgggghhhh!!!
-
+>
+> ***
+> 
 > Broadcast Date: February 10, 2022
 >
 > Broadcaster: A Resident of **Dunno What Water**
@@ -69,7 +75,9 @@ coverY: 0
 > Commenter: [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Comment: All Hand Hoy!!!
-
+>
+> ***
+> 
 > [**Cap’n ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Speech...
 >
 > ### [THE MELTING LAND](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -160,7 +168,9 @@ coverY: 0
 >
 > Message:\
 > Hi, there. This is... This is [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Is anyone out there?
-
+>
+> ***
+> 
 > Broadcast Date: Unknown
 >
 > Broadcaster: A Survivor of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -169,7 +179,9 @@ coverY: 0
 >
 > Message:\
 > Hello! I'm trying to get in contact with anyone.
-
+>
+> ***
+> 
 > Broadcast Date: Unknown
 >
 > Broadcaster: A Survivor of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -178,7 +190,9 @@ coverY: 0
 >
 > Message:\
 > We've had some luck finding people with this transmission.
-
+>
+> ***
+> 
 > Broadcast Date: Unknown
 >
 > Broadcaster: A Mass Media of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -187,7 +201,9 @@ coverY: 0
 >
 > Message:\
 > When there is no longer any land to stand on, everything becomes like a turbulent sea. Entire cities were lost, sinking in [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
-
+>
+> ***
+> 
 > Broadcast Date: Unknown
 >
 > Broadcaster: A Mass Media of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -196,7 +212,9 @@ coverY: 0
 >
 > Message:\
 > The United Nations Office for Disaster Risk Reduction reports today that help may never be soon...
-
+>
+> ***
+> 
 > Broadcast Date: Unknown
 >
 > Broadcaster: A Mass Media of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -205,7 +223,9 @@ coverY: 0
 >
 > Message:\
 > ...various debris used as a place to stand and survive, amidst [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
-
+>
+> ***
+>
 > Broadcast Date: Unknown
 >
 > Broadcaster: A Mass Media of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -214,7 +234,9 @@ coverY: 0
 >
 > Message:\
 > The United Nations Office for Disaster Risk Reduction has created an announcement that instructs to build a survival ship that works as a kind of ark, so the people who survive can live there.
-
+>
+> ***
+> 
 > [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
 > Melting Date: February 14, 2022
@@ -754,7 +776,7 @@ coverY: 0
 >
 > We need food.
 >
-> ---
+> ***
 >
 > Source: Broken radio call
 >
@@ -763,7 +785,7 @@ coverY: 0
 >
 > Please answer.
 >
-> ---
+> ***
 >
 > Source: Scratched wood found attached to the side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -774,7 +796,7 @@ coverY: 0
 >
 > Please.
 >
-> ---
+> ***
 >
 > Source: A bottle note
 >
@@ -785,7 +807,7 @@ coverY: 0
 >
 > We are writing this because hunger has started to speak louder than us.
 >
-> ---
+> ***
 >
 > Source: Unknown [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -793,9 +815,9 @@ coverY: 0
 > The capsules are almost gone.
 >
 > We need to learn how to make food again before food becomes only a memory.
-
----
-
+>
+> ***
+>
 > [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
 > Melting Date: Unknown, after May 31, 2022

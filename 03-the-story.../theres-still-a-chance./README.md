@@ -306,123 +306,51 @@ coverY: 0
 >
 > The sound came from war.
 >
-> One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) was standing near the edge of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) when the explosion happened.
+> One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) was standing near the edge of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) when the explosion happened. She was not the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who brought the maps. Or maybe she was. I could no longer be certain, because every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had the same face, the same name, and yet each of them carried a different way of surviving.
 >
-> She was not the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who brought the maps. Or maybe she was. I could no longer be certain, because every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had the same face, the same name, and yet each of them carried a different way of surviving.
+> This [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) wore something that looked like a torn communication officer uniform. She did not scream when the explosion shook the air. She only closed her eyes, listened to the echo, and said, "_That was not the land collapsing._"
 >
-> This [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) wore something that looked like a torn communication officer uniform. She did not scream when the explosion shook the air. She only closed her eyes, listened to the echo, and said:
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the one who kept holding the bundle of maps, answered from behind her, "_No. That was sent._"
 >
-> "_That was not the land collapsing._"
->
-> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the one who kept holding the bundle of maps, answered from behind her:
->
-> "_No. That was sent._"
->
-> No one asked how she knew.
->
-> Or maybe everyone wanted to ask, but no one had enough courage to hear the answer.
->
-> For me, it was another fringe in theory.
->
-> The land was melting. Time was already broken. The same woman kept appearing from the waves with the same name. And now, before any of us could understand the maps, war had found us in the middle of nowhere.
+> No one asked how she knew. Or maybe everyone wanted to ask, but no one had enough courage to hear the answer. For me, it was another fringe in theory. The land was melting. Time was already broken. The same woman kept appearing from the waves with the same name. And now, before any of us could understand the maps, war had found us in the middle of nowhere.
 >
 > Far across the moving surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), a highly advanced ark built by Russia fired a bomb toward another ark that was later known as an ark of Ukraine.
 >
-> I repeat this because my anger still needs a shape:
+> I repeat this because my anger still needs a shape. In the middle of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), when every living being is already struggling not to sink, someone still chose to drop a bomb. This is another fringe in theory. When the world was whole, they said war happened because people fought over land. Now there is no land, and war still found a way to float.
 >
-> In the middle of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), when every living being is already struggling not to sink, someone still chose to drop a bomb.
+> [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) gathered us and spoke honestly. He said he could lead in emergency. He could defend. He could think through panic. He could continue the journey to find [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). But he was not prepared to lead us through a war born inside a disaster. He was a fighter, not a war strategist. He was a captain for survival, not for geopolitical madness.
 >
-> This is another fringe in theory.
+> During the long discussion, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not speak as one voice. That made me more afraid. Until that day, their mystery had always been in their sameness. Same name. Same body. Same face. Same sudden appearance among the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
-> When the world was whole, they said war happened because people fought over land. Now there is no land, and war still found a way to float.
->
-> [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) gathered us and spoke honestly. He said he could lead in emergency. He could defend. He could think through panic. He could continue the journey to find [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). But he was not prepared to lead us through a war born inside a disaster.
->
-> He was a fighter, not a war strategist.
->
-> He was a captain for survival, not for geopolitical madness.
->
-> During the long discussion, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not speak as one voice.
->
-> That made me more afraid.
->
-> Until that day, their mystery had always been in their sameness. Same name. Same body. Same face. Same sudden appearance among the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
->
-> But when the bomb fell, their differences became clearer.
->
-> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said we must continue toward [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) no matter what happened.
->
-> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said no ark would ever reach any archipelago if it ignored the bombs falling between the waves.
->
-> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said nothing. She only took a piece of charcoal and wrote three words on broken wood:
+> But when the bomb fell, their differences became clearer. One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said we must continue toward [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) no matter what happened. Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said no ark would ever reach any archipelago if it ignored the bombs falling between the waves. Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said nothing. She only took a piece of charcoal and wrote three words on broken wood:
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> When [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) admitted that he was not the right person to lead us through a war inside a disaster, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not argue.
+> When [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) admitted that he was not the right person to lead us through a war inside a disaster, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not argue. They only looked at each other. Then, one by one, they voted.
 >
-> They only looked at each other.
+> I still do not know whether they voted as different people, or as one mystery scattered into many bodies. But their votes were counted like everyone else's. That is how I became [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
-> Then, one by one, they voted.
->
-> I still do not know whether they voted as different people, or as one mystery scattered into many bodies.
->
-> But their votes were counted like everyone else's.
->
-> That is how I became [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
->
-> I did not ask for this anger, but I will not throw it away. Anger is dangerous when it becomes a bomb. But anger can become a message when it is tied to a sail.
->
-> That is what we did.
->
-> We took down the old sailcloth of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and covered the ark with a larger sailcloth carrying one message:
+> I did not ask for this anger, but I will not throw it away. Anger is dangerous when it becomes a bomb. But anger can become a message when it is tied to a sail. That is what we did. We took down the old sailcloth of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and covered the ark with a larger sailcloth carrying one message:
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
 > We chose that message because all 1047 men onboard are here through NFT-verified invitations. They minted the invitations. They held them in their wallets. Those invitations allowed them to become passengers of this ark.
 >
-> An NFT did not kill them.
->
-> An NFT did not sink them.
->
-> An NFT did not destroy an ark.
->
-> An NFT became an invitation, a sign, a memory, a ticket, a proof that someone could still be saved.
->
-> So if anything must be dropped into this broken world, drop invitations. Drop messages. Drop artworks. Drop maps. Drop food. Drop help. Drop anything that may save one more life.
+> An NFT did not kill them. An NFT did not sink them. An NFT did not destroy an ark. An NFT became an invitation, a sign, a memory, a ticket, a proof that someone could still be saved. So if anything must be dropped into this broken world, drop invitations. Drop messages. Drop artworks. Drop maps. Drop food. Drop help. Drop anything that may save one more life.
 >
 > [**Drop NFT, not BOMB.**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> After we raised the sail, every passenger helped spread the message.
+> After we raised the sail, every passenger helped spread the message. Some wrote the message on pieces of cloth and tied them to debris. Some placed notes inside bottles and released them to the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Some shouted it to the wind. Some painted it on broken boards. Some tied it to birds that still remembered the sky. Some whispered it to snakes, fish, and other creatures that still survived between the melting waves.
 >
-> Some wrote the message on pieces of cloth and tied them to debris. Some placed notes inside bottles and released them to the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Some shouted it to the wind. Some painted it on broken boards. Some tied it to birds that still remembered the sky. Some whispered it to snakes, fish, and other creatures that still survived between the melting waves.
->
-> We did not know whether the message would reach anyone.
->
-> But it did.
->
-> The first reply did not come from a flag.
->
-> It came through a broken transmission.
->
-> The voice was unclear at first, swallowed by static, wind, and the sound of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) pushing against everything that still floated.
->
-> Then we heard it.
+> We did not know whether the message would reach anyone. But it did. The first reply did not come from a flag. It came through a broken transmission. The voice was unclear at first, swallowed by static, wind, and the sound of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) pushing against everything that still floated. Then we heard it.
 >
 > "_This is [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)._"
 >
-> Everyone on the ark froze.
+> Everyone on the ark froze. Because the voice did not come from any [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) onboard. The transmission came from another vessel. 
 >
-> Because the voice did not come from any [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) onboard.
+> Then another message arrived through a bottle. The handwriting looked too familiar. Another reply came from something tied to a bird. The knot was made in the same strange way one of our [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tied the maps.
 >
-> The transmission came from another vessel.
->
-> Then another message arrived through a bottle. The handwriting looked too familiar.
->
-> Another reply came from something tied to a bird. The knot was made in the same strange way one of our [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tied the maps.
->
-> I asked the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) onboard whether they knew the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) from the other vessel.
->
-> They answered differently.
+> I asked the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) onboard whether they knew the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) from the other vessel. They answered differently. 
 >
 > One said, "_Not yet._"
 >
@@ -430,11 +358,7 @@ coverY: 0
 >
 > One said, "_She heard the same thing._"
 >
-> I asked what she heard.
->
-> The [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) with the torn communication officer uniform pointed at the sailcloth and said:
->
-> "_That._"
+> I asked what she heard. The [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) with the torn communication officer uniform pointed at the sailcloth and said, "_That._"
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >

@@ -312,9 +312,8 @@ coverY: 0
 >
 > Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the one who kept holding the bundle of maps, answered from behind her, "_No. That was sent._"
 >
-> No one asked how she knew. Or maybe everyone wanted to ask, but no one had enough courage to hear the answer. For me, it was another fringe in theory. The land was melting. Time was already broken. The same woman kept appearing from the waves with the same name. And now, before any of us could understand the maps, war had found us in the middle of nowhere.
->
-> Far across the moving surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), a highly advanced ark built by Russia fired a bomb toward another ark that was later known as an ark of Ukraine.
+> No one asked how she knew. Or maybe everyone wanted to ask, but no one had enough courage to hear the answer. For me, it was another fringe in theory. The land was melting. Time was already broken. The same woman kept appearing from the waves with the same name.
+> And now, before any of us could understand the maps, war had found us in the middle of nowhere. Far across the moving surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), a highly advanced ark built by Russia fired a bomb toward another ark that was later known as an ark of Ukraine.
 >
 > I repeat this because my anger still needs a shape. In the middle of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), when every living being is already struggling not to sink, someone still chose to drop a bomb. This is another fringe in theory. When the world was whole, they said war happened because people fought over land. Now there is no land, and war still found a way to float.
 >

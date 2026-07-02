@@ -264,9 +264,9 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Februari 24, 2022
+> Tanggal Meleleh: 24 Februari 2022
 >
-> Pesan:  
+> Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang baru...
 >
 > Aku terpilih melalui voting setelah [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengakui bahwa yang sedang kita hadapi sekarang bukan lagi sekadar bencana alam.
@@ -485,14 +485,14 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Mei 31, 2022
+> Tanggal Meleleh: 31 Mei 2022
 >
-> Pesan:  
+> Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Aku menulis catatan ini pada Mei 31, 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
+> Aku menulis catatan ini pada 31 Mei 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
 >
-> Aku menulis Mei 31 karena semua orang mengingat bahwa ini terjadi pada bulan Mei, tetapi tidak ada yang sepakat tentang tanggalnya. Ada yang bilang Mei 13. Ada yang bilang Mei 15. Ada yang bersikeras bahwa keduanya benar. Ada juga yang sudah tidak peduli, karena setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tanggal tidak lagi selalu menjadi tempat yang bisa dipijak oleh waktu.
+> Aku menulis 31 Mei karena semua orang mengingat bahwa ini terjadi pada bulan Mei, tetapi tidak ada yang sepakat tentang tanggalnya. Ada yang bilang 13 Mei. Ada yang bilang 15 Mei. Ada yang bersikeras bahwa keduanya benar. Ada juga yang sudah tidak peduli, karena setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tanggal tidak lagi selalu menjadi tempat yang bisa dipijak oleh waktu.
 >
 > Jadi aku memilih hari terakhir di bulan Mei.
 >

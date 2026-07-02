@@ -746,11 +746,579 @@ coverY: 0
 
 #### Babi Meleleh
 
-> init...
+> Serpihan yang Dipulihkan...
 >
-> [**(28) PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
+> Sumber: Tidak Diketahui
 >
-> **...**
+> Pesan:\
+> Hari ini kita tidak membutuhkan emas. Kita tidak membutuhkan bendera. Kita tidak membutuhkan takhta. Kita tidak membutuhkan perbatasan.
+>
+> Kita membutuhkan makanan.
+>
+> ---
+>
+> Sumber: Panggilan radio yang rusak
+>
+> Pesan:\
+> Apakah ada orang di luar sana yang masih makan? Tolong jawab. Apa yang kalian makan sekarang? Apa yang kalian masak? Apa yang kalian berikan kepada anak-anak kalian? Apa yang kalian berikan kepada orang-orang tua kalian? Apa yang kalian berikan kepada mereka yang sudah tidak bisa mengunyah?
+>
+> Tolong jawab.
+>
+> ---
+>
+> Sumber: Kayu tercoret yang ditemukan menempel di sisi [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Pesan:\
+> Jangan melihat temanmu seperti makanan.
+>
+> Belum.
+>
+> Tolong.
+>
+> ---
+>
+> Sumber: Catatan di dalam botol
+>
+> Pesan:\
+> Kami melihat salah satu dari kami menawarkan bagian tubuhnya sendiri kepada seseorang yang ia cintai.
+>
+> Kami tidak menulis ini untuk mempermalukannya.
+>
+> Kami menulis ini karena rasa lapar sudah mulai berbicara lebih keras daripada kami.
+>
+> ---
+>
+> Sumber: [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Tidak Diketahui
+>
+> Pesan:\
+> Kapsul-kapsul itu hampir habis.
+>
+> Kita harus belajar membuat makanan lagi sebelum makanan hanya menjadi ingatan.
+
+***
+
+> Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> Tanggal Meleleh: Tidak diketahui, setelah 31 Mei 2022
+>
+> Pesan:\
+> Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> Aku tidak tahu tanggal pasti catatan ini.
+>
+> Aku hanya tahu bahwa ini terjadi setelah kelinci-kelinci itu, setelah nyanyian [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) masuk ke dalam angin, setelah tujuh kendaraan penyelamat menjadi satu bahtera yang lebih besar, dan setelah kami mulai memahami bahwa selamat dari bencana tidak sama dengan menjalani hidup di dalamnya.
+>
+> Awalnya, [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) mencuri pijakan dari bawah kaki kami.
+>
+> Lalu perang mencuri kesunyian dari telinga kami.
+>
+> Lalu rasa lapar mulai mencuri bentuk pikiran kami.
+>
+> Rasa lapar tidak seperti bom.
+>
+> Bom jatuh sekali, menghancurkan apa yang dikenainya, lalu meninggalkan asap.
+>
+> Rasa lapar menetap.
+>
+> Rasa lapar menunggu di dalam perut.
+>
+> Rasa lapar duduk di samping setiap diskusi.
+>
+> Rasa lapar mendengarkan setiap voting.
+>
+> Rasa lapar memperhatikan setiap persahabatan.
+>
+> Rasa lapar mengubah cara satu makhluk hidup memandang makhluk hidup lainnya.
+>
+> Itulah bagian yang paling menakutkan.
+>
+> Bukan gelombangnya.
+>
+> Bukan bomnya.
+>
+> Bahkan bukan ketiadaan daratan.
+>
+> Bagian yang paling menakutkan adalah momen ketika beberapa mata mulai menanyakan pertanyaan yang tidak ingin diucapkan oleh mulut mana pun:
+>
+> Apa yang masih bisa dimakan?
+>
+> Kami menerima pesan-pesan dari luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang menanyakan hal yang sama.
+>
+> Sebagian datang melalui panggilan radio yang rusak.
+>
+> Sebagian datang melalui botol.
+>
+> Sebagian tergores pada wadah plastik.
+>
+> Sebagian ditulis di kain yang diikatkan pada ranting-ranting yang mengapung.
+>
+> Sebagian tidak lebih dari suara yang terekam pada alat-alat yang masih memiliki sedikit baterai.
+>
+> Semuanya membawa ketakutan yang sama:
+>
+> makanan sedang menghilang.
+>
+> Benih-benih basah.
+>
+> Tepung membusuk.
+>
+> Beras menjadi lumpur.
+>
+> Garam menjadi terlalu banyak dan tidak cukup pada saat yang sama.
+>
+> Ikan tidak lagi tahu di mana air berakhir dan daratan dimulai.
+>
+> Burung-burung menjadi langka.
+>
+> Kelinci-kelinci yang disebut [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) sudah menjadi luka di dalam ingatan kami.
+>
+> Kami gagal menjaga mereka.
+>
+> Kami melihat mereka sebagai keberuntungan, permainan, harapan, sesuatu yang kecil yang membuat kami tertawa. Lalu rasa lapar datang, dan banyak orang mulai melihat mereka sebagai daging. Ada yang berpendapat bahwa mereka lebih mudah diterima. Ada yang bilang mereka bersih. Ada yang bilang mereka diperbolehkan. Ada yang bilang mereka lebih aman bagi hati daripada memakan sesuatu yang dilarang.
+>
+> Tapi kami tidak membangun masa depan dari mereka.
+>
+> Kami mengonsumsi sesuatu yang seharusnya dilindungi.
+>
+> Kami mengambil sebelum kami belajar membiakkan.
+>
+> Kami makan sebelum kami memahami cara menjaga kehidupan agar terus berlanjut.
+>
+> Ketika penyesalan itu menjadi jelas, hampir tidak ada yang bisa mengatakan dengan pasti bahwa [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) masih tersisa.
+>
+> Itu adalah keanehan lain dalam teori:
+>
+> keberuntungan bisa menghilang ketika diperlakukan hanya sebagai makanan.
+>
+> Para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memiliki kapsul darurat.
+>
+> Ada yang bilang kapsul itu dibuat untuk perang.
+>
+> Ada yang bilang kapsul itu dibuat untuk hutan yang dalam.
+>
+> Ada yang bilang kapsul itu dibuat untuk tentara, astronaut, pelaut, atau orang-orang yang dipaksa berada jauh dari peradaban.
+>
+> Beberapa [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menyebutnya makanan.
+>
+> Beberapa [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menolak menyebutnya makanan.
+>
+> Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata:
+>
+> "_Sebuah kapsul bisa menunda rasa lapar. Ia tidak bisa membangun kembali sebuah dapur._"
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata:
+>
+> "_Dapur bukan ruangan. Dapur adalah peradaban yang sedang berusaha untuk tidak memakan dirinya sendiri._"
+>
+> Kapsul-kapsul mereka semakin menipis.
+>
+> Diskusi mereka menjadi semakin panjang.
+>
+> Mereka menghancurkan apa yang tersisa.
+>
+> Mereka mengeringkan apa yang masih bisa dikeringkan.
+>
+> Mereka mencampur bubuk-bubuk.
+>
+> Mereka menguji hal-hal pahit.
+>
+> Mereka berdebat tentang bau, racun, garam, busuk, dan ingatan.
+>
+> Mereka mencoba membuat sesuatu yang bisa menggantikan makanan, tetapi semakin mereka mencoba, semakin jelas jadinya:
+>
+> kami tidak hanya membutuhkan sesuatu untuk ditelan.
+>
+> Kami membutuhkan sesuatu yang bisa terus berlanjut.
+>
+> Lalu pesan-pesan mulai berubah.
+>
+> Awalnya, pesan itu datang sebagai rumor.
+>
+> Lalu sebagai sinyal yang berulang.
+>
+> Lalu sebagai serpihan-serpihan yang terkonfirmasi dari berbagai arah.
+>
+> Ada makhluk hidup di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Bukan ikan.
+>
+> Bukan ular.
+>
+> Bukan burung yang tenggelam.
+>
+> Babi.
+>
+> Entah bagaimana, di kedalaman [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ada kantong-kantong udara.
+>
+> Sebagian kosong.
+>
+> Sebagian membawa bau lama dari ruangan-ruangan yang terperangkap.
+>
+> Sebagian membawa napas hewan-hewan yang seharusnya mati bersama peternakan, hutan, dan desa-desa.
+>
+> Di dalam sebagian kantong udara itu, babi-babi berhasil bertahan hidup.
+>
+> Sebagian sendirian.
+>
+> Sebagian berkelompok.
+>
+> Sebagian tampak seperti babi ternak.
+>
+> Sebagian tampak seperti babi hutan.
+>
+> Sebagian tampak seolah-olah telah menjadi sesuatu di antara ingatan dan lumpur.
+>
+> Penemuan pertama tidak datang dari pencarian resmi.
+>
+> Penemuan itu datang dari sebuah teriakan.
+>
+> Mereka yang tinggal di atas permukaan berteriak kepada mereka yang menyelam ke bawah:
+>
+> "_BOII! BOII!_"
+>
+> Para penyelam menghilang ke dalam permukaan tebal [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
+>
+> Kami menunggu.
+>
+> Tali-tali bergetar.
+>
+> Lumpur bergelembung.
+>
+> Sebagian kembali sambil terbatuk tanpa membawa apa pun.
+>
+> Sebagian kembali sambil menangis setelah hanya menemukan kantong-kantong udara kosong.
+>
+> Lalu, dari bawah, sebuah jawaban terdengar:
+>
+> "_OiOi! OiOi!_"
+>
+> Mereka telah menemukannya.
+>
+> Babi-babi di dalam kantong udara.
+>
+> Setelah itu, panggilan itu menjadi sebuah sistem.
+>
+> Dari atas:
+>
+> "_BOII! BOII!_"
+>
+> Dari bawah, jika kehidupan ditemukan:
+>
+> "_OiOi! OiOi!_"
+>
+> Begitulah nama itu menyebar ke seluruh bahtera:
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
+>
+> Bukan sekadar babi.
+>
+> Bukan hanya daging.
+>
+> Bukan hanya hewan yang terperangkap di bawah lumpur.
+>
+> Mereka menjadi panggilan dan jawaban.
+>
+> Tanda bahwa sesuatu yang hidup masih tersembunyi di bawah kematian permukaan.
+>
+> Tapi menemukan mereka tidak langsung menyelamatkan kami.
+>
+> Menemukan mereka hampir memecah kami.
+>
+> Perdebatannya menjadi lebih berat daripada penyelamannya.
+>
+> Sebagian penumpang berkata babi adalah sesuatu yang dilarang.
+>
+> Sebagian berkata bencana telah mengubah hukum bertahan hidup.
+>
+> Sebagian berkata keadaan darurat memperbolehkan apa yang ditolak hari-hari biasa.
+>
+> Sebagian berkata keyakinan tidak boleh ditulis ulang oleh rasa lapar.
+>
+> Sebagian berkata menolak satu-satunya sumber makanan yang dapat diperbarui akan mengubah ketaatan menjadi kematian massal.
+>
+> Sebagian berkata kami masih tidak berhak memutuskan selama mungkin masih ada satu [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang tersisa.
+>
+> Sebagian berkata justru itulah kesalahannya:
+>
+> kami sudah mengubah [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) menjadi makanan sebelum mengubahnya menjadi masa depan.
+>
+> Selama berjam-jam, bahtera penuh dengan suara.
+>
+> Halal.
+>
+> Haram.
+>
+> Darurat.
+>
+> Keyakinan.
+>
+> Rasa lapar.
+>
+> Pembiakan.
+>
+> Rasa malu.
+>
+> Bertahan hidup.
+>
+> Kematian.
+>
+> Tidak ada kata yang berdiri sendiri.
+>
+> Setiap kata membawa perut di belakangnya.
+>
+> Setiap perut membawa keyakinan di atasnya.
+>
+> Aku tidak ingin membuat hukum dari amarah.
+>
+> Aku tidak ingin membuat hukum dari rasa lapar.
+>
+> Aku tidak ingin membuat hukum yang memaksa satu mulut mengkhianati sesuatu yang menjaga mulut itu tetap manusia.
+>
+> Tapi aku juga tidak bisa memimpin sebuah bahtera tempat makhluk-makhluk hidup perlahan mulai membayangkan satu sama lain sebagai makanan.
+>
+> Jadi kami berdiskusi.
+>
+> Kami berdebat.
+>
+> Kami mendengarkan.
+>
+> Kami gagal mendengarkan.
+>
+> Kami kembali ke diskusi.
+>
+> Kami bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> Mereka tidak menjawab sebagai satu suara.
+>
+> Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata:
+>
+> "_Jangan meminta rasa lapar menjadi bermoral. Bangun sistem sebelum rasa lapar menjadi raja._"
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata:
+>
+> "_Keadaan darurat tidak menghapus keyakinan. Keadaan darurat menguji apakah keyakinan bisa melindungi kehidupan tanpa berubah menjadi kekejaman._"
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata:
+>
+> "_Jika kalian memakan semuanya, kalian mengakhiri cerita. Jika kalian membiakkan apa yang bisa hidup, kalian menulis halaman berikutnya._"
+>
+> Lalu satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), yang sama dengan yang dulu pernah bertanya tentang [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang menggigit wortel dan memakai topi hot dog, berkata:
+>
+> "_Kalian sudah tahu apa yang terjadi ketika kalian tidak berpikir melewati makanan pertama._"
+>
+> Tidak ada yang menjawabnya.
+>
+> Karena dia benar.
+>
+> Kami melakukan voting.
+>
+> Keputusan itu tidak sederhana.
+>
+> Voting itu tidak menghapus keyakinan siapa pun.
+>
+> Voting itu tidak memerintahkan setiap mulut untuk makan.
+>
+> Voting itu menetapkan hukum darurat bagi bahtera:
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) akan diselamatkan, dilindungi, dibiakkan, dan digunakan sebagai makanan bertahan hidup berdasarkan kesepakatan darurat.
+>
+> Kami tidak akan mengulangi kesalahan terhadap [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
+>
+> Kami tidak akan mengonsumsi tanpa melanjutkan.
+>
+> Kami tidak akan berburu tanpa membiakkan.
+>
+> Kami tidak akan mengubah rasa lapar menjadi pemerintahan.
+>
+> Kami merayakan keputusan itu, bukan karena babi menjadi makanan, tetapi karena konflik yang bisa menghancurkan bahtera berubah menjadi kesepakatan yang menjaga bahtera tetap hidup.
+>
+> Pesan-pesan dikirim ke luar.
+>
+> Panggilan itu menyebar:
+>
+> "_BOII! BOII!_"
+>
+> Jawaban itu menyebar:
+>
+> "_OiOi! OiOi!_"
+>
+> Kendaraan-kendaraan penyelamat lain mencoba melakukan hal yang sama.
+>
+> Sebagian berhasil untuk sementara.
+>
+> Sebagian besar gagal.
+>
+> Di luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), banyak yang masih bisa menemukan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) di dalam kantong-kantong udara di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tetapi hampir tidak ada yang bisa menjaga mereka tetap berkembang biak.
+>
+> Hewan-hewan itu melemah.
+>
+> Sebagian berhenti makan.
+>
+> Sebagian menolak air.
+>
+> Sebagian menjadi sakit setelah dibawa ke atas permukaan.
+>
+> Sebagian melarikan diri kembali ke dalam lumpur.
+>
+> Sebagian mati sebelum memberikan kehidupan kepada generasi berikutnya.
+>
+> Tapi di bahtera kami, mereka hidup.
+>
+> Di bahtera kami, mereka berkembang biak.
+>
+> Di bahtera kami, mereka menjadi lebih sehat daripada yang kami perkirakan.
+>
+> Keberhasilan ini membuatku curiga.
+>
+> Para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mengetahui sesuatu.
+>
+> Aku melihatnya dari cara mereka memperhatikan air.
+>
+> Aku melihatnya dari cara mereka mencicipi apa yang mereka berikan kepada hewan-hewan itu.
+>
+> Aku melihatnya dari cara mereka menghentikan beberapa penumpang yang mencoba mengubah tong-tong daur ulang.
+>
+> Aku bertanya kepada mereka.
+>
+> Awalnya, mereka diam.
+>
+> Lalu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek berkata:
+>
+> "_Bahteramu tidak hanya membawa penyintas._"
+>
+> Aku bertanya apa lagi yang dibawanya.
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain menjawab:
+>
+> "_Entah Air Apa._"
+>
+> Aku paham sebelum dia mengatakan sisanya.
+>
+> Air daur ulang [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) telah terkontaminasi jejak **Cairan Tanpa Nama**.
+>
+> Cairan dari negeri **Entah Air Apa**.
+>
+> Cairan yang dulu membawa kedamaian bagi mereka yang meminumnya.
+>
+> Cairan yang tidak bisa menyelamatkan **Pak BROY** dari ketakutan, tetapi mungkin bisa membantu bahtera menjaga sesuatu tetap hidup.
+>
+> Itulah mengapa [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) hidup lebih baik di sini.
+>
+> Itulah mengapa mereka lebih cepat tenang.
+>
+> Itulah mengapa mereka berkembang biak.
+>
+> Itulah mengapa keselamatan kami mulai terlihat seperti sebuah rahasia.
+>
+> Aku bertanya apakah kami harus memberitahukannya kepada semua orang.
+>
+> Para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) saling menatap.
+>
+> Satu berkata:
+>
+> "_Jika ini menjadi gosip, mereka akan meminum sistemnya sebelum sistem itu bisa memberi mereka makan._"
+>
+> Yang lain berkata:
+>
+> "_Air kedamaian harus menjadi infrastruktur, bukan kepanikan._"
+>
+> Yang lain berkata:
+>
+> "_Jaga ini antara Kapten dan para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sampai bahtera belajar melindungi sesuatu yang sedang melindunginya._"
+>
+> Jadi aku menjaga rahasia itu.
+>
+> Aku menuliskannya di sini karena catatan bukan gosip.
+>
+> Catatan adalah beban yang diteruskan kepada Kapten berikutnya.
+>
+> Untuk para penerusku:
+>
+> Lindungi air.
+>
+> Lindungi pembiakan.
+>
+> Lindungi mereka yang tidak bisa memakan apa yang dimakan orang lain.
+>
+> Lindungi kesepakatan.
+>
+> Lindungi perbedaan antara keadaan darurat dan kerakusan.
+>
+> Di luar sana, pesan-pesan menjadi semakin putus asa.
+>
+> Beberapa kendaraan penyelamat mengirim lokasi, meminta kami datang dan menyelamatkan mereka.
+>
+> Tapi bentuk Bumi telah berubah.
+>
+> Koordinat lama berbohong.
+>
+> Peta-peta lama tenggelam.
+>
+> Arah berubah menjadi dugaan.
+>
+> Pesan-pesan tiba melalui kebetulan, keberuntungan, angin, hewan, botol, sinyal yang rusak, dan kekuatan apa pun yang masih mengizinkan satu kehidupan memanggil kehidupan lainnya.
+>
+> Kami mencoba menemukan mereka.
+>
+> Kami berkali-kali gagal.
+>
+> Sebagian mungkin masih menunggu.
+>
+> Sebagian mungkin sudah tidak sanggup menunggu.
+>
+> Sampai catatan ini ditulis, aku khawatir bahwa di luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) menjadi semakin sulit ditemukan.
+>
+> Kantong-kantong udara semakin kosong.
+>
+> Para pemburu semakin lelah.
+>
+> Para peternak gagal.
+>
+> Rasa lapar kembali ke mata.
+>
+> Inilah yang kupelajari:
+>
+> Makanan bukan hanya makanan.
+>
+> Makanan adalah hukum.
+>
+> Makanan adalah keyakinan.
+>
+> Makanan adalah perdebatan.
+>
+> Makanan adalah teknologi.
+>
+> Makanan adalah ingatan.
+>
+> Makanan adalah infrastruktur.
+>
+> Makanan adalah ekonomi pertama setelah berakhirnya daratan.
+>
+> Jika kami tidak bisa memproduksi makanan, kami akan mengonsumsi satu sama lain.
+>
+> Jika kami tidak bisa sepakat tentang makanan, suara kami akan berubah menjadi pisau.
+>
+> Jika kami tidak bisa melindungi sesuatu yang mampu terus hidup, keselamatan akan berakhir setelah satu kali makan.
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengajari kami bahwa kehidupan di bawah permukaan masih bisa menjawab ketika dipanggil dengan benar.
+>
+> Dari atas:
+>
+> "_BOII! BOII!_"
+>
+> Dari bawah:
+>
+> "_OiOi! OiOi!_"
+>
+> Untuk semua penerusku, dan untuk semua yang membaca catatan ini:
+>
+> Jangan menunggu sampai rasa lapar menjadi Kapten kalian.
+>
+> Bangun sistem sebelum perut menulis hukum.
+>
+> Beri makan yang hidup tanpa membunuh masa depan.
+>
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
 
 ***
 

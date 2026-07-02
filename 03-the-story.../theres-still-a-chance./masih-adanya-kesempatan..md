@@ -313,9 +313,9 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain, yang masih memegang bundel peta, menjawab dari belakangnya, "Tidak. Itu adalah kiriman."
 >
-> Tidak ada yang bertanya bagaimana dia tahu. Atau mungkin semua orang ingin bertanya, tapi tidak ada yang punya cukup keberanian untuk mendengar jawabannya. Bagiku, itu adalah sesuatu yang aneh dalam teori yang lainnya. Daratan sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama. Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah.
->
-> Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bom ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
+> Tidak ada yang bertanya bagaimana dia tahu. Atau mungkin semua orang ingin bertanya, tapi tidak ada yang punya cukup keberanian untuk mendengar jawabannya. Bagiku, itu adalah sesuatu yang aneh dalam teori yang lainnya. Daratan sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama.
+> 
+> Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah. Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bom ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
 >
 > Aku mengulanginya karena amarahku masih membutuhkan bentuk. Di tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ketika setiap makhluk hidup sudah berjuang agar tidak tenggelam, masih ada yang memilih untuk menjatuhkan bom. Ini adalah keanehan dalam teori yang lain lagi. Ketika dunia masih utuh, mereka bilang perang terjadi karena manusia berebut tanah. Sekarang tidak ada lagi tanah, dan perang tetap menemukan cara untuk mengapung.
 >

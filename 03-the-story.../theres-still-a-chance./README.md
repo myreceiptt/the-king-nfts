@@ -1369,7 +1369,7 @@ coverY: 0
 
 ### There is The Rich Island…
 
-#### The Farmers of [BANANOW.LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+#### The Farmers of [BANANOW LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 
 > init...
 >

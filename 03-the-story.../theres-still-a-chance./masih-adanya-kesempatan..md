@@ -264,7 +264,7 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: February 24, 2022
+> Tanggal Meleleh: Februari 24, 2022
 >
 > Pesan:  
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang baru...
@@ -357,7 +357,7 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> Kami memilih pesan itu karena 1047 laki-laki di atas bahtera ini ada di sini berkat undangan yang diverifikasi menggunakan NFT. Mereka mencetak undangan itu. Mereka menyimpannya di wallet mereka. Undangan itu membuat mereka bisa menjadi penumpang bahtera ini.
+> Kami memilih pesan itu karena 1047 laki-laki di atas bahtera ini ada di sini berkat undangan yang diverifikasi menggunakan NFT. Mereka mencetak undangan itu. Mereka menyimpannya di dompet mereka. Undangan itu membuat mereka bisa menjadi penumpang bahtera ini.
 >
 > NFT tidak membunuh mereka.
 >
@@ -485,18 +485,18 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: May 31, 2022
+> Tanggal Meleleh: Mei 31, 2022
 >
 > Pesan:  
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Aku menulis catatan ini pada May 31, 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
+> Aku menulis catatan ini pada Mei 31, 2022, bukan karena aku yakin semua ini terjadi tepat hari ini.
 >
-> Aku menulis May 31 karena semua orang mengingat bahwa ini terjadi pada bulan May, tetapi tidak ada yang sepakat tentang tanggalnya. Ada yang bilang May 13. Ada yang bilang May 15. Ada yang bersikeras bahwa keduanya benar. Ada juga yang sudah tidak peduli, karena setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tanggal tidak lagi selalu menjadi tempat yang bisa dipijak oleh waktu.
+> Aku menulis Mei 31 karena semua orang mengingat bahwa ini terjadi pada bulan Mei, tetapi tidak ada yang sepakat tentang tanggalnya. Ada yang bilang Mei 13. Ada yang bilang Mei 15. Ada yang bersikeras bahwa keduanya benar. Ada juga yang sudah tidak peduli, karena setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tanggal tidak lagi selalu menjadi tempat yang bisa dipijak oleh waktu.
 >
-> Jadi aku memilih hari terakhir di bulan May.
+> Jadi aku memilih hari terakhir di bulan Mei.
 >
-> Setidaknya catatan ini tidak akan membiarkan May menghilang.
+> Setidaknya catatan ini tidak akan membiarkan Mei menghilang.
 >
 > Gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) masih bergemuruh. Suara bom masih datang dari kejauhan. Sesekali udara masih membawa desing tajam peluru, bahkan ketika kami tidak lagi bisa melihat siapa yang menembakkannya, siapa yang menerimanya, dan tanah macam apa yang mereka kira masih sedang mereka perebutkan.
 >
@@ -532,7 +532,7 @@ coverY: 0
 >
 > Aku tidak tahu siapa yang mengajari mereka nama itu.
 >
-> Aku tidak tahu apakah nama itu datang dari ingatan, gossip, ketakutan, harapan, atau keanehan dalam teori yang lain.
+> Aku tidak tahu apakah nama itu datang dari ingatan, gosip, ketakutan, harapan, atau keanehan dalam teori yang lain.
 >
 > Tapi sejak saat itu, aku menuliskannya di catatan ini sebagai:
 >
@@ -554,7 +554,7 @@ coverY: 0
 >
 > Seperti biasa, tidak ada yang bisa membuktikan apa pun.
 >
-> Seperti biasa, semua orang berbicara seolah-olah gossip sudah menjadi sebuah sistem.
+> Seperti biasa, semua orang berbicara seolah-olah gosip sudah menjadi sebuah sistem.
 >
 > Aku mendengarkan semuanya dan hanya bisa menulis kesimpulanku sendiri:
 >
@@ -582,7 +582,7 @@ coverY: 0
 >
 > Lalu semua orang mulai berbicara lagi, karena kesunyian tidak pernah bertahan lama di atas bahtera yang penuh dengan penyintas.
 >
-> Sore lainnya, di dekat buritan bahtera, ketika angin tidak terlalu kejam dan gelombang sedang berpura-pura lembut, salah satu [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tiba-tiba bertanya:
+> Sore lainnya, di dekat buritan bahtera, ketika angin tidak terlalu kejam dan gelombang sedang berpura-pura lembut, salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tiba-tiba bertanya:
 >
 > "_Sudah melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang menggigit wortel dan memakai topi hot dog?_"
 >
@@ -690,9 +690,9 @@ coverY: 0
 >
 > Lagi-lagi, tidak ada yang mengaku menuliskannya.
 >
-> Kami tidak tahu apakah SOL berarti sun, salt, signal, soul, sale, atau sesuatu dari semesta yang belum memperkenalkan dirinya.
+> Kami tidak tahu apakah SOL berarti matahari, garam, sinyal, jiwa, penjualan (sun, salt, signal, soul, sale), atau sesuatu dari semesta yang belum memperkenalkan dirinya.
 >
-> Tapi angka itu terus diulang dalam gossip.
+> Tapi angka itu terus diulang dalam gosip.
 >
 > Ada yang bilang itu adalah volume keberuntungan.
 >
@@ -802,7 +802,7 @@ coverY: 0
 
 ### Ada Pulau yang Gemah Ripah...
 
-#### Para Petani di [BANANOW.LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+#### Para Petani di [BANANOW LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 
 > init...
 >

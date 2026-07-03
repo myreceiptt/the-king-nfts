@@ -292,7 +292,7 @@ coverY: 0
 >
 > I was chosen by vote after [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) admitted that what we are facing now is no longer only a natural disaster.
 >
-> The Melting Land is already enough to make all living beings lose their footing. There is no more land to stand on. There is no more sea that behaves like sea. There is no more clear border between land and water. Everything is melting, sinking, shaking, and swallowing what was once called civilization.
+> [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) is already enough to make all living beings lose their footing. There is no more land to stand on. There is no more sea that behaves like sea. There is no more clear border between land and water. Everything is melting, sinking, shaking, and swallowing what was once called civilization.
 >
 > States have collapsed. Governments have disappeared from the surface. The old international authorities are silent, broken, unreachable, or maybe already drowned. The names of countries still exist in our memories, but their hands can no longer reach those who are floating on debris, boats, balloons, broken roofs, survival ships, and whatever can still carry life above [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >

@@ -814,7 +814,9 @@ coverY: 0
 >
 > Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_The body is the wallet. The blood is the signature. The intention is the key._"
 >
-> I wrote that down even though I did not fully understand it. Perhaps future captains will. What I know is this:
+> I wrote that down even though I did not fully understand it. Perhaps future captains will.
+>
+> What I know is this:
 >
 > The [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) changed the ark. The divers returned more often. The repairers survived longer. The water barrels became safer. The food division worked with fewer injuries.
 >

@@ -734,7 +734,7 @@ coverY: 0
 >
 > I was called after the first formation had ended. When I arrived, [**ROTY BROI Passenger (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) stood inside a closed room with one [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), several sealed containers, a small tool I had never seen before, and the barrel of water he had contaminated. He looked ashamed, fascinated, frightened, and alive in a way I had never seen in him.
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had already taken a small sample from the armor. She said, "_Ink remembers shape. Blood remembers owner. Nameless Liquid remembers peace. Together, they are trying to decide what protection means._"
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had already taken a small sample from the armor. She said, "_Ink remembers shape. Blood remembers owner. **Nameless Liquid** remembers peace. Together, they are trying to decide what protection means._"
 >
 > That was her first explanation. It was not enough. So [**ROTY BROI Passenger (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) began to test it. He learned that the armor was not made from the water alone. Recycled water contaminated by **Nameless Liquid** was only the living medium. The tattoo ink had carried shape, symbol, habit, memory, and identity. His blood had given the armor a rightful body. His fear had almost turned it into a weapon. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)'s command to think of protection had pulled it away from that direction.
 >

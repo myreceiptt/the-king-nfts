@@ -478,8 +478,6 @@ coverY: 0
 > Maybe fortune is not something [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) gives.
 >
 > Maybe fortune is something we become capable of receiving after we choose to keep paying attention.
->
-> [**Luffy The Rabbit**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
 
 ***
 
@@ -666,8 +664,6 @@ coverY: 0
 > From below, "_OiOi! OiOi!_"
 >
 > To all my successors, and to all who read this log. Do not wait until hunger becomes your captain. Build the system before the stomach writes the law. Feed the living without killing the future.
->
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
 
 ***
 
@@ -853,8 +849,6 @@ coverY: 0
 > Do not let fear design your weapons. Let care design your limits. Let the hand that wants to harm become heavy. Let the intention to kill melt before it reaches another living being.
 >
 > Protect the water. Protect the food. Protect the work. Protect the weak without turning protection into a throne. Protect the living without training the future to worship war.
->
-> [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)
 
 ***
 

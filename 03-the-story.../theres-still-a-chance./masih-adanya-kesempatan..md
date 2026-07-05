@@ -479,8 +479,6 @@ coverY: 0
 > Mungkin rezeki bukan sesuatu yang diberikan [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
 >
 > Mungkin rezeki adalah sesuatu yang baru sanggup kita terima setelah kita memilih untuk tetap memperhatikan.
->
-> [**Luffy si Kelinci**](/02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)
 
 ***
 
@@ -667,8 +665,6 @@ coverY: 0
 > Dari bawah, "_OiOi! OiOi!_"
 >
 > Untuk semua penerusku, dan untuk semua yang membaca catatan ini. Jangan menunggu sampai rasa lapar menjadi Kapten kalian. Bangun sistem sebelum perut menulis hukum. Beri makan yang hidup tanpa membunuh masa depan.
->
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
 
 ***
 
@@ -854,8 +850,6 @@ coverY: 0
 > Jangan biarkan rasa takut merancang senjata kalian. Biarkan kepedulian merancang batas kalian. Biarkan tangan yang ingin mencelakai menjadi berat. Biarkan niat untuk membunuh meleleh sebelum mencapai makhluk hidup lainnya.
 >
 > Lindungi air. Lindungi makanan. Lindungi kerja. Lindungi yang lemah tanpa mengubah perlindungan menjadi takhta. Lindungi yang hidup tanpa melatih masa depan untuk memuja perang.
->
-> [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)
 
 ***
 

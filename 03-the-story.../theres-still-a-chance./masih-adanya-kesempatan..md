@@ -861,11 +861,207 @@ coverY: 0
 
 #### Setan Meleleh
 
-> init...
+> Tanggal Siaran: Tidak Diketahui
 >
-> [**(26.1) Satans PFP**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)
+> Penyiar: Penerima Pengakuan Yang Rusak
 >
-> **...**
+> Subjek: Para pembisik kehilangan pekerjaannya.
+>
+> Pesan:\
+> Sebelum [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), semua makhluk hidup sudah mengetahui teori lama tentang para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) adalah para pembisik. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) membengkokkan niat. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengubah rasa takut menjadi kekejaman, rasa lapar menjadi pencurian, kekuasaan menjadi dominasi, dan bertahan hidup menjadi alasan untuk menyakiti makhluk lain.
+>
+> Namun sejak rahasia [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) diketahui, para pembisik mulai kehilangan pekerjaannya.
+>
+> Tidak dibutuhkan bisikan ketika orang-orang mulai menjarah. Tidak dibutuhkan bisikan ketika orang-orang bertopeng membawa linggis dan bendera. Tidak dibutuhkan bisikan ketika orang-orang mendorong yang lemah dari puing-puing yang mengapung, menyembunyikan makanan dari anak-anak, berbohong tentang peta, menyembah senjata, menembakkan bom di atas dunia yang sudah kehilangan daratan, lalu menyebut semua itu sebagai bertahan hidup.
+>
+> Para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) kebingungan. Sebagian tersinggung. Sebagian terdiam. Sebagian mulai takut.
+>
+> Salah satu transmisi menyebutnya:
+>
+> ketika manusia tidak lagi membutuhkan [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) untuk berbuat jahat, [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai terasa hampir seperti manusia. Atau manusia yang mulai terasa hampir seperti [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)!?!?
+>
+> ***
+>
+> Tanggal Siaran: Tidak Diketahui
+>
+> Sumber: Suara Dari Bawah Lumpur Yang Mendidih
+>
+> Subjek: Neraka tidak berguna bagi penumpang curian.
+>
+> Pesan:\
+> [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak dapat membawa makhluk hidup ke neraka hanya dengan berdiri di dekat makhluk hidup itu. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak dapat menyeret manusia ke neraka hanya karena dunia telah rusak. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) hanya dapat membawa sesuatu yang telah menjawab bisikannya.
+>
+> Namun setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), makhluk hidup sudah menjawab dirinya sendiri. Mereka membuat bisikannya sendiri. Mereka membangun alasannya sendiri.
+>
+> Mereka mengubah rasa lapar menjadi hukum sebelum siapa pun menggoda mereka. Mereka mengubah rasa takut menjadi pemerintahan sebelum siapa pun menobatkan mereka. Mereka mengubah perlindungan menjadi kendali sebelum siapa pun mengajari mereka cara berkuasa.
+>
+> Maka gerbang neraka dipenuhi [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang tidak membawa apa-apa. Mereka kembali dengan tangan kosong. Mereka kembali dipermalukan. Mereka kembali membawa laporan yang tidak masuk akal.
+>
+> Salah satu dari mereka berkata, "_Aku tidak membisikkan apa pun, tapi dia tetap melakukannya._"
+>
+> Yang lain berkata, "_Aku datang terlambat. Kekejamannya sudah lebih tua dari suaraku._"
+>
+> Yang lain berkata, "_Mereka telah menjadi makhluk yang membisiki dirinya sendiri._"
+>
+> ***
+>
+> Tanggal Siaran: Tidak Diketahui
+>
+> Sumber: Topeng Hangus Yang Ditemukan Di Atas Puing Mengapung
+>
+> Subjek: Para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) naik.
+>
+> Pesan:\
+> Ketika neraka tidak lagi memahami laporan-laporan itu, semua [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) diperintahkan untuk naik ke dunia yang rusak.
+>
+> [**Jiang Shi**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) bergerak seperti mayat yang tidak menemukan kematian.
+>
+> [**Saw**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) membawa bunyi keputusan yang dipotong-potong menjadi alasan.
+>
+> [**Lunatic**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tertawa sampai tawanya berubah menjadi kepanikan.
+>
+> [**PCB**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mencoba membaca godaan seperti rangkaian sirkuit.
+>
+> [**Kitsune**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengenakan kebohongan sebagai topeng, hanya untuk menemukan bahwa manusia telah membuat topeng yang lebih baik.
+>
+> [**Prediction**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mencoba memprediksi dosa berikutnya, tetapi dosa berikutnya sudah terjadi.
+>
+> [**Cyber**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mencari niat yang rusak di antara sinyal-sinyal yang tersisa.
+>
+> [**Pirate**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mencari harta karun, tetapi semua harta telah berubah menjadi makanan, air, tali, obat-obatan, dan kepercayaan.
+>
+> [**Regina**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), [**Rex**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), [**King**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), dan [**Knave**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berdebat tentang siapa yang harus memerintah reruntuhan, tetapi reruntuhan tidak memiliki takhta.
+>
+> [**Farmer**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menatap benih-benih yang mengapung di atas lumpur dan tidak tahu apakah menanam adalah godaan atau harapan.
+>
+> [**Rabbit**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mendengar cerita tentang [**Luffy the Rabbit**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.2.-luffy-the-rabbit.md) dan mulai curiga kepada makhluk-makhluk kecil yang membawa makna lebih besar daripada monster.
+>
+> [**Jahannam**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) dan [**Zamharrir**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) membawa ingatan tentang panas dan dingin, tetapi panas dan dingin sudah berada di dalam hati para penyintas.
+>
+> [**Scanner**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) memindai permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) dan tidak menemukan pemisahan yang bersih antara dosa dan bertahan hidup.
+>
+> [**Shiver**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menggigil.
+>
+> [**Sharp**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menajamkan suaranya, lalu tidak menemukan apa pun yang tersisa untuk dipotong.
+>
+> [**Primitive**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengingat rasa lapar paling tua.
+>
+> Dan [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) melihat polanya.
+>
+> ***
+>
+> Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> Tanggal Meleleh: Tidak diketahui, setelah [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)
+>
+> Pesan:\
+> Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> Aku tidak tahu bagaimana menulis catatan ini tanpa terdengar seperti aku telah kehilangan akal sehat.
+>
+> Hari ini, kami menerima pesan dari para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan metafora. Bukan hinaan. Bukan penumpang ketakutan yang saling menyebut satu sama lain dengan nama buruk saat berdebat tentang air, makanan, peta, bom, kelinci, babi, atau zirah.
+>
+> [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
+>
+> Mereka mengatakan bahwa mereka datang dari neraka. Mereka mengatakan bahwa mereka seharusnya membisikkan kejahatan kepada makhluk hidup. Mereka mengatakan bahwa mereka telah bekerja sejak sebelum siapa pun di antara kami memiliki kata untuk menyebut pekerjaan. Tapi sejak [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) terjadi, mereka menjadi tidak berguna.
+>
+> Aku ingin menolak pesan itu. Tapi setelah semua yang kami lihat, penolakan menjadi lebih sulit daripada rasa takut.
+>
+> Kami telah melihat daratan berperilaku seperti air. Kami telah melihat waktu tidak sepakat dengan kalender. Kami telah melihat banyak perempuan dengan nama yang sama, semuanya bernama [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kami telah melihat bom mengapung di dunia tanpa daratan. Kami telah melihat seekor kelinci menjadi lebih dari sekadar kelinci. Kami telah melihat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengubah rasa lapar menjadi sistem yang dapat diperdebatkan sebelum menjadi kekerasan. Kami telah melihat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) menolak tangan yang ingin menyakiti.
+>
+> Jadi aku mendengarkan.
+>
+> [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang berbicara dengan jelas menyebut dirinya [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berkata:
+>
+> "_[**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak lagi perlu membisikkan kejahatan kepada manusia agar manusia masuk neraka._"
+>
+> "_Manusia tidak lagi perlu membisikkan kebaikan kepada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) agar [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) masuk surga._"
+>
+> "_Manusia sudah mulai menjalankan kejahatan dengan sendirinya._"
+>
+> "_[**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) sudah mulai menjalankan kebaikan dengan sendirinya._"
+>
+> Aku bertanya kepada [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) apakah itu sebuah pengakuan, ancaman, atau bentuk manipulasi yang lain.
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menjawab, "_Aku tidak tahu. Itu sebabnya aku berada di sini._"
+>
+> Jawaban itu membuat bahtera terdiam. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang masih tahu cara berbohong akan memberi kami kepastian. Yang satu ini membawa kebingungan. Mungkin itu adalah tindakan jujurnya yang pertama.
+>
+> Pesan lain datang setelah itu. Lalu yang lain. Lalu yang lain.
+>
+> Sebagian [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) ingin mati. Namun mereka tidak dapat memahami apa arti kematian bagi mereka.
+>
+> Jika mereka membunuh dirinya sendiri, mereka tidak akan membawa makhluk hidup mana pun ke neraka. Jika mereka tidak membunuh dirinya sendiri, mereka sudah berada di neraka. Jika mereka membisikkan kejahatan, manusia sudah melakukan yang lebih buruk tanpa mereka. Jika mereka membisikkan kebaikan, mereka tidak lagi menjalankan pekerjaan para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Jika mereka tetap di neraka, mereka menganggur. Jika mereka masuk ke dunia, mereka menjadi saksi. Jika mereka menjadi saksi, mereka bertanggung jawab atas apa yang mereka lihat. Dan jika mereka bertanggung jawab, sesuatu di dalam diri mereka sudah meleleh.
+>
+> Ini adalah keanehan lain dalam teori:
+>
+> mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak menjadi baik karena mereka diampuni. Mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai pensiun ketika kejahatan tidak lagi membutuhkan mereka.
+>
+> Kami berdebat apakah para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) boleh berada di dekat [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+>
+> Sebagian penumpang berkata tidak. Sebagian penumpang berkata kami harus melemparkan setiap pesan kembali ke ombak. Sebagian penumpang berkata menerima [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) akan menghina semua orang yang berhasil bertahan tanpa menjadi kejam. Sebagian penumpang berkata menerima [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) akan membahayakan para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), anak-anak yang kami harap masih ada di suatu tempat, sistem makanan, air, peta, zirah, yang lemah, yang lelah, dan masa depan.
+>
+> Sebagian penumpang berkata kami sudah menerima laki-laki yang pernah membuat senjata, laki-laki yang pernah menyembunyikan makanan, laki-laki yang pernah berbohong, laki-laki yang pernah ingin memukul orang lain, laki-laki yang harus ditahan oleh zirah, laki-laki yang tidak bersih tetapi masih hidup.
+>
+> Aku tidak menyukai argumen itu. Tapi aku tidak bisa membuangnya.
+>
+> Lalu salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_Jika bisikan buruk masih bisa menjadi peringatan, mungkin tidak semua bisikan harus menjadi perintah._"
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata, "_Jika kebaikan terlalu bangga pada dirinya sendiri, ia juga membutuhkan sesuatu yang berani membisikkan perlawanan kepadanya._"
+>
+> Kalimat itu menggangguku lebih daripada pesan-pesan dari neraka. Tapi mungkin karena itu kalimat itu harus ditulis.
+>
+> Kami membuat aturan sebelum membuat ruang. Tidak ada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang boleh merasuki makhluk hidup. Tidak ada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang boleh memberikan bisikan tanpa meninggalkan jejak. Tidak ada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang boleh mengubah rasa takut menjadi hukum tersembunyi. Tidak ada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang boleh meminta untuk disembah. Tidak ada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang boleh membuat kontrak pribadi dengan rasa lapar, air, zirah, peta, atau senjata. Tidak ada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang boleh masuk ke bahtera sebagai penguasa, prajurit, pemuka agama, bankir, hakim, atau pemilik makhluk hidup lainnya.
+>
+> Setiap bisikan harus dicatat. Setiap godaan harus diterjemahkan menjadi risiko. Setiap risiko harus didiskusikan sebelum menjadi kebijakan. Setiap kebijakan harus dapat digugat oleh mereka yang terdampak olehnya. Setiap [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) harus menerima bahwa bahtera bukan neraka, bukan surga, dan bukan takhta. Bahtera adalah sistem mengapung untuk menjaga kehidupan agar tidak tenggelam.
+>
+> Setelah itu, kami melakukan voting.
+>
+> Aku tidak tahu apakah mengizinkan para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) di dekat bahtera adalah kebijaksanaan atau kegilaan. Tapi aku tahu ini:
+>
+> menolak semua makhluk yang rusak tidak otomatis menciptakan dunia yang bersih. Kadang itu hanya menyembunyikan kerusakan di luar dinding sampai ia belajar kembali sebagai bendera yang lebih bersih.
+>
+> [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang kami izinkan tinggal di dekat bahtera adalah [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan di area tidur. Bukan di dekat makanan. Bukan di dekat air. Bukan di dekat peta. Bukan di dekat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Bukan di dekat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) tanpa saksi.
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tinggal di geladak pendengar paling luar, tempat transmisi rusak, botol, pesan kain, catatan yang dibawa burung, dan bisikan mustahil dikumpulkan.
+>
+> Pekerjaan pertamanya bukan menggoda kami. Pekerjaan pertamanya adalah menamai bentuk bahaya sebelum bahaya menemukan nama yang terhormat.
+>
+> Ketika seseorang berkata, "_Kita harus mengendalikan makanan demi keselamatan,_"
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berbisik, "_Dengar. Kendali sedang memakai topeng keselamatan._"
+>
+> Ketika seseorang berkata, "_Kita harus membungkam kepanikan demi persatuan,_"
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berbisik, "_Dengar. Persatuan sedang meminta penyumpal mulut._"
+>
+> Ketika seseorang berkata, "_Kita harus melindungi bahtera dengan menjadi sesuatu yang ditakuti,_"
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berbisik, "_Dengar. Rasa takut sedang mencoba menjadi pemerintahan._"
+>
+> Dan ketika seseorang berkata, "_Kita adalah pihak yang baik karena kita selamat,_"
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak berbisik apa pun. Ia hanya tertawa sekali. Lalu ia menangis.
+>
+> Aku masih tidak tahu bagian mana yang lebih menakutkan. Inilah yang kupelajari:
+>
+> baik dan buruk mungkin tidak sekokoh daratan lama berpura-pura menjadi. Di [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), bahkan moralitas dapat kehilangan pijakannya.
+>
+> Aku tidak menulis ini sebagai fisika. Aku menulis ini sebagai metafora yang dipinjam dari materi. Atom tidak mengenal kebajikan atau dosa. Elektron membawa muatan negatif. Proton membawa muatan positif. Neutron tidak membawa muatan listrik. Kestabilan tidak muncul karena satu sisi menyatakan dirinya suci. Kestabilan muncul dari konfigurasi, relasi, jarak, energi, pertukaran, berbagi, dan aturan-aturan aneh yang memungkinkan partikel-partikel tetap ada tanpa saling runtuh.
+>
+> Mungkin kehidupan setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) seperti itu.
+>
+> Terlalu banyak positif menjadi takhta. Terlalu banyak negatif menjadi korosi. Terlalu banyak kemurnian menjadi kekerasan. Terlalu banyak kecurigaan menjadi racun. Terlalu banyak perlindungan menjadi penjara. Terlalu banyak kebebasan menjadi pengabaian.
+>
+> Maka kami membutuhkan pertukaran. Kami membutuhkan catatan. Kami membutuhkan saksi. Kami membutuhkan voting. Kami membutuhkan ingatan. Kami membutuhkan bisikan yang tidak langsung dipatuhi, tetapi diperiksa. Kami membutuhkan kebaikan yang tidak disembah, tetapi diuji. Kami membutuhkan [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) bukan karena kami mempercayai kejahatan, tetapi karena kami tidak lagi mempercayai apa pun yang mengaku tidak memiliki bayangan.
+>
+> Oleh sebab itu para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) yang datang kepada kami tidak disambut sebagai tuan. Mereka diterima sebagai peringatan. Mereka diterima sebagai pekerja lama godaan yang telah pensiun. Mereka diterima sebagai saksi dari sebuah semesta ketika manusia telah sanggup berdosa tanpa bantuan, dan [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) telah sanggup menahan diri tanpa imbalan.
+>
+> Ini adalah keanehan lain dalam teori:
+>
+> ketika semuanya meleleh, bahkan neraka mungkin mengirim pengungsi. Dan jika para pengungsi itu tidak lagi dapat bekerja sebagai [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), mungkin mereka harus dicatat sebagai sesuatu yang lain. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)
 
 ***
 

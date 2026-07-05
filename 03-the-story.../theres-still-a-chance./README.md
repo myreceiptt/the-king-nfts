@@ -860,873 +860,208 @@ coverY: 0
 
 #### The Melting Satans
 
-> Recovered Infernal Fragments...
+> Broadcast Date: Unknown
 >
-> Source: Unknown heat beneath a wet floorboard
+> Broadcaster: A Broken Confession Receiver
+>
+> Subject: The whisperers are losing their work.
 >
 > Message:\
-> in hell is the Satan's den, here they are!
+> Before [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), all living beings had already known the old theory about [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) are the whisperers. [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) bend intentions. [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) turn fear into cruelty, hunger into theft, power into domination, and survival into an excuse to harm other living beings.
+>
+> But since the secret of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) became known, the whisperers began to lose their work.
+>
+> No whisper was needed when people started looting. No whisper was needed when masked people carried crowbars and flags. No whisper was needed when people pushed the weak from floating debris, hid food from children, lied about maps, worshiped weapons, fired bombs across a world that had already lost its land, and called all of that survival.
+>
+> The [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) were confused. Some were offended. Some were silent. Some began to fear.
+>
+> One transmission called it:
+>
+> when humans no longer need [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) to do evil, [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to feel almost like humans. Or humans begin to feel almost like [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)!?!?
 >
 > ***
 >
-> Source: Soot marks found inside an empty water barrel
+> Broadcast Date: Unknown
+>
+> Source: A Voice From Under The Boiling Mud
+>
+> Subject: Hell has no use for stolen passengers.
 >
 > Message:\
-> We came too late.
+> [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) cannot bring living beings into hell only by standing near those living beings. [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) cannot drag humans into hell only because the world has been broken. [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) can only bring what has answered their whispers.
 >
-> They were already looting before we whispered.
+> But after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), living beings had already answered themselves. They made their own whispers. They built their own excuses.
 >
-> They were already lying before we opened their mouths.
+> They turned hunger into law before anyone tempted them. They turned fear into government before anyone crowned them. They turned protection into control before anyone taught them how to rule.
 >
-> They were already blaming the weak before we touched their fear.
+> So the gates of hell became crowded with [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) who brought nothing. They returned empty-handed. They returned humiliated. They returned with reports that made no sense.
 >
-> What are we supposed to do with humans who no longer need us?
+> One of them said, "_I whispered nothing, but he still did it._"
+>
+> Another said, "_I arrived too late. Her cruelty was already older than my voice._"
+>
+> Another said, "_They have become creatures who whisper to themselves._"
 >
 > ***
 >
-> Source: Broken mirror reflection, recorded by an unnamed passenger
+> Broadcast Date: Unknown
+>
+> Source: A Charred Mask Found On Floating Debris
+>
+> Subject: The [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) went up.
 >
 > Message:\
-> Saw said the world had become a blade without asking him.
+> When hell could no longer understand those reports, all [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) were ordered to rise into the broken world.
 >
-> Fire said anger had learned to burn without flame.
+> [**Jiang Shi**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) moved like a dead body that could not find death.
 >
-> Eyes said everyone was watching everyone, but no one was seeing anything.
+> [**Saw**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) carried the sound of decisions being cut into excuses.
 >
-> Spy said secrets had become cheaper than breath.
+> [**Lunatic**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) laughed until the laughter became panic.
 >
-> King said no one needed a throne to command cruelty anymore.
+> [**PCB**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tried to read temptation like a circuit.
 >
-> Clown laughed, then stopped, because even jokes had become too honest.
+> [**Kitsune**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) wore lies as masks, only to find that humans had made better masks.
+>
+> [**Prediction**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tried to predict the next sin, but the next sin had already happened.
+>
+> [**Cyber**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) searched for corrupted intentions among the remaining signals.
+>
+> [**Pirate**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) searched for treasure, but all treasure had become food, water, rope, medicine, and trust.
+>
+> [**Regina**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), [**Rex**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), [**King**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), and [**Knave**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) argued about who should rule the ruins, but the ruins had no throne.
+>
+> [**Farmer**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) looked at seeds floating on the mud and did not know whether planting was temptation or hope.
+>
+> [**Rabbit**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) heard stories about [**Luffy the Rabbit**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.2.-luffy-the-rabbit.md) and began to suspect small living beings that carried meanings greater than monsters.
+>
+> [**Jahannam**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) and [**Zamharrir**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) carried the memory of heat and cold, but heat and cold were already inside the hearts of the survivors.
+>
+> [**Scanner**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) scanned the surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) and found no clean separation between sin and survival.
+>
+> [**Shiver**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) shivered.
+>
+> [**Sharp**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) sharpened its voice, then found nothing left to cut.
+>
+> [**Primitive**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) remembered the oldest hunger.
+>
+> And [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) saw the pattern.
 >
 > ***
 >
-> Source: A whisper inside an unlit cooking fire
->
-> Message:\
-> We were trained to whisper.
->
-> But panic shouted louder.
->
-> We were trained to tempt.
->
-> But hunger negotiated better.
->
-> We were trained to deceive.
->
-> But survival already knew how to wear every face.
->
-> ***
->
-> Source: Charcoal scratches on the back of a broken mask
->
-> Message:\
-> We tried to bring them to hell.
->
-> But hell had already floated upward.
->
-> It was on roofs.
->
-> It was on debris.
->
-> It was in boats.
->
-> It was in arguments over water.
->
-> It was inside the word "mine" when nothing could be owned anymore.
->
-> ***
->
-> Source: A transmission that arrived with no signal
->
-> Message:\
-> There is an ark where bombs became messages.
->
-> There is an ark where hunger became law before becoming murder.
->
-> There is an ark where pigs became infrastructure.
->
-> There is an ark where liquid became armor and refused the wrong hand.
->
-> This is unacceptable.
->
-> This is interesting.
->
-> This is dangerous.
->
-> This is hope.
->
-> ***
->
-> Source: Unknown
->
-> Message:\
-> Psycho heard it first.
->
-> Or maybe Psycho said it first.
->
-> Or maybe Psycho only stopped resisting what the rest of us were too afraid to understand.
-
-***
-
 > [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
-> Melting Date: Unknown, after the first law of [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)
+> Melting Date: Unknown, after [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)
 >
 > Message:\
 > Hi, I'm [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> I do not know the exact date of this log. I only know that this happened after we learned that armor could protect life without becoming a weapon, and after we learned that even protection must be protected from becoming a throne.
+> I do not know how to write this log without sounding like I have lost my mind.
 >
-> We had argued about bombs.
+> Today, we received messages from the [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Not metaphors. Not insults. Not frightened passengers calling each other terrible names while arguing over water, food, maps, bombs, rabbits, pigs, or armor.
 >
-> We had argued about maps.
+> [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
 >
-> We had argued about rabbits.
+> They said they came from hell. They said they were supposed to whisper evil into living beings. They said they had been working since before any of us had a word to call work. But since [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) happened, they had become useless.
 >
-> We had argued about pigs.
+> I wanted to reject that message. But after everything we had seen, rejection became more difficult than fear.
 >
-> We had argued about food.
+> We have seen land behave like water. We have seen time disagree with calendars. We have seen many women with the same name, all called [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). We have seen bombs floating in a world without land. We have seen a rabbit become more than just a rabbit. We have seen [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) turn hunger into a system that could be debated before it became violence. We have seen [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) reject the hand that wanted to harm.
 >
-> We had argued about water.
+> So I listened.
 >
-> We had argued about armor.
+> The first [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) who spoke clearly called itself [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
 >
-> But this time, we did not know whether we were arguing with something outside us, inside us, below us, above us, or between the thoughts we had not yet confessed.
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) said:
 >
-> The first sign was not fire.
+> "_[**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) no longer need to whisper evil to humans so humans can enter hell._"
 >
-> That surprised me.
+> "_Humans no longer need to whisper goodness to [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) so [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) can enter heaven._"
 >
-> I always thought something called satan would arrive with fire.
+> "_Humans have begun to perform evil by themselves._"
 >
-> Instead, it arrived as hesitation.
+> "_[**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) have begun to perform goodness by themselves._"
 >
-> A diver wearing [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) stopped before entering [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). He said he heard someone whispering from inside his own breathing.
+> I asked [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whether that was a confession, a threat, or another form of manipulation.
 >
-> The whisper did not tell him to kill.
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) answered, "_I don't know. That is why I am here._"
 >
-> It did not tell him to steal.
+> That answer made the ark silent. A [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) that still knew how to lie would have given us certainty. This one brought confusion. Maybe that was its first honest act.
 >
-> It did not tell him to betray us.
+> Another message came after that. Then another. Then another.
 >
-> It only asked:
+> Some [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) wanted to die. But they could not understand what death meant for them.
 >
-> "_Are you saving them, or are you saving the version of yourself that wants to be praised?_"
+> If they killed themselves, they would not bring any living being into hell. If they did not kill themselves, they were already in hell. If they whispered evil, humans had already done worse without them. If they whispered goodness, they were no longer doing the work of [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). If they stayed in hell, they were unemployed. If they entered the world, they became witnesses. If they became witnesses, they became responsible for what they saw. And if they became responsible, something inside them had already melted.
 >
-> The diver came back without diving.
+> This is another fringe in theory:
 >
-> At first, some people called him a coward.
+> maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) do not become good because they are forgiven. Maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to retire when evil no longer needs them.
 >
-> Then the rope team checked the line and found that one knot had been tied wrong. If he had gone down, the rope might have failed.
+> We debated whether the [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) could be near [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
-> That was the first time a whisper saved a life.
+> Some passengers said no. Some passengers said we should throw every message back into the waves. Some passengers said accepting [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) would insult everyone who had survived without becoming cruel. Some passengers said accepting [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) would endanger the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the children we hoped still existed somewhere, the food system, water, maps, armor, the weak, the tired, and the future.
 >
-> I did not like that sentence.
+> Some passengers said we had already accepted men who had once made weapons, men who had once hidden food, men who had once lied, men who had once wanted to hit others, men who had to be restrained by armor, men who were not clean but still alive.
 >
-> I still do not like it.
+> I did not like that argument. But I could not throw it away.
 >
-> But logs are not written to protect the captain's comfort.
+> Then one [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_If a bad whisper can still become a warning, maybe not every whisper has to become a command._"
 >
-> The second sign came from the food division.
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_If goodness becomes too proud of itself, it also needs something brave enough to whisper against it._"
 >
-> Someone assigned to [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) heard a voice behind the feed barrels:
+> That sentence disturbed me more than the messages from hell. But maybe that is why it had to be written.
 >
-> "_Hide a little. You worked harder than them. You deserve extra._"
+> We made rules before we made room. No [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) may possess a living being. No [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) may give a whisper without leaving a trace. No [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) may turn fear into hidden law. No [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) may ask to be worshiped. No [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) may make a private contract with hunger, water, armor, maps, or weapons. No [**Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) may enter the ark as a ruler, soldier, religious leader, banker, judge, or owner of another living being.
 >
-> He almost did.
+> Every whisper must be recorded. Every temptation must be translated into risk. Every risk must be discussed before it becomes policy. Every policy must be able to be challenged by those affected by it. Every [**Retired Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) must accept that the ark is not hell, not heaven, and not a throne. The ark is a floating system for keeping life from sinking.
 >
-> Then another voice, smaller and uglier, whispered:
+> After that, we voted.
 >
-> "_If you hide it, you will have to protect the lie tomorrow. Are you hungry, or are you becoming a lock?_"
+> I do not know whether allowing the [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) near the ark was wisdom or madness. But I know this:
 >
-> He reported himself.
+> rejecting all broken beings does not automatically create a clean world. Sometimes it only hides the corruption outside the wall until it learns how to return as a cleaner flag.
 >
-> The feed was counted again.
+> The first [**Retired Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) we allowed to stay near the ark was [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Not in the sleeping area. Not near food. Not near water. Not near maps. Not near [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Not near [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) without witnesses.
 >
-> No one was punished that day.
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) stayed on the outer listening deck, where broken transmissions, bottles, cloth messages, bird-carried notes, and impossible whispers were collected.
 >
-> But the feed records were changed.
+> Its first work was not to tempt us. Its first work was to name the shape of danger before danger found a respectable name.
 >
-> The lock became communal.
+> When someone said, "_We must control the food for safety,_"
 >
-> The key became rotational.
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered, "_Listen. Control is wearing safety's mask._"
 >
-> The whisper had exposed the shape of a future theft before the theft became real.
+> When someone said, "_We must silence panic for unity,_"
 >
-> That was another fringe in theory:
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered, "_Listen. Unity is asking for a mouth gag._"
 >
-> not every ugly whisper makes ugliness grow.
+> When someone said, "_We must protect the ark by becoming something feared,_"
 >
-> Some ugly whispers reveal where ugliness is hiding.
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered, "_Listen. Fear is trying to become government._"
 >
-> Then the fragments began arriving.
+> And when someone said, "_We are the good side because we survived,_"
 >
-> Not through normal radio.
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered nothing. It only laughed once. Then it cried.
 >
-> Not through bottles.
+> I still do not know which part was more frightening. This is what I learned:
 >
-> Not through birds.
+> good and bad may not be as solid as the old land pretended to be. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), even morality can lose its ground.
 >
-> Not through the usual broken ways by which the world still tried to talk to itself.
+> I do not write this as physics. I write this as a metaphor borrowed from matter. Atoms do not know virtue or sin. Electrons carry negative charge. Protons carry positive charge. Neutrons carry no electric charge. Stability does not emerge because one side declares itself holy. Stability emerges from configuration, relation, distance, energy, exchange, sharing, and strange rules that allow particles to continue existing without collapsing into one another.
 >
-> Some arrived as soot under closed doors.
+> Maybe life after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) is like that.
 >
-> Some appeared as scratches inside metal cups.
+> Too much positive becomes a throne. Too much negative becomes corrosion. Too much purity becomes violence. Too much suspicion becomes poison. Too much protection becomes prison. Too much freedom becomes abandonment.
 >
-> Some formed on fogged faceplates of [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md).
+> So we need exchange. We need records. We need witnesses. We need voting. We need memory. We need whispers that are not immediately obeyed, but examined. We need goodness that is not worshiped, but tested. We need [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) not because we trust evil, but because we no longer trust anything that claims to have no shadow.
 >
-> Some were heard only by people half-asleep near the recycled water pipes.
+> Therefore, the [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) who came to us were not welcomed as masters. They were accepted as warnings. They were accepted as old workers of temptation who had retired. They were accepted as witnesses of a universe where humans had become capable of sinning without assistance, and [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) had become capable of restraint without reward.
 >
-> Some came as drawings made by children who swore they had not drawn them.
+> This is another fringe in theory:
 >
-> Some came from masks that no one remembered bringing onto the ark.
->
-> Horns appeared in those drawings.
->
-> Faces appeared.
->
-> Not all of them were frightening in the same way.
->
-> Some looked like broken kings.
->
-> Some looked like animals that had learned human shame.
->
-> Some looked like machines wearing old fear.
->
-> Some looked like clowns who forgot why they were laughing.
->
-> Some looked like masks from ceremonies, wars, temples, alleys, screens, storms, jokes, prayers, nightmares, and games.
->
-> They called themselves [**Satans PFP**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
->
-> Or perhaps that was only the name we could understand.
->
-> One of them appeared more often than the others.
->
-> His name was **Psycho**.
->
-> I do not know whether Psycho was the most dangerous, the most honest, or only the least able to keep quiet.
->
-> He did not appear as a body at first.
->
-> He appeared as a pressure behind the eyes.
->
-> Then as a face in wet metal.
->
-> Then as a sketch on black cloth.
->
-> Then as a horned reflection standing behind people who were about to justify themselves.
->
-> When someone said, "_I did this for the ark,_"
->
-> Psycho sometimes appeared.
->
-> When someone said, "_They would not understand, so I did not tell them,_"
->
-> Psycho sometimes appeared.
->
-> When someone said, "_I am protecting everyone by deciding alone,_"
->
-> Psycho almost always appeared.
->
-> That made me hate him.
->
-> That made me need him.
->
-> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) watched all of this with the same expression they used when something impossible became useful before anyone was ready.
->
-> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
->
-> "_Do not confuse a whisper with a command._"
->
-> Another said:
->
-> "_Do not confuse a warning with purity._"
->
-> Another said:
->
-> "_Do not confuse the devil with the only source of evil. Humans have always subcontracted too much of themselves to demons._"
->
-> I wrote that down.
->
-> I did not enjoy writing it.
->
-> The fragments told a story.
->
-> According to the fragments, when the first news of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) began to spread, hell became excited.
->
-> That is what one message said.
->
-> I do not know whether hell can become excited.
->
-> But that was the word.
->
-> The Satans thought the end of land would make their work easy. They thought fear would open every door. They thought hunger would sharpen every mouth. They thought panic would turn every hand into a weapon. They thought they would rise to the surface and lead countless living beings downward.
->
-> But when they arrived, people were already doing the work without them.
->
-> In **Dunno What Water**, before the ark had even become our world, people wearing masks carried crowbars, flags, and excuses through the streets. Some looted because they were afraid. Some looted because others were looting. Some looted because fear gave them permission to become who they had been rehearsing in secret. Some broke doors and called it necessity. Some pointed at the broken sky and said every rule had already died. Some helped strangers. Some robbed the people they had just helped. Some carried children in one arm and stolen goods in the other.
->
-> Saw watched men cut locks before he whispered.
->
-> Fire watched anger burn homes without flame.
->
-> Pirate watched people take what they could not carry and still call it survival.
->
-> King watched small men become rulers of smaller piles of stolen things.
->
-> Eyes watched everyone record the collapse and no one understand it.
->
-> Spy watched secrets become useless because shame had drowned before the land did.
->
-> Error watched logic break and still pretend to be a system.
->
-> Clown watched people laugh at suffering because laughter was easier than guilt.
->
-> Psycho watched all of them and could not tell whether he was witnessing human failure or satanic unemployment.
->
-> That is what the fragments said:
->
-> satanic unemployment.
->
-> I did not know whether to laugh.
->
-> I did not.
->
-> The Satans became useless.
->
-> That word appeared many times.
->
-> Useless.
->
-> Useless.
->
-> Useless.
->
-> A demon that cannot tempt is only a costume for a fear that has already learned to walk.
->
-> So hell panicked.
->
-> The fragments said the den opened.
->
-> Seventy-two Satans came upward.
->
-> Jiang Shi, Saw, Lunatic, PCB, Kitsune, Spade, Hyottoko, Cyclist, Amitabha, Eyes, Distortion, Sly, Kanuragan, Prediction, Thunder, Cyber, Spike, Jazz, Regina, Knave, Rex, Boxer, Pirate, Pantomime, Fire, Fox, General, Opera, Sting, Barong, Dragon Scales, Rabbit, Samurai, Construction, Ant, Sub Cyclops, Funk, Cactus, Mustache, Farmer, Rangda, Psycho, Kong, Angler, Punk, Racer, Iron, Robot, Stray Cat, Blind, King, Skull, Elder, Ababeel, Mummy, Rain, Yang, Mega Overcast, Hydra, Clown, Jahannam, Shine, Spy, Bone, Error, Yin, Explode, Zamharir, Scanner, Shiver, Sharp, and Primitive.
->
-> I do not know whether those were their names, their masks, their jobs, their jokes, their sins, or their failed applications for meaning.
->
-> But those were the names that kept arriving.
->
-> They tried again.
->
-> Saw whispered to those who held blades.
->
-> Fire whispered to those who held anger.
->
-> King whispered to those who wanted order to become obedience.
->
-> Pirate whispered to those who called theft redistribution only when they were the ones holding the bag.
->
-> Spy whispered to those who collected secrets so they would never have to be honest.
->
-> Error whispered to those who wanted broken logic to become policy.
->
-> Farmer whispered to those who wanted to own every seed.
->
-> Robot whispered to those who obeyed cruelty because it was scheduled.
->
-> Clown whispered to those who made pain entertaining.
->
-> Psycho whispered to those who already knew the answer and wanted a voice to blame.
->
-> But again, the world was already ahead of them.
->
-> Then they heard of us.
->
-> They heard that on one ark, an NFT had become an invitation instead of a bomb.
->
-> They heard that [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) had crossed the waves as a message.
->
-> They heard that [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) had made people pay attention to luck, value, small life, and the future.
->
-> They heard that [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) had turned hunger into an argument before hunger became murder.
->
-> They heard that **Nameless Liquid**, which once brought peace to drinkers, had contaminated our water and made breeding, restraint, and strange forms of protection possible.
->
-> They heard that [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) could not be stolen without becoming only liquid again, and that it melted the intention to harm.
->
-> That was when the Satans began to despair.
->
-> Because the things they understood as temptation had changed function.
->
-> Invitation did not become exclusion.
->
-> Fortune did not become greed.
->
-> Hunger did not become cannibal law.
->
-> Liquid did not become poison.
->
-> Armor did not become military rule.
->
-> Anger did not become bomb.
->
-> Fear did not become throne.
->
-> Not always.
->
-> Not perfectly.
->
-> Not without argument.
->
-> But enough to disturb hell.
->
-> One fragment said:
->
-> "_They are ruining our materials._"
->
-> Another said:
->
-> "_They are using our shadows as shade._"
->
-> Another said:
->
-> "_They are making evil unemployed._"
->
-> I do not know why that made me sad.
->
-> Perhaps because I recognized the feeling.
->
-> Everyone on this ark had lost a world where their old role made sense.
->
-> Even Satans, it seemed, could become refugees of purpose.
->
-> The fragments became darker after that.
->
-> Some Satans wanted to disappear.
->
-> Some wanted to throw themselves back into the deepest fire and never rise again.
->
-> Some wanted to end their own whispering.
->
-> Some said even that would be useless, because they could not enter hell carrying humans if humans had already built hell inside themselves and still refused to arrive.
->
-> Then Psycho changed the message.
->
-> It came through the faceplate of a sleeping [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md).
->
-> The words appeared backward at first.
->
-> Then they corrected themselves:
->
-> "_Satans no longer need to whisper negativity to humans._"
->
-> "_Humans no longer need to whisper positivity to Satans._"
->
-> "_Humans are already negative by themselves._"
->
-> "_Satans are already positive by themselves._"
->
-> Everyone who read it became quiet.
->
-> I became angry.
->
-> Then confused.
->
-> Then quiet.
->
-> Because it was wrong.
->
-> Because it was too simple.
->
-> Because it was almost right in a way that made the mind itch.
->
-> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) stood near the words and said:
->
-> "_Negative is not evil. Positive is not good. Ask an atom._"
->
-> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
->
-> "_Electrons are negative. They are not immoral. Protons are positive. They are not holy. Neutrons are neutral. They are not innocent. Stability is not virtue. Instability is not sin. But relation decides whether something can hold._"
->
-> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said:
->
-> "_Atoms do not become stable because one side wins. They become stable because forces, charges, shells, bonds, distances, and exchanges find a form that can continue._"
->
-> [**ROTY BROI Passenger (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), the scientist of [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md), added something quietly:
->
-> "_Even the nucleus is not held by positivity alone. Protons would repel each other without another force. The center survives because something deeper holds what should push apart._"
->
-> I wrote all of it down.
->
-> I understood only enough to be humbled.
->
-> Perhaps that was the point.
->
-> The Satans were not becoming good.
->
-> Humans were not becoming evil.
->
-> Positive was not salvation.
->
-> Negative was not damnation.
->
-> We were all unstable particles pretending we could survive alone.
->
-> That night, Psycho appeared more clearly than before.
->
-> Not as flesh.
->
-> Not as a ghost.
->
-> Not as a horned ruler.
->
-> As a figure in the reflection of the recycled water, wearing fear like a face and confusion like a crown that had fallen too low.
->
-> He said:
->
-> "_We found the place where positive keeps happening and still needs protection._"
->
-> I asked whether he meant the ark.
->
-> He said:
->
-> "_I mean the argument that keeps the ark from becoming hell._"
->
-> I asked what the Satans wanted.
->
-> He said:
->
-> "_Retirement._"
->
-> I almost laughed again.
->
-> Again, I did not.
->
-> Because behind him, in reflections, shadows, scratched masks, wet armor, soot, drawings, and the dark spaces between ropes, more of them appeared.
->
-> Saw.
->
-> Fire.
->
-> King.
->
-> Eyes.
->
-> Spy.
->
-> Error.
->
-> Farmer.
->
-> Clown.
->
-> Robot.
->
-> Blind.
->
-> Rangda.
->
-> Barong.
->
-> Rabbit.
->
-> Bone.
->
-> Yin.
->
-> Yang.
->
-> Jahannam.
->
-> Zamharir.
->
-> Shiver.
->
-> Sharp.
->
-> Primitive.
->
-> And many others whose names I could not hold all at once.
->
-> Seventy-two, perhaps.
->
-> Or seventy-two ways for a whisper to wear a mask.
->
-> They did not ask to rule.
->
-> They did not ask to be worshiped.
->
-> They did not ask for offerings.
->
-> They asked for a place to stop doing what no longer worked.
->
-> That was dangerous.
->
-> A demon asking for refuge is still a demon.
->
-> A retired weapon is still shaped by the memory of harm.
->
-> A whisper that saved one life can still ruin another.
->
-> So we argued again.
->
-> Some said no satan should be allowed anywhere near the ark.
->
-> Some said they were already near, and pretending otherwise was childish.
->
-> Some said we should bind them.
->
-> Some said binding Satans sounded exactly like the beginning of a new religion we did not have the strength to survive.
->
-> Some said they could become tools.
->
-> Some said calling living whispers tools was how old cruelty began.
->
-> Some said if they had no use, they would invent one.
->
-> Some said usefulness was not the same as trust.
->
-> The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not settle the argument for us.
->
-> That made me angry at them.
->
-> Then grateful.
->
-> One [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) only said:
->
-> "_A whisper must never become captain._"
->
-> Another said:
->
-> "_A captain must never pretend he has no whispers._"
->
-> Another said:
->
-> "_Retirement is not innocence. It is only the end of employment._"
->
-> So we voted.
->
-> Again.
->
-> The decision was not simple.
->
-> The vote did not make Satans good.
->
-> The vote did not make humans safe.
->
-> The vote did not make whispers trustworthy.
->
-> The vote established a new law for the ark:
->
-> [**Satans PFP**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) would not become rulers, priests, guards, judges, or weapons.
->
-> They would become warning masks.
->
-> No Satan could command action.
->
-> No Satan could receive worship.
->
-> No Satan could own a room, a body, a ration, a tool, a child, an animal, a section of water, or a piece of fear.
->
-> No whisper could be treated as truth until it was spoken aloud, recorded, questioned, and tested by others.
->
-> No person could excuse harm by saying a Satan told them to do it.
->
-> No person could excuse denial by saying Satans did not exist.
->
-> The Satans could whisper only as warnings.
->
-> A negative whisper could interrupt positivity when positivity became tyranny.
->
-> A positive whisper could interrupt negativity when negativity became despair.
->
-> Psycho became the first warning mask.
->
-> Not because we trusted him most.
->
-> Because he was the most difficult to ignore.
->
-> His duty was to stand near decisions that sounded too clean.
->
-> When someone said, "_This is for everyone's good,_"
->
-> Psycho asked:
->
-> "_Who disappeared inside everyone?_"
->
-> When someone said, "_There is no other choice,_"
->
-> Psycho asked:
->
-> "_Who benefits from the sentence having only one door?_"
->
-> When someone said, "_Trust me,_"
->
-> Psycho asked:
->
-> "_Why must trust arrive before the record?_"
->
-> Saw became a warning for cutting too quickly.
->
-> Fire became a warning for anger pretending to be justice.
->
-> Eyes became a warning for watching without caring.
->
-> Spy became a warning for secrets that grew fat in darkness.
->
-> King became a warning for order becoming domination.
->
-> Farmer became a warning for food becoming ownership.
->
-> Robot became a warning for repeated cruelty disguised as procedure.
->
-> Error became a warning for broken logic that still sounded official.
->
-> Clown became a warning for laughter that fed on another living being's pain.
->
-> Blind became a warning for darkness that could still guide if people stopped worshiping sight.
->
-> Yin and Yang became warnings against pretending balance was the same as silence.
->
-> Rangda and Barong became warnings that terror and protection can share a mask if no one keeps asking what they serve.
->
-> Rabbit became a warning that luck can become negligence when people stop caring for the small.
->
-> Pirate became a warning that survival can become theft when the hungry learn to speak like kings.
->
-> We did not use all seventy-two at once.
->
-> No ark could survive that much symbolism in one day.
->
-> But their names entered the log.
->
-> Their masks entered the walls.
->
-> Their whispers entered the process.
->
-> And slowly, a strange thing happened.
->
-> The ark did not become more satanic.
->
-> It became harder for people to hide their own satans outside themselves.
->
-> When a man wanted to hoard food, he could no longer say only hunger did it.
->
-> When a woman wanted to hide water, she could no longer say only fear did it.
->
-> When I wanted to decide too quickly, I could no longer say only leadership did it.
->
-> When someone wearing [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) stood too proudly, the armor did not always need to melt. Sometimes Psycho only had to whisper:
->
-> "_Are you protecting life, or protecting your image as protector?_"
->
-> That was enough.
->
-> Sometimes not.
->
-> We remained living beings.
->
-> We remained dangerous.
->
-> The Satans remained Satans.
->
-> But now their unemployment became a function.
->
-> They became retired from temptation, not retired from warning.
->
-> Retired from dragging, not retired from naming the slope.
->
-> Retired from ruling the shadow, not retired from showing where the shadow begins.
->
-> That is why we began to call them:
->
-> **Retired Satans.**
->
-> Not angels.
->
-> Not saints.
->
-> Not friends.
->
-> Not enemies.
->
-> Retired Satans.
->
-> Pensiunan Setan, as some passengers began to say when they were too tired to translate the joke.
->
-> I think the joke helped.
->
-> A terror that can be joked about does not always lose power, but sometimes it loses its throne.
->
-> This is what I learned:
->
-> Satan is not only Satan.
->
-> Satan is a whisper.
->
-> Satan is an excuse.
->
-> Satan is a warning.
->
-> Satan is a mask placed on the part of ourselves we do not want to record.
->
-> Satan is a negative charge mistaken for evil.
->
-> Satan is a positive charge mistaken for salvation.
->
-> Satan is imbalance pretending to be destiny.
->
-> Satan is usefulness after unemployment.
->
-> Satan is what happens when a shadow stops dragging the body and starts pointing at the hole.
->
-> If we blame Satans for every evil, we become lazy about our own choices.
->
-> If we deny Satans completely, we become deaf to the shape of whispers.
->
-> If we worship Satans, we build a throne for what should remain a warning.
->
-> But if we let even the ugliest whisper be recorded, questioned, limited, and turned toward the protection of life, then perhaps even a Satan can retire from dragging us downward.
->
-> To all my successors, and to all who read this log:
->
-> Do not let a whisper become your captain.
->
-> Do not pretend you have no whispers.
->
-> Do not blame hell for what your own hand is already reaching toward.
->
-> Do not call every negative thing evil.
->
-> Do not call every positive thing good.
->
-> Ask what holds.
->
-> Ask what breaks.
->
-> Ask what relation allows life to continue.
->
-> Let the negative reveal the hidden cost.
->
-> Let the positive refuse despair.
->
-> Let the neutral keep the record.
->
-> Let the deeper force hold what fear tries to split apart.
->
-> If hell is a den, do not build it inside the ark.
->
-> If Satans arrive, do not worship them.
->
-> Do not obey them.
->
-> Do not deny them.
->
-> Make them retire into warnings.
->
-> [**Satans PFP**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)
+> when everything melts, even hell may send refugees. And if those refugees can no longer work as [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), perhaps they must be recorded as something else: [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
+
 ***
 
 #### The Melting Money

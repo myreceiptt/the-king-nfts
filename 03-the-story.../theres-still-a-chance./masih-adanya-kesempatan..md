@@ -1061,7 +1061,7 @@ coverY: 0
 >
 > Ini adalah keanehan lain dalam teori:
 >
-> ketika semuanya meleleh, bahkan neraka mungkin mengirim pengungsi. Dan jika para pengungsi itu tidak lagi dapat bekerja sebagai [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), mungkin mereka harus dicatat sebagai sesuatu yang lain. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)
+> ketika semuanya meleleh, bahkan neraka mungkin mengirim pengungsi. Dan jika para pengungsi itu tidak lagi dapat bekerja sebagai [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), mungkin mereka harus dicatat sebagai sesuatu yang lain: [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
 
 ***
 

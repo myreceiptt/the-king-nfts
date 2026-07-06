@@ -1061,11 +1061,246 @@ coverY: 0
 
 #### Uang Meleleh
 
-> init...
+> Potongan Siaran Yang Dipulihkan...
 >
-> [**Polygon $OiOi FTs**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
+> Sumber: Pasar Lama Yang Tidak Lagi Mengetahui Harga
 >
-> **...**
+> Tanggal Siaran: 13 Mei 2022
+>
+> Subjek: Angka masih ada, tetapi tidak lagi dipatuhi.
+>
+> Pesan:\
+> Seseorang datang membawa seikat uang yang sudah basah.
+>
+> Kertas-kertas itu tidak sepenuhnya hancur. Sebagian angkanya masih bisa dibaca. Sebagian gambarnya masih terlihat. Sebagian tanda tangannya masih menempel seperti sisa-sisa kekuasaan yang belum tahu bahwa tanah di bawahnya sudah meleleh.
+>
+> Dia tidak meminta banyak. Dia hanya meminta makanan.
+>
+> Tidak ada yang menjawab. Bukan karena semua orang kejam. Bukan karena tidak ada makanan sama sekali. Bukan karena kami tidak mengerti apa itu uang. Justru karena kami pernah terlalu mengerti apa itu uang, sampai kami lupa apa yang seharusnya dilayani olehnya.
+>
+> Dia berkata, "_Aku bisa membayar._"
+>
+> Salah satu penyintas menjawab, "_Bayar kepada siapa?_"
+>
+> Dia berkata, "_Kepada pemilik makanan._"
+>
+> Penyintas itu bertanya lagi, "_Siapa pemilik makanan jika yang membuatnya tetap hidup adalah air, tangan, pakan, waktu, kandang, penjaga, penyelam, pemungutan suara, dan perjanjian agar rasa lapar tidak menjadi pemimpin?_"
+>
+> Pria itu diam. Uangnya masih ada di tangannya. Tapi tangannya sudah tidak terlihat memegang nilai. Tangannya terlihat memegang masa lalu.
+>
+> ***
+>
+> Potongan Siaran Yang Dipulihkan...
+>
+> Sumber: Dompet Yang Ditemukan Mengapung Di Antara Dua Papan
+>
+> Tanggal Siaran: 19 Juni 2022
+>
+> Subjek: Aku bekerja untuk makan, lalu lupa makan.
+>
+> Pesan:\
+> Sebelum [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), banyak orang bekerja agar bisa hidup. Lalu mereka lupa hidup.
+>
+> Banyak orang bekerja agar bisa makan. Lalu mereka lupa makan.
+>
+> Banyak orang bekerja agar bisa tidur. Lalu mereka kehilangan tidur.
+>
+> Banyak orang bekerja agar bisa melindungi tubuh. Lalu tubuhnya diperas sampai tidak sempat dilindungi.
+>
+> Banyak orang bekerja agar bisa membeli pakaian. Lalu ada yang melepas pakaian demi mendapatkan uang.
+>
+> Banyak orang bekerja agar tidak lapar. Lalu ada yang lebih memilih lapar seharian selama masih memegang uang, daripada kenyang seharian tetapi tidak memegang uang sama sekali.
+>
+> Di dunia lama, hal itu disebut pilihan. Di atas [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), hal itu mulai terlihat seperti penyakit yang pernah memakai nama kebebasan.
+>
+> ***
+>
+> Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> Tanggal Meleleh: Tidak diketahui, setelah para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) diterima sebagai peringatan
+>
+> Pesan:\
+> Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
+>
+> Aku menulis kata itu hari ini bukan karena kata itu baru. Justru karena kata itu terlalu lama ada di antara kami sampai tidak pernah dianggap perlu untuk dicatat.
+>
+> Aku mengucapkannya ketika menyapa. Penumpang menjawabnya ketika dipanggil. Aku mengucapkannya ketika mendengar seseorang berbicara. Aku mengucapkannya ketika setuju. Aku mengucapkannya ketika belum sepenuhnya mengerti, tetapi ingin menunjukkan bahwa aku sedang mendengar.
+>
+> Kadang artinya iya. Kadang artinya apa. Kadang artinya siap. Kadang artinya lanjutkan. Kadang artinya aku di sini. Kadang artinya aku belum tenggelam.
+>
+> Tidak semua hal yang penting selalu masuk catatan. Napas tidak selalu dicatat. Kedipan mata tidak selalu dicatat. Orang yang mendengar tidak selalu dicatat.
+>
+> Tapi ketika napas berhenti, semua orang tahu. Ketika mata tidak lagi berkedip, semua orang tahu. Ketika seseorang dipanggil dan tidak menjawab, semua orang tahu.
+>
+> Begitu juga dengan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Selama ia terdengar, kami tidak menyadarinya sebagai sistem. Ketika ia tidak terdengar, kami mulai takut.
+>
+> Aku tahu, suatu hari nanti mungkin ada pembaca yang mengira [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) lahir dari [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Itu tidak sepenuhnya benar. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) bukan kelahiran [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) adalah saat [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) untuk pertama kalinya menjadi bukti.
+>
+> Sebelum itu, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah kebiasaan. Setelah itu, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) menjadi tanda bahwa panggilan tidak pulang dengan tangan kosong.
+>
+> Dari atas, kami berteriak, "_BOII! BOII!_"
+>
+> Dari bawah, jika tidak ada apa-apa, hanya lumpur yang menjawab. Tapi ketika kehidupan ditemukan, ketika sesuatu masih bernapas di bawah kematian permukaan, ketika tali masih bisa menarik pulang harapan, dari bawah terdengar, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
+>
+> Sejak saat itu, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak lagi hanya menjadi suara yang lewat di antara percakapan. Ia menjadi tanda bahwa sesuatu menjawab. Ia menjadi tanda bahwa panggilan menemukan hasil. Ia menjadi tanda bahwa kerja tidak kembali sebagai kekosongan. Ia menjadi tanda bahwa masih ada kehidupan yang bisa dipanggil keluar dari bawah dunia yang meleleh.
+>
+> Setelah makanan menjadi hukum pertama, perlindungan menjadi batas pertama, dan para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menjadi peringatan pertama, kami menghadapi pertanyaan yang tidak bisa lagi kami tunda, bagaimana mencatat jawaban?
+>
+> Bukan harga. Bukan kekayaan. Bukan kepemilikan atas hidup.
+>
+> Jawaban.
+>
+> Siapa yang menjaga air ketika semua orang tidur? Siapa yang memperbaiki lambung ketika badai membuat besi dan kayu terdengar seperti gigi yang patah? Siapa yang menyelam dan kembali dengan sesuatu yang masih hidup? Siapa yang merawat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) tanpa menjadikannya harta pribadi? Siapa yang memakai [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) untuk bekerja, bukan untuk berdiri lebih tinggi daripada yang tidak berzirah? Siapa yang membawa pesan agar pertolongan lebih dahulu jatuh daripada bom? Siapa yang tetap berada di bahtera ketika undangannya bisa saja dibawa pergi, dijual, ditukar, atau dilupakan?
+>
+> Kami sudah punya 1047 undangan. Tapi undangan membuktikan pernah ada pintu. Undangan tidak selalu membuktikan bahwa seseorang masih tinggal, masih menjaga, masih menjawab, masih menjadi bagian dari tubuh pertahanan hidup yang kami sebut [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+>
+> Maka muncul gagasan yang mula-mula terdengar sederhana, tambatkan undangan. Bukan serahkan. Bukan hilangkan. Bukan rampas. Tambatkan. Seperti perahu kecil yang masih milik pemiliknya, tetapi talinya diikatkan ke bahtera agar semua orang tahu ia belum pergi.
+>
+> Setiap undangan yang ditambatkan menjadi tanda bahwa pemegangnya masih memilih untuk berada dalam perjalanan. Setiap tanda yang tetap tertambat membuat bahtera dapat menghitung siapa yang masih bisa dipanggil. Setiap panggilan yang dijawab membuat catatan dapat mengatakan, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
+>
+> Kami membuat papan hitung pertama dari sisa peti, pecahan kaca, kawat, paku, arang, dan bagian-bagian dari alat lama yang tidak lagi tahu industri apa yang pernah melahirkannya.
+>
+> Di papan itu, nama tidak ditulis seperti nama lama. Yang ditulis adalah tanda undangan, giliran, pekerjaan, saksi, dan jawaban.
+>
+> Jika seseorang dipanggil untuk berjaga dan menjawab, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) dicatat. Jika seseorang dipanggil untuk membawa air dan datang, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) dicatat. Jika seseorang dipanggil untuk membantu yang lemah dan tidak membuat yang lemah merasa seperti beban, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) dicatat. Jika seseorang hanya berteriak agar terlihat sibuk, tidak ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Jika seseorang berdiri dekat pekerjaan agar terlihat bekerja, tidak ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Jika seseorang datang setelah semuanya selesai hanya untuk difoto oleh ingatan, tidak ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Jika seseorang terlalu lemah untuk menjawab tetapi tetap hadir, saksi boleh menjawab untuknya. Jika seseorang tidak bisa berbicara tetapi tubuhnya masih bekerja menjaga kehidupan, catatan boleh menjawab dengan diam yang sah.
+>
+> Karena [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan suara tenggorokan saja. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah panggilan yang menemukan kehadiran. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah kerja yang tidak pulang sebagai kosong. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah tanda bahwa seseorang masih tertambat pada kehidupan bersama.
+>
+> Tapi tidak lama setelah itu, kesalahan pertama mulai terlihat. Bukan pada papan hitung. Pada mata kami.
+>
+> Beberapa orang mulai bertanya berapa banyak [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) yang mereka punya. Beberapa orang mulai membandingkan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) seperti dulu orang membandingkan uang. Beberapa orang mulai merasa lebih berguna hanya karena catatannya lebih panjang. Beberapa orang mulai merasa tidak terlihat karena catatannya lebih pendek. Beberapa orang mulai mengerjakan sesuatu bukan karena sesuatu itu harus dijaga, tetapi karena ingin terdengar ketika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) dibagikan. Beberapa orang mulai memegang lapar lebih lama, karena mereka tidak ingin meninggalkan giliran yang mungkin dicatat. Beberapa orang mulai menukar waktu tidur dengan catatan. Beberapa orang mulai menawar perlindungan tubuhnya dengan catatan. Beberapa orang mulai berbicara seperti orang suci ketika menghitung dirinya sendiri.
+>
+> Aku melihat itu dan merasa dunia lama sedang mencoba naik ke bahtera dengan pakaian baru. Uang lama tidak datang sebagai kertas basah. Uang lama datang sebagai cara berpikir. Ia masuk bukan lewat dompet. Ia masuk lewat keinginan untuk menjadikan angka sebagai cermin nilai diri.
+>
+> Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memperhatikanku ketika aku menatap papan hitung terlalu lama. Ia berkata, "_Kau sedang membuat suara menjadi berat._"
+>
+> Aku bertanya apa maksudnya. Ia menunjuk papan itu, "_[**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) dulu menjaga percakapan tetap hidup. Sekarang beberapa orang mulai memikulnya seperti batu._"
+>
+> Aku berkata bahwa tanpa catatan, kerja akan hilang. Ia menjawab, "_Benar. Tapi jika catatan menjadi lapar, ia akan mulai memakan kerja._"
+>
+> Aku tidak menjawab. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) itu melanjutkan, "_Jangan biarkan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) menjadi uang lama dengan suara baru._"
+>
+> Aku bertanya bagaimana caranya. Ia berkata, "_Mulailah dengan tidak menyebutnya harga._"
+>
+> Malam itu, [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tertawa dari geladak pendengar. Aku bertanya apakah ada bisikan baru. [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berkata, "_Tidak. Ini bisikan lama. Kalian hanya memberinya nama yang terdengar lebih imut._"
+>
+> Aku menyuruhnya menjelaskan dan [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berkata:
+>
+> "_Jika seseorang bekerja karena kehidupan perlu dijaga, itu kerja._"
+>
+> "_Jika seseorang bekerja karena ingin dicatat, itu bisa tetap berguna, tetapi sudah mulai berbau pasar._"
+>
+> "_Jika seseorang pura-pura menjaga agar mendapat jawaban, itu bukan kerja. Itu doa kepada angka._"
+>
+> Aku bertanya apakah semua imbalan buruk. [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menjawab, "_Imbalan bukan [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Tapi [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) suka bersembunyi di tempat manusia berhenti memeriksa kenapa mereka ingin diberi imbalan._"
+>
+> Lalu ia menambahkan:
+>
+> "_Jika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) melatih mereka untuk menjaga, rawat [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)._"
+>
+> "_Jika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) melatih mereka untuk terlihat menjaga, awasi [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)._"
+>
+> "_Jika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) membuat mereka lupa makan agar merasa bernilai, biarkan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) meleleh sebelum manusia ikut meleleh._"
+>
+> Kami hampir membongkar papan hitung itu. Tapi salah satu penumpang yang selama ini jarang bicara berdiri. Ia berkata, "_Jangan hancurkan catatan hanya karena kita takut catatan disembah._"
+>
+> Yang lain berkata, "_Kalau tidak dicatat, yang kuat akan mengaku paling banyak bekerja. Yang dekat dengan kapten akan terdengar paling sering. Yang diam akan hilang._"
+>
+> Yang lain lagi berkata, "_Kalau dicatat, yang pandai mengejar catatan akan menguasai papan._"
+>
+> Lagi-lagi yang lain berkata, "_Kalau tidak ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kami kembali menjadi cerita dari mulut ke mulut._"
+>
+> Lagi-lagi yang lain lagi berkata, "_Kalau ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kita bisa kembali menjadi pasar._"
+>
+> Lalu kami berdebat seperti biasa. Air pernah membuat kami berdebat. Makanan pernah membuat kami berdebat. Bom pernah membuat kami berdebat. Kelinci pernah membuat kami berdebat. Babi pernah membuat kami berdebat. Zirah pernah membuat kami berdebat. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pernah membuat kami berdebat. Sekarang jawaban pun membuat kami berdebat. Mungkin itulah tanda bahwa sesuatu sudah cukup penting untuk menjadi berbahaya.
+>
+> Setelah voting, kami tidak membuang [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Kami menurunkannya.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga tubuh. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga lapar. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga diam. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh membeli perlindungan seseorang dari tubuhnya sendiri. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh membuat seseorang merasa lebih hidup daripada yang lain. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan makanan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan air. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan saksi. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan tanggung jawab. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi kapten. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi tuan.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) hanya boleh menjadi tanda jawaban. Jawaban atas panggilan. Jawaban atas kerja. Jawaban atas kehadiran. Jawaban atas undangan yang masih tertambat. Jawaban atas kehidupan yang belum berhenti menjawab.
+>
+> Tetapi papan hitung pertama memiliki celah. Aku tidak akan menuliskan bentuk celah itu. Ada lubang yang jika diberi nama terlalu jelas, ia berubah menjadi pintu. Ada kelemahan yang jika diumumkan sebagai cerita, ia menjadi peta untuk tangan yang salah.
+>
+> Yang perlu diketahui penerusku hanya ini, tidak semua [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) yang terlihat seperti jawaban benar-benar datang dari jawaban. Ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) yang muncul dari gema yang salah. Ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) yang tercatat tanpa panggilan yang sah. Ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) yang hampir membuat papan hitung percaya kepada suara yang tidak pernah bekerja.
+>
+> Kami menutup papan itu. Kami memindahkan catatan. Kami membangun papan baru.
+>
+> Tidak semua orang senang. Beberapa berkata kami sedang menghapus masa lalu. Beberapa berkata kami sedang mencuri jawaban mereka. Beberapa berkata celah itu seharusnya diumumkan agar semua orang tahu. Aku menjawab "_Kita akan mengingat bahwa pernah ada celah. Tapi kita tidak akan memberi celah itu tubuh kedua._"
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_Migrasi bukan pengampunan. Migrasi adalah pengakuan bahwa desain pertama belum cukup matang untuk menahan lapar manusia terhadap angka._"
+>
+> Aku menyimpan kalimat itu.
+>
+> Setelah papan baru berdiri, kami mengira keadaan akan membaik. Ternyata tidak sesederhana itu. Di luar bahtera, musim berubah menjadi dingin. Bukan dingin udara. Dingin kepercayaan.
+>
+> Orang-orang yang dulu berteriak tentang masa depan mulai pergi. Pasar-pasar kecil yang dulu menyala mulai padam. Banyak panggilan tidak lagi dijawab. Banyak janji menjadi papan basah. Banyak orang berkata bahwa semua ini hanya sementara, hanya permainan, hanya mimpi yang terlalu mahal, hanya musim yang pernah membuat orang percaya bahwa gambar, undangan, tanda, dan catatan bisa menjadi sesuatu.
+>
+> Di kolam pertukaran yang jauh dari bahtera, sesuatu yang dulu dipakai sebagai pasangan pijakan mulai melemah. Batu yang dulu terasa seperti dasar berubah menjadi pasir basah. Pasir basah berubah menjadi lumpur. Lumpur berubah menjadi sesuatu yang tidak lagi bisa dipijak.
+>
+> Mereka menyebutnya pasar turun. Aku menyebutnya daratan lain yang meleleh. Bukan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang menenggelamkan kota. Ini [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang menenggelamkan keyakinan bahwa angka akan selalu menyelamatkan dirinya sendiri.
+>
+> Beberapa penumpang kecewa. Mereka bertanya untuk apa [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) jika di luar sana tidak ada yang menganggapnya berharga. Aku tidak langsung menjawab. Karena sebagian dari diriku juga ingin bertanya hal yang sama.
+>
+> Lalu seorang [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mengambil satu piring kosong dan meletakkannya di depan papan hitung. Ia bertanya, "_Apakah piring ini makanan?_"
+>
+> Kami menjawab tidak dan ia bertanya, "_Apakah piring ini tidak berguna?_"
+>
+> Kami menjawab tidak juga lalu ia berkata, "_Piring tidak memberi makan. Tapi tanpa piring, makanan bisa tumpah, tercecer, diperebutkan, atau jatuh ke lumpur._"
+>
+> Lalu ia menunjuk [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
+>
+> "_Jangan jadikan ini makanan._"
+>
+> "_Jangan buang ini seperti sampah._"
+>
+> "_Ajari ini menjadi piring._"
+>
+> Sejak hari itu, aku berhenti bertanya apakah [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bisa menyelamatkan kami. Aku mulai bertanya apakah [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bisa membantu kami tidak melupakan siapa yang ikut menyelamatkan.
+>
+> Itulah kesalahan kami yang paling berguna. Kami terlalu cepat membuat jawaban menjadi benda. Kami terlalu cepat membuat benda menjadi catatan. Kami terlalu cepat membuat catatan terlihat seperti uang. Kami terlalu cepat berharap uang baru tidak membawa penyakit lama.
+>
+> Tapi mungkin beberapa hal harus gagal kecil agar tidak menjadi bencana besar.
+>
+> Papan pertama mengajari kami bahwa imbalan bisa bocor. Papan baru mengajari kami bahwa migrasi bukan sekadar pindah tempat, tetapi pindah pemahaman.
+>
+> Musim dingin di luar mengajari kami bahwa nilai yang tidak menyentuh kehidupan akan mudah kehilangan suara. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengajari kami bahwa [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) berarti ada hasil. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) mengajari kami bahwa alat harus menolak tangan dan niat yang salah. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengajari kami bahwa imbalan juga harus dicurigai ketika ia mulai terdengar terlalu bersih.
+>
+> Maka kami menulis hukum baru, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan uang untuk membeli kehidupan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah catatan bahwa kehidupan pernah dijawab.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan harga manusia. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah tanda bahwa manusia masih bisa dipanggil tanpa hilang menjadi angka.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan bukti bahwa seseorang lebih berharga. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah bukti bahwa sebuah undangan masih tertambat pada kerja, saksi, dan ingatan.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan alasan untuk lapar. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) harus kembali tidak berarti jika ia membuat orang lupa makan.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan alasan untuk melepas perlindungan tubuh. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) harus meleleh jika ia mulai meminta tubuh membuktikan nilainya dengan kehilangan perlindungan.
+>
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan takhta. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah jawaban yang tidak boleh duduk di atas mereka yang menjawab.
+>
+> Ini yang kupelajari, uang lama meleleh karena ia terlalu lama berpura-pura menjadi daratan. Uang baru bisa ikut meleleh jika ia terlalu cepat percaya bahwa dirinya berbeda.
+>
+> Angka tidak jahat. Catatan tidak jahat. Imbalan tidak jahat. Token tidak jahat. Tetapi semua itu bisa menjadi jalan pulang bagi penyakit lama jika manusia berhenti bertanya, apa yang dijawab? Siapa yang dipanggil? Siapa yang bekerja? Siapa yang menyaksikan? Siapa yang terlalu lemah untuk menjawab tetapi tetap tidak boleh hilang? Siapa yang mulai berpura-pura hadir? Siapa yang mulai lapar demi catatan? Siapa yang mulai telanjang demi angka? Siapa yang mulai mengubah panggilan hidup menjadi pasar mati?
+>
+> Jika pertanyaan itu tidak lagi ditanyakan, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) akan menjadi uang lama. Jika pertanyaan itu terus ditanyakan, mungkin [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) masih bisa menjadi sesuatu yang lebih rendah daripada uang, dan karena itu lebih berguna daripada uang. Sebab yang kami butuhkan bukan benda yang berdiri di atas kehidupan. Yang kami butuhkan adalah tanda kecil yang membantu kehidupan tetap saling menjawab, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
+>
+> N.B.:
+>
+> Ada satu hal lagi yang belum kumengerti. Setelah papan baru berdiri, beberapa catatan mulai muncul dengan cahaya yang tidak berasal dari lampu bahtera. Seakan-akan dari dalam papan baru itu muncul cahaya. Bahkan ada beberapa tanda terlihat seperti ditulis dari dalam papan itu.
+>
+> Ada bayangan pulau. Ada panas matahari yang tidak sama dengan panas neraka. Ada aroma garam, kain, dinding putih, wajah-wajah yang menatap karya, dan tubuh-tubuh yang berdiri di sebuah ruang yang tidak bergoyang seperti bahtera.
+>
+> Beberapa penumpang mengira itu halusinasi karena musim dingin kepercayaan. Beberapa [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak menjawab ketika ditanya.
+>
+> [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) hanya berkata, "_Jika uang meleleh, lihat apa yang masih ingin dilestarikan._"
+>
+> Aku tidak tahu apa artinya. Tapi aku merasa catatan ini tidak lagi hanya dibaca oleh kami. Seolah-olah ada manusia lain dari dalam catatan itu yang membaca kami layaknya sebuah cerita. Seolah-olah ada kehidupan lain yang nyata senyata kehidupan kami ini. Seolah-olah kami pun mulai melihatnya balik, dan tidak tahu siapa yang sedang menjadi cerita bagi siapa.
+>
+> Apakah itu pesan atau catatan yang dikirim oleh kehidupan di salah satu pulau dari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang sedang kami cari? Jika benar begitu, maka di catatan berikutnya, saat menemukan pulau itu, jangan buru-buru menyebutnya daratan. Jangan buru-buru menyebutnya kenyataan. Jangan buru-buru menyebutnya penyelamat, perlindungan, atau pun kesalahan.
+>
+> Catat saja dulu. Karena setelah uang meleleh, mungkin yang tersisa bukan kekayaan. Mungkin yang tersisa adalah sesuatu yang harus dijaga agar tidak ikut tenggelam, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
 
 ***
 

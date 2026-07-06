@@ -571,13 +571,13 @@ coverY: 0
 >
 > "_BOII! BOII!_"
 >
-> The divers disappeared into the thick surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We waited. The ropes shook. The mud bubbled. Some came back coughing with nothing. Some came back crying after finding only empty air pockets. Then, from below, a reply came, "_OiOi! OiOi!_"
+> The divers disappeared into the thick surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We waited. The ropes shook. The mud bubbled. Some came back coughing with nothing. Some came back crying after finding only empty air pockets. Then, from below, a reply came, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > They had found them. Pigs inside an air pocket.
 >
 > After that, the call became a system. From above, "_BOII! BOII!_"
 >
-> From below, if life was found, "_OiOi! OiOi!_"
+> From below, if life was found, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > That is how the name spread through the ark, [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/).
 >
@@ -613,7 +613,7 @@ coverY: 0
 >
 > Messages were sent outward. The call spread, "_BOII! BOII!_"
 >
-> The answer spread, "_OiOi! OiOi!_"
+> The answer spread, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > Other vessels tried to do the same. Some succeeded for a while. Most failed.
 >
@@ -661,7 +661,7 @@ coverY: 0
 >
 > From above, "_BOII! BOII!_"
 >
-> From below, "_OiOi! OiOi!_"
+> From below, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > To all my successors, and to all who read this log. Do not wait until hunger becomes your captain. Build the system before the stomach writes the law. Feed the living without killing the future.
 

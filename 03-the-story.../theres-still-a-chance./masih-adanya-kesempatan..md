@@ -570,13 +570,13 @@ coverY: 0
 >
 > Penemuan pertama tidak datang dari pencarian resmi. Penemuan itu datang dari sebuah teriakan. Mereka yang tinggal di atas permukaan berteriak kepada mereka yang menyelam ke bawah, "_BOII! BOII!_"
 >
-> Para penyelam menghilang ke dalam permukaan tebal [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kami menunggu. Tali-tali bergetar. Lumpur bergelembung. Sebagian kembali sambil terbatuk tanpa membawa apa pun. Sebagian kembali sambil menangis setelah hanya menemukan kantong-kantong udara kosong. Lalu, dari bawah, sebuah jawaban terdengar, "_OiOi! OiOi!_"
+> Para penyelam menghilang ke dalam permukaan tebal [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kami menunggu. Tali-tali bergetar. Lumpur bergelembung. Sebagian kembali sambil terbatuk tanpa membawa apa pun. Sebagian kembali sambil menangis setelah hanya menemukan kantong-kantong udara kosong. Lalu, dari bawah, sebuah jawaban terdengar, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > Mereka telah menemukannya. Babi-babi di dalam kantong udara.
 >
 > Setelah itu, panggilan itu menjadi sebuah sistem. Dari atas, "_BOII! BOII!_"
 >
-> Dari bawah, jika kehidupan ditemukan, "_OiOi! OiOi!_"
+> Dari bawah, jika kehidupan ditemukan, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > Begitulah nama itu menyebar ke seluruh bahtera, [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/).
 >
@@ -614,7 +614,7 @@ coverY: 0
 >
 > Pesan-pesan dikirim ke luar. Panggilan itu menyebar, "_BOII! BOII!_"
 >
-> Jawaban itu menyebar, "_OiOi! OiOi!_"
+> Jawaban itu menyebar, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > Kendaraan-kendaraan penyelamat lain mencoba melakukan hal yang sama. Sebagian berhasil untuk sementara. Sebagian besar gagal.
 >
@@ -662,7 +662,7 @@ coverY: 0
 >
 > Dari atas, "_BOII! BOII!_"
 >
-> Dari bawah, "_OiOi! OiOi!_"
+> Dari bawah, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
 > Untuk semua penerusku, dan untuk semua yang membaca catatan ini. Jangan menunggu sampai rasa lapar menjadi Kapten kalian. Bangun sistem sebelum perut menulis hukum. Beri makan yang hidup tanpa membunuh masa depan.
 

@@ -96,15 +96,15 @@ coverY: 0
 >
 > #### PSEUDONYMOUS INVITATION
 >
-> Even on a limited basis, **Mr. BROY** has a purpose to invite and save mankind who likes to drink the **Nameless Liquid**, to participate and join in [**The ROTY BROI's ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), to sail [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth. Besides that, **Mr. BROY** can also feel a little peace, a little restlessness can be put to sleep when he is busy building the ark.
+> Even on a limited basis, **Mr. BROY** has a purpose to invite and save mankind who likes to drink the **Nameless Liquid**, to participate and join in [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), to sail [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth. Besides that, **Mr. BROY** can also feel a little peace, a little restlessness can be put to sleep when he is busy building the ark.
 >
 > Pseudonymous invitations have been created and provided by **Mr. BROY** in a very limited manner, there are only 1047 invitations, with unique illustrations, which were drawn by **Mr. BROY** himself.
 >
 > #### MINT THE INVITATION
 >
-> Whoever holds the invitation in their wallet can join [**The ROTY BROI's ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Together we sail the sea of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth. Without having to worry about running out of the **Nameless Liquid** and ready to welcome a new leaf of life on the new surface of the Earth, which is eternal throughout time.
+> Whoever holds the invitation in their wallet can join [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Together we sail the sea of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth. Without having to worry about running out of the **Nameless Liquid** and ready to welcome a new leaf of life on the new surface of the Earth, which is eternal throughout time.
 >
-> Get [**The ROTY BROI's ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) invitation, mint the invitation, hold it in your wallet, and make sure your fellow brothers are not left behind and forgotten.
+> Get [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) invitation, mint the invitation, hold it in your wallet, and make sure your fellow brothers are not left behind and forgotten.
 
 ***
 
@@ -302,11 +302,11 @@ coverY: 0
 >
 > A BOMB.
 >
-> At first, all passengers of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) thought that another piece of the old world had collapsed into the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). But the sound did not come from the land. There was no land left to collapse.
+> At first, all passengers of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) thought that another piece of the old world had collapsed into the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). But the sound did not come from the land. There was no land left to collapse.
 >
 > The sound came from war.
 >
-> One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) was standing near the edge of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) when the explosion happened. She was not the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who brought the maps. Or maybe she was. I could no longer be certain, because every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had the same face, the same name, and yet each of them carried a different way of surviving.
+> One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) was standing near the edge of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) when the explosion happened. She was not the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who brought the maps. Or maybe she was. I could no longer be certain, because every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) had the same face, the same name, and yet each of them carried a different way of surviving.
 >
 > This [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) wore something that looked like a torn communication officer uniform. She did not scream when the explosion shook the air. She only closed her eyes, listened to the echo, and said, "_That was not the land collapsing._"
 >
@@ -330,7 +330,7 @@ coverY: 0
 >
 > I still do not know whether they voted as different people, or as one mystery scattered into many bodies. But their votes were counted like everyone else's. That is how I became [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
-> I did not ask for this anger, but I will not throw it away. Anger is dangerous when it becomes a bomb. But anger can become a message when it is tied to a sail. That is what we did. We took down the old sailcloth of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and covered the ark with a larger sailcloth carrying one message:
+> I did not ask for this anger, but I will not throw it away. Anger is dangerous when it becomes a bomb. But anger can become a message when it is tied to a sail. That is what we did. We took down the old sailcloth of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and covered the ark with a larger sailcloth carrying one message:
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
@@ -370,7 +370,7 @@ coverY: 0
 >
 > With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We mourned them.
 >
-> Then we joined what remained. Seven vessels became one greater ark. We still call it [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Not because the others disappeared into our name, but because every ark that joined us carried the same message into the same survival body. 
+> Then we joined what remained. Seven vessels became one greater ark. We still call it [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Not because the others disappeared into our name, but because every ark that joined us carried the same message into the same survival body. 
 >
 > The message became louder. The sail became wider. The ark became stronger. The passengers became more than passengers. They became messengers.
 >
@@ -401,7 +401,7 @@ coverY: 0
 >
 > Some vessels answered it. Some followed it. Some only watched it from far away. Some may have rejected it. But the message had already become part of the wind. Once a message enters the wind, no Captain can fully command where it goes.
 >
-> Then the rabbits appeared. At first, I thought I saw a small creature jumping between broken boards. Then another one appeared on a floating tire. Then another one leaped from the remains of a roof to a drifting door. Then one landed on the outer side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook some mud from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
+> Then the rabbits appeared. At first, I thought I saw a small creature jumping between broken boards. Then another one appeared on a floating tire. Then another one leaped from the remains of a roof to a drifting door. Then one landed on the outer side of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook some mud from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
 >
 > I wanted to say "rabbit", but no one said "rabbit". Everyone pointed and shouted the same name:
 >
@@ -499,7 +499,7 @@ coverY: 0
 >
 > ***
 >
-> Source: Scratched wood found attached to the side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> Source: Scratched wood found attached to the side of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Message:\
 > Do not look at your friend like food. Not yet. Please.
@@ -537,7 +537,7 @@ coverY: 0
 >
 > **What can still be eaten?**
 >
-> We received messages from outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) asking the same thing. Some came through broken radio calls. Some came through bottles. Some came scratched into plastic containers. Some were written on cloth tied to floating branches. Some were nothing but voices recorded on devices that still had a little battery left. All of them carried the same fear:
+> We received messages from outside [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) asking the same thing. Some came through broken radio calls. Some came through bottles. Some came scratched into plastic containers. Some were written on cloth tied to floating branches. Some were nothing but voices recorded on devices that still had a little battery left. All of them carried the same fear:
 >
 > **food was disappearing.**
 >
@@ -617,7 +617,7 @@ coverY: 0
 >
 > Other vessels tried to do the same. Some succeeded for a while. Most failed.
 >
-> Outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), many could still find [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) in the air pockets under [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), but almost none could keep them breeding.
+> Outside [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), many could still find [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) in the air pockets under [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), but almost none could keep them breeding.
 >
 > The animals weakened. Some stopped eating. Some refused the water. Some became sick after being brought above the surface. Some escaped back into the mud. Some died before giving life to another generation.
 >
@@ -629,7 +629,7 @@ coverY: 0
 >
 > I asked what else it carried. Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered, "_Dunno What Water._"
 >
-> I understood before she said the rest. The recycled water of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) had been contaminated by traces of **Nameless Liquid**. The liquid from the land of **Dunno What Water**. The liquid that once brought peace to those who drank it. The liquid that could not save **Mr. BROY** from fear, but perhaps could help the ark keep something alive.
+> I understood before she said the rest. The recycled water of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) had been contaminated by traces of **Nameless Liquid**. The liquid from the land of **Dunno What Water**. The liquid that once brought peace to those who drank it. The liquid that could not save **Mr. BROY** from fear, but perhaps could help the ark keep something alive.
 >
 > That is why [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) lived better here. That is why they calmed faster. That is why they bred. That is why our survival began to look like a secret.
 >
@@ -649,7 +649,7 @@ coverY: 0
 >
 > We tried to find them. We failed many times. Some may still be waiting. Some may no longer be able to wait.
 >
-> Until this log is written, I fear that outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) is becoming harder to find.
+> Until this log is written, I fear that outside [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) is becoming harder to find.
 >
 > The air pockets are emptying. The hunters are growing tired. The breeders are failing. Hunger is returning to the eyes.
 >
@@ -680,7 +680,7 @@ coverY: 0
 >
 > But after food came another question. How do we protect what we are trying to keep alive?
 >
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) gave us food that could continue. The recycled water of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), contaminated by traces of **Nameless Liquid**, gave that life a chance to breed. The agreement we made kept hunger from becoming king. But all of that still needed hands, divers, repairers, guards, carriers, breeders, cooks, medics, and messengers. All of them were tired. All of them were fragile. All of them could still be broken by waves, mud, metal, panic, bombs, and the wrong intention of another living being.
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) gave us food that could continue. The recycled water of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), contaminated by traces of **Nameless Liquid**, gave that life a chance to breed. The agreement we made kept hunger from becoming king. But all of that still needed hands, divers, repairers, guards, carriers, breeders, cooks, medics, and messengers. All of them were tired. All of them were fragile. All of them could still be broken by waves, mud, metal, panic, bombs, and the wrong intention of another living being.
 >
 > That was when [**ROTY BROI Passenger (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) became another fringe in theory.
 >
@@ -786,7 +786,7 @@ coverY: 0
 >
 > The first controlled use happened with the divers. A diver wearing early [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) entered a small air pocket under [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). The [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) sealed around his eyes and mouth, tightened around his ribs, protected his skin from sharp debris, and helped him return with two small animals that would have been lost. When he panicked, the [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) became rigid enough to keep his body from folding. When he tried to pull too hard and almost crush what he was carrying, the gloves softened until his grip became careful.
 >
-> The second use happened on the hull. A repairer wearing [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) climbed outside [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) during a storm of mud, broken wood, and metal scraps. The [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) did not make him invincible, but it took the cuts that his skin would have taken. It grew temporary hooks when he needed to hold the side of the ark. It sealed around his feet when the surface became too slick. When a wave tried to pull him away, the [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) spread like a dark net across his back and kept him tied to the rope.
+> The second use happened on the hull. A repairer wearing [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) climbed outside [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) during a storm of mud, broken wood, and metal scraps. The [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) did not make him invincible, but it took the cuts that his skin would have taken. It grew temporary hooks when he needed to hold the side of the ark. It sealed around his feet when the surface became too slick. When a wave tried to pull him away, the [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) spread like a dark net across his back and kept him tied to the rope.
 >
 > The third use happened in the food division. Someone wearing a lighter [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) carried feed, water, and sick [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) without crushing them, dropping them, or contaminating the wrong containers. The [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) learned gentleness from repetition. It became harder near danger, softer near breath, and almost cloth-like when touching newborn life.
 >
@@ -992,7 +992,7 @@ coverY: 0
 >
 > maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) do not become good because they are forgiven. Maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to retire when evil no longer needs them.
 >
-> We debated whether the [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) could be near [**The ROTY BROI Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> We debated whether the [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) could be near [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > Some passengers said no. Some passengers said we should throw every message back into the waves. Some passengers said accepting [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) would insult everyone who had survived without becoming cruel. Some passengers said accepting [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) would endanger the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the children we hoped still existed somewhere, the food system, water, maps, armor, the weak, the tired, and the future.
 >
@@ -1153,7 +1153,7 @@ coverY: 0
 >
 > Who guards the water when everyone sleeps? Who repairs the hull when the storm makes iron and wood sound like broken teeth? Who dives and returns with something still alive? Who cares for [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) without turning it into private property? Who wears [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) to work, not to stand higher than those without armor? Who carries the message so help falls before bombs do? Who remains on the ark when their invitation could be taken away, sold, exchanged, or forgotten?
 >
-> We already had 1047 invitations. But an invitation proves that there was once a door. An invitation does not always prove that someone still stays, still guards, still answers, still remains part of the survival body we call [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> We already had 1047 invitations. But an invitation proves that there was once a door. An invitation does not always prove that someone still stays, still guards, still answers, still remains part of the survival body we call [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > Then an idea appeared, simple at first, tether the invitation. Do not surrender it. Do not erase it. Do not seize it. Tether it. Like a small boat that still belongs to its owner, but whose rope is tied to the ark so everyone knows it has not left.
 >

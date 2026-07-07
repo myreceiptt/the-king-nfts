@@ -318,7 +318,7 @@ coverY: 0
 >
 > I repeat this because my anger still needs a shape. In the middle of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), when every living being is already struggling not to sink, someone still chose to drop a bomb. This is another fringe in theory. When the world was whole, they said war happened because people fought over land. Now there is no land, and war still found a way to float.
 >
-> [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) gathered us and spoke honestly. He said he could lead in emergency. He could defend. He could think through panic. He could continue the journey to find [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). But he was not prepared to lead us through a war born inside a disaster. He was a fighter, not a war strategist. He was a captain for survival, not for geopolitical madness.
+> [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) gathered us and spoke honestly. He said he could lead in emergency. He could defend. He could think through panic. He could continue the journey to find [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). But he was not prepared to lead us through a war born inside a disaster. He was a fighter, not a war strategist. He was a Captain for survival, not for geopolitical madness.
 >
 > During the long discussion, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not speak as one voice. That made me more afraid. Until that day, their mystery had always been in their sameness. Same name. Same body. Same face. Same sudden appearance among the waves of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
@@ -399,7 +399,7 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> Some vessels answered it. Some followed it. Some only watched it from far away. Some may have rejected it. But the message had already become part of the wind. Once a message enters the wind, no captain can fully command where it goes.
+> Some vessels answered it. Some followed it. Some only watched it from far away. Some may have rejected it. But the message had already become part of the wind. Once a message enters the wind, no Captain can fully command where it goes.
 >
 > Then the rabbits appeared. At first, I thought I saw a small creature jumping between broken boards. Then another one appeared on a floating tire. Then another one leaped from the remains of a roof to a drifting door. Then one landed on the outer side of [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook some mud from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
 >
@@ -637,9 +637,9 @@ coverY: 0
 >
 > Another said, "_Peace water must become infrastructure, not panic._"
 >
-> Another said, "_Keep it between the captain and the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) until the ark learns how to protect what protects it._"
+> Another said, "_Keep it between the Captain and the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) until the ark learns how to protect what protects it._"
 >
-> So I kept the secret. I write it here because a log is not gossip. A log is a burden passed to the next captain.
+> So I kept the secret. I write it here because a log is not gossip. A log is a burden passed to the next Captain.
 >
 > To my successors: Protect the water. Protect the breeding. Protect those who cannot eat what others eat. Protect the agreement. Protect the difference between emergency and greed.
 >
@@ -663,7 +663,7 @@ coverY: 0
 >
 > From below, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
-> To all my successors, and to all who read this log. Do not wait until hunger becomes your captain. Build the system before the stomach writes the law. Feed the living without killing the future.
+> To all my successors, and to all who read this log. Do not wait until hunger becomes your Captain. Build the system before the stomach writes the law. Feed the living without killing the future.
 
 ***
 
@@ -810,7 +810,7 @@ coverY: 0
 >
 > Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_The body is the wallet. The blood is the signature. The intention is the key._"
 >
-> I wrote that down even though I did not fully understand it. Perhaps future captains will.
+> I wrote that down even though I did not fully understand it. Perhaps future Captains will.
 >
 > What I know is this:
 >
@@ -1205,7 +1205,7 @@ coverY: 0
 >
 > We almost dismantled the counting board. But one passenger who had rarely spoken stood up. He said, "_Do not destroy the record only because we are afraid the record will be worshiped._"
 >
-> Another said, "_If it is not recorded, the strong will claim they worked the most. Those close to the captain will be heard most often. The silent will disappear._"
+> Another said, "_If it is not recorded, the strong will claim they worked the most. Those close to the Captain will be heard most often. The silent will disappear._"
 >
 > Another one said, "_If it is recorded, those who are skilled at chasing records will control the board._"
 >
@@ -1217,7 +1217,7 @@ coverY: 0
 >
 > After voting, we did not throw [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) away. We lowered it.
 >
-> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of a body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of hunger. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of silence. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not buy someone's protection away from their own body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not make someone feel more alive than others. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace food. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace water. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace witnesses. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace responsibility. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become captain. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become master.
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of a body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of hunger. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of silence. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not buy someone's protection away from their own body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not make someone feel more alive than others. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace food. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace water. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace witnesses. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace responsibility. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become Captain. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become master.
 >
 > [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may only become a sign of answer. Answer to a call. Answer to work. Answer to presence. Answer to an invitation that remains tethered. Answer to life that has not stopped answering.
 >

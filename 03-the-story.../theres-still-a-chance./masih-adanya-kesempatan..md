@@ -87,7 +87,7 @@ coverY: 0
 >
 > #### NEGERI ENTAH AIR APA
 >
-> Fakta rahasia itulah yang diketahui oleh **Pak BROY**, seorang warga-penduduk di negeri **Entah Air Apa**. Negeri **Entah Air Apa** merupakan negara yang terkenal dengan hasil alam berupa cairan tanpa nama yang mampu membawa ketenangan bagi yang meminumnya. Namun kedamaian itu tidak lagi dirasakan oleh **Pak BROY** karena beliau mengetahui bahwa ada fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi.
+> Fakta rahasia itulah yang diketahui oleh **Pak BROY**, seorang warga-penduduk di negeri **Entah Air Apa**. Negeri **Entah Air Apa** merupakan negara yang terkenal dengan hasil alam berupa **Cairan Tanpa Nama** yang mampu membawa ketenangan bagi yang meminumnya. Namun kedamaian itu tidak lagi dirasakan oleh **Pak BROY** karena beliau mengetahui bahwa ada fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi.
 >
 > #### [BAHTERA ROTY BROI](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -731,7 +731,7 @@ coverY: 0
 >
 > Aku dipanggil setelah pembentukan pertama itu selesai. Ketika aku tiba, [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) berdiri di dalam sebuah ruang tertutup bersama satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), beberapa wadah tersegel, sebuah alat kecil yang belum pernah kulihat sebelumnya, dan tong air yang telah dia kontaminasi. Dia terlihat malu, terpukau, ketakutan, dan hidup dengan cara yang belum pernah kulihat darinya.
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sudah mengambil sampel kecil dari zirah itu. Dia berkata, "_Tinta mengingat bentuk. Darah mengingat pemilik. Cairan Tanpa Nama mengingat kedamaian. Bersama-sama, mereka sedang mencoba memutuskan apa arti perlindungan._"
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sudah mengambil sampel kecil dari zirah itu. Dia berkata, "_Tinta mengingat bentuk. Darah mengingat pemilik. **Cairan Tanpa Nama** mengingat kedamaian. Bersama-sama, mereka sedang mencoba memutuskan apa arti perlindungan._"
 >
 > Itu penjelasan pertamanya. Itu belum cukup. Maka [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mulai mengujinya. Dia mengetahui bahwa zirah itu tidak terbuat dari air saja. Air daur ulang yang terkontaminasi **Cairan Tanpa Nama** hanyalah medium hidupnya. Tinta tattoo membawa bentuk, simbol, kebiasaan, ingatan, dan identitas. Darahnya memberi zirah itu tubuh yang sah. Ketakutannya hampir mengubahnya menjadi senjata. Perintah [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) untuk memikirkan perlindungan telah menariknya menjauh dari arah itu.
 >

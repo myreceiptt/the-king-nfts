@@ -1062,9 +1062,9 @@ coverY: 0
 
 > Recovered Broadcast Fragments...
 >
-> Source: An Old Market That No Longer Knew Price
->
 > Broadcast Date: May 13, 2022
+>
+> Source: An Old Market That No Longer Knew Price
 >
 > Subject: The numbers still exist, but they are no longer obeyed.
 >
@@ -1091,9 +1091,9 @@ coverY: 0
 >
 > Recovered Broadcast Fragments...
 >
-> Source: A Wallet Found Floating Between Two Planks
->
 > Broadcast Date: June 19, 2022
+>
+> Source: A Wallet Found Floating Between Two Planks
 >
 > Subject: I worked to eat, then forgot to eat.
 >

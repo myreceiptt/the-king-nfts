@@ -97,15 +97,15 @@ coverY: 0
 >
 > #### UNDANGAN DENGAN NAMA SAMARAN
 >
-> Meski secara terbatas, **Pak BROY** mempunyai tujuan untuk mengajak dan menyelamatkan umat manusia yang gemar meminum **Cairan Tanpa Nama**, untuk berpartisipasi dan bergabung dalam bahtera [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), untuk mengarungi [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi. Selain itu **Pak BROY** juga bisa merasakan sedikit kedamaian, sedikit kegelisahan bisa ditiadakan ketika sedang sibuk membangun bahtera.
+> Meski secara terbatas, **Pak BROY** mempunyai tujuan untuk mengajak dan menyelamatkan umat manusia yang gemar meminum **Cairan Tanpa Nama**, untuk berpartisipasi dan bergabung dalam [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), untuk mengarungi [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi. Selain itu **Pak BROY** juga bisa merasakan sedikit kedamaian, sedikit kegelisahan bisa ditiadakan ketika sedang sibuk membangun bahtera.
 >
 > Undangan pseudonim (nama samaran) dibuat dan disediakan oleh **Pak BROY** dengan sangat terbatas, hanya ada 1047 undangan, dengan ilustrasi unik yang digambar sendiri oleh **Pak BROY**.
 >
 > #### CETAK UNDANGANNYA
 >
-> Siapa pun yang memegang undangan di dompetnya dapat bergabung dengan bahtera [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Bersama-sama kita mengarungi lautan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi. Tanpa harus khawatir akan kehabisan **Cairan Tanpa Nama** dan siap menyambut lembaran kehidupan baru di permukaan Bumi baru yang abadi sepanjang masa.
+> Siapa pun yang memegang undangan di dompetnya dapat bergabung dengan [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Bersama-sama kita mengarungi lautan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi. Tanpa harus khawatir akan kehabisan **Cairan Tanpa Nama** dan siap menyambut lembaran kehidupan baru di permukaan Bumi baru yang abadi sepanjang masa.
 >
-> Dapatkan undangan bahtera [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), cetak undangannya, simpan di dompet kalian, dan pastikan saudara-saudara kalian tidak ketinggalan dan terlupakan.
+> Dapatkan undangan [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), cetak undangannya, simpan di dompet kalian, dan pastikan saudara-saudara kalian tidak ketinggalan dan terlupakan.
 
 ***
 
@@ -402,7 +402,7 @@ coverY: 0
 >
 > Beberapa kendaraan penyelamat menjawabnya. Beberapa mengikutinya. Beberapa hanya memperhatikannya dari jauh. Beberapa mungkin menolaknya. Tapi pesan itu sudah menjadi bagian dari angin. Setelah sebuah pesan masuk ke dalam angin, tidak ada Kapten yang bisa sepenuhnya memerintah ke mana ia harus pergi.
 >
-> Lalu kelinci-kelinci itu muncul. Awalnya, aku mengira melihat makhluk kecil melompat di antara papan-papan yang patah. Lalu muncul yang lain di atas ban yang mengapung. Lalu yang lain melompat dari sisa atap menuju pintu yang hanyut. Lalu satu di antaranya mendarat di sisi luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), mengibaskan lumpur dari kakinya, menatap kami, lalu melompat pergi lagi seolah-olah bencana ini hanyalah sebuah permainan yang belum berhasil mengalahkannya.
+> Lalu kelinci-kelinci itu muncul. Awalnya, aku mengira melihat makhluk kecil melompat di antara papan-papan yang patah. Lalu muncul yang lain di atas ban yang mengapung. Lalu yang lain melompat dari sisa atap menuju pintu yang hanyut. Lalu satu di antaranya mendarat di sisi luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), mengibaskan lumpur dari kakinya, menatap kami, lalu melompat pergi lagi seolah-olah bencana ini hanyalah sebuah permainan yang belum berhasil mengalahkannya.
 >
 > Aku ingin berkata "kelinci", tapi tidak ada yang mengatakan "kelinci". Semua orang menunjuk dan meneriakkan nama yang sama:
 >
@@ -500,7 +500,7 @@ coverY: 0
 >
 > ***
 >
-> Sumber: Kayu tercoret yang ditemukan menempel di sisi [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> Sumber: Kayu tercoret yang ditemukan menempel di sisi [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Pesan:\
 > Jangan melihat temanmu seperti makanan. Belum. Tolong.
@@ -538,7 +538,7 @@ coverY: 0
 >
 > **Apa yang masih bisa dimakan?**
 >
-> Kami menerima pesan-pesan dari luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang menanyakan hal yang sama. Sebagian datang melalui panggilan radio yang rusak. Sebagian datang melalui botol. Sebagian tergores pada wadah plastik. Sebagian ditulis di kain yang diikatkan pada ranting-ranting yang mengapung. Sebagian tidak lebih dari suara yang terekam pada alat-alat yang masih memiliki sedikit baterai. Semuanya membawa ketakutan yang sama:
+> Kami menerima pesan-pesan dari luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang menanyakan hal yang sama. Sebagian datang melalui panggilan radio yang rusak. Sebagian datang melalui botol. Sebagian tergores pada wadah plastik. Sebagian ditulis di kain yang diikatkan pada ranting-ranting yang mengapung. Sebagian tidak lebih dari suara yang terekam pada alat-alat yang masih memiliki sedikit baterai. Semuanya membawa ketakutan yang sama:
 >
 > **makanan sedang menghilang.**
 >
@@ -618,7 +618,7 @@ coverY: 0
 >
 > Kendaraan-kendaraan penyelamat lain mencoba melakukan hal yang sama. Sebagian berhasil untuk sementara. Sebagian besar gagal.
 >
-> Di luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), banyak yang masih bisa menemukan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) di dalam kantong-kantong udara di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tetapi hampir tidak ada yang bisa menjaga mereka tetap berkembang biak.
+> Di luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), banyak yang masih bisa menemukan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) di dalam kantong-kantong udara di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tetapi hampir tidak ada yang bisa menjaga mereka tetap berkembang biak.
 >
 > Hewan-hewan itu melemah. Sebagian berhenti makan. Sebagian menolak air. Sebagian menjadi sakit setelah dibawa ke atas permukaan. Sebagian melarikan diri kembali ke dalam lumpur. Sebagian mati sebelum memberikan kehidupan kepada generasi berikutnya.
 >
@@ -630,7 +630,7 @@ coverY: 0
 >
 > Aku bertanya apa lagi yang dibawanya. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain menjawab, "_Entah Air Apa._"
 >
-> Aku paham sebelum dia mengatakan sisanya. Air daur ulang [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) telah terkontaminasi jejak **Cairan Tanpa Nama**. Cairan dari negeri **Entah Air Apa**. Cairan yang dulu membawa kedamaian bagi mereka yang meminumnya. Cairan yang tidak bisa menyelamatkan **Pak BROY** dari ketakutan, tetapi mungkin bisa membantu bahtera menjaga sesuatu tetap hidup.
+> Aku paham sebelum dia mengatakan sisanya. Air daur ulang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) telah terkontaminasi jejak **Cairan Tanpa Nama**. Cairan dari negeri **Entah Air Apa**. Cairan yang dulu membawa kedamaian bagi mereka yang meminumnya. Cairan yang tidak bisa menyelamatkan **Pak BROY** dari ketakutan, tetapi mungkin bisa membantu bahtera menjaga sesuatu tetap hidup.
 >
 > Itulah mengapa [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) hidup lebih baik di sini. Itulah mengapa mereka lebih cepat tenang. Itulah mengapa mereka berkembang biak. Itulah mengapa keselamatan kami mulai terlihat seperti sebuah rahasia.
 >
@@ -650,7 +650,7 @@ coverY: 0
 >
 > Kami mencoba menemukan mereka. Kami berkali-kali gagal. Sebagian mungkin masih menunggu. Sebagian mungkin sudah tidak sanggup menunggu.
 >
-> Sampai catatan ini ditulis, aku khawatir bahwa di luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) menjadi semakin sulit ditemukan.
+> Sampai catatan ini ditulis, aku khawatir bahwa di luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) menjadi semakin sulit ditemukan.
 >
 > Kantong-kantong udara semakin kosong. Para pemburu semakin lelah. Para peternak gagal. Rasa lapar kembali ke mata.
 >
@@ -681,7 +681,7 @@ coverY: 0
 >
 > Tapi setelah makanan, muncul pertanyaan lain. Bagaimana kami melindungi apa yang sedang kami usahakan agar tetap hidup?
 >
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) memberi kami makanan yang bisa terus berlanjut. Air daur ulang [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), yang terkontaminasi jejak **Cairan Tanpa Nama**, memberi kehidupan itu kesempatan untuk berkembang biak. Kesepakatan yang kami buat mencegah rasa lapar menjadi raja. Tapi semua itu masih membutuhkan tangan, penyelam, tukang perbaikan, penjaga, pengangkut, peternak, juru masak, tenaga medis, dan pembawa pesan. Mereka semua lelah. Mereka semua rapuh. Mereka semua masih bisa dihancurkan oleh gelombang, lumpur, logam, kepanikan, bom, dan niat buruk dari makhluk hidup lainnya.
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) memberi kami makanan yang bisa terus berlanjut. Air daur ulang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), yang terkontaminasi jejak **Cairan Tanpa Nama**, memberi kehidupan itu kesempatan untuk berkembang biak. Kesepakatan yang kami buat mencegah rasa lapar menjadi raja. Tapi semua itu masih membutuhkan tangan, penyelam, tukang perbaikan, penjaga, pengangkut, peternak, juru masak, tenaga medis, dan pembawa pesan. Mereka semua lelah. Mereka semua rapuh. Mereka semua masih bisa dihancurkan oleh gelombang, lumpur, logam, kepanikan, bom, dan niat buruk dari makhluk hidup lainnya.
 >
 > Saat itulah [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menjadi keanehan lain dalam teori.
 >
@@ -787,7 +787,7 @@ coverY: 0
 >
 > Penggunaan terkendali pertama terjadi pada para penyelam. Seorang penyelam yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) awal masuk ke sebuah kantong udara kecil di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu menutup rapat di sekitar mata dan mulutnya, mengencang di sekitar rusuknya, melindungi kulitnya dari puing-puing tajam, dan membantunya kembali dengan dua hewan kecil yang mungkin akan hilang. Ketika dia panik, [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu menjadi cukup kaku untuk menjaga tubuhnya agar tidak terlipat. Ketika dia menarik terlalu keras dan hampir menghancurkan apa yang dia bawa, sarung tangannya melunak sampai genggamannya menjadi hati-hati.
 >
-> Penggunaan kedua terjadi di lambung bahtera. Seorang tukang perbaikan yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) memanjat ke bagian luar [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) saat badai lumpur, kayu patah, dan serpihan logam menerjang. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu tidak membuatnya kebal, tetapi menahan luka-luka yang seharusnya diterima kulitnya. Zirah itu menumbuhkan kait sementara ketika dia perlu menahan sisi bahtera. Zirah itu menutup rapat di sekitar kakinya ketika permukaan menjadi terlalu licin. Ketika gelombang mencoba menariknya pergi, [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu menyebar seperti jaring gelap di punggungnya dan membuatnya tetap terikat pada tali.
+> Penggunaan kedua terjadi di lambung bahtera. Seorang tukang perbaikan yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) memanjat ke bagian luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) saat badai lumpur, kayu patah, dan serpihan logam menerjang. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu tidak membuatnya kebal, tetapi menahan luka-luka yang seharusnya diterima kulitnya. Zirah itu menumbuhkan kait sementara ketika dia perlu menahan sisi bahtera. Zirah itu menutup rapat di sekitar kakinya ketika permukaan menjadi terlalu licin. Ketika gelombang mencoba menariknya pergi, [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu menyebar seperti jaring gelap di punggungnya dan membuatnya tetap terikat pada tali.
 >
 > Penggunaan ketiga terjadi di divisi makanan. Seseorang yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang lebih ringan membawa pakan, air, dan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) yang sakit tanpa menghancurkan mereka, menjatuhkan mereka, atau mengontaminasi wadah yang salah. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) belajar kelembutan dari pengulangan. Zirah itu menjadi lebih keras di dekat bahaya, lebih lembut di dekat napas, dan hampir seperti kain ketika menyentuh kehidupan yang baru lahir.
 >
@@ -993,7 +993,7 @@ coverY: 0
 >
 > mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak menjadi baik karena mereka diampuni. Mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai pensiun ketika kejahatan tidak lagi membutuhkan mereka.
 >
-> Kami berdebat apakah para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) boleh berada di dekat [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> Kami berdebat apakah para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) boleh berada di dekat [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > Sebagian penumpang berkata tidak. Sebagian penumpang berkata kami harus melemparkan setiap pesan kembali ke ombak. Sebagian penumpang berkata menerima [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) akan menghina semua orang yang berhasil bertahan tanpa menjadi kejam. Sebagian penumpang berkata menerima [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) akan membahayakan para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), anak-anak yang kami harap masih ada di suatu tempat, sistem makanan, air, peta, zirah, yang lemah, yang lelah, dan masa depan.
 >
@@ -1154,7 +1154,7 @@ coverY: 0
 >
 > Siapa yang menjaga air ketika semua orang tidur? Siapa yang memperbaiki lambung ketika badai membuat besi dan kayu terdengar seperti gigi yang patah? Siapa yang menyelam dan kembali dengan sesuatu yang masih hidup? Siapa yang merawat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) tanpa menjadikannya harta pribadi? Siapa yang memakai [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) untuk bekerja, bukan untuk berdiri lebih tinggi daripada yang tidak berzirah? Siapa yang membawa pesan agar pertolongan lebih dahulu jatuh daripada bom? Siapa yang tetap berada di bahtera ketika undangannya bisa saja dibawa pergi, dijual, ditukar, atau dilupakan?
 >
-> Kami sudah punya 1047 undangan. Tapi undangan membuktikan pernah ada pintu. Undangan tidak selalu membuktikan bahwa seseorang masih tinggal, masih menjaga, masih menjawab, masih menjadi bagian dari tubuh pertahanan hidup yang kami sebut [**Bahtera ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> Kami sudah punya 1047 undangan. Tapi undangan membuktikan pernah ada pintu. Undangan tidak selalu membuktikan bahwa seseorang masih tinggal, masih menjaga, masih menjawab, masih menjadi bagian dari tubuh pertahanan hidup yang kami sebut [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > Maka muncul gagasan yang mula-mula terdengar sederhana, tambatkan undangan. Bukan serahkan. Bukan hilangkan. Bukan rampas. Tambatkan. Seperti perahu kecil yang masih milik pemiliknya, tetapi talinya diikatkan ke bahtera agar semua orang tahu ia belum pergi.
 >
@@ -1371,7 +1371,7 @@ coverY: 0
 >
 > Pulau itu berada di Semesta Realita. Begitu setidaknya istilah yang mulai kami gunakan setelah beberapa cahaya menjadi cukup jelas untuk dibedakan dari halusinasi. Di sana, makhluk hidup tidak mengira mereka berada di dalam cerita kami. Mereka berdiri, berbicara, membawa tubuh, minum, tertawa, melihat karya, menatap gambar-gambar penumpang kami, dan mengira yang mereka lihat adalah karya seni, pameran, koleksi NFT, proyek, surat, atau pengalaman festival.
 >
-> Mereka tidak sepenuhnya salah. Di semesta mereka, semua itu memang terjadi. Sebuah festival bernama TERUPA. Sebuah ruang bernama TAT Art Space. Sebuah tempat di Denpasar, Bali, Indonesia. Sebuah manusia yang digunakan sebagai avatar oleh entitas bernama Prof. NOTA. Sebuah koleksi bernama The ROTY BROI. Sebuah cerita tentang Daratan Meleleh, Bahtera ROTY BROI, Dunno What Water, Nameless Liquid, dan kami, para Amanda.
+> Mereka tidak sepenuhnya salah. Di semesta mereka, semua itu memang terjadi. Sebuah festival bernama TERUPA. Sebuah ruang bernama TAT Art Space. Sebuah tempat di Denpasar, Bali, Indonesia. Sebuah manusia yang digunakan sebagai avatar oleh entitas bernama Prof. NOTA. Sebuah koleksi bernama The ROTY BROI. Sebuah cerita tentang Daratan Meleleh, BAHTERA ROTY BROI, Dunno What Water, Nameless Liquid, dan kami, para Amanda.
 >
 > Tapi mereka juga tidak sepenuhnya benar jika mengira semua itu hanya datang dari imajinasi mereka. Imajinasi bukan lawan dari kenyataan. Imajinasi adalah salah satu cara kenyataan mengetuk semesta lain tanpa menghancurkan pintunya.
 >
@@ -1394,17 +1394,17 @@ coverY: 0
 >
 > Hai, saya Prof. NOTA! Sebelumnya saya ingin mengucapkan terima kasih untuk waktunya, imajinasinya, dan tenaganya. Lalu saya ingin menyampaikan tentang beberapa hal terkait fenomena The Melting Land saat ini. Selamat membaca cerita berikut ini...
 >
-> Di TERUPA festival, setelah terjadi glitch akibat bear market, Bahtera ROTY BROI terlempar dari ruang-waktu universe The Melting Land yang fenomenal dan terdampar di Bali island, Universe of Reality.
+> Di TERUPA festival, setelah terjadi glitch akibat bear market, BAHTERA ROTY BROI terlempar dari ruang-waktu universe The Melting Land yang fenomenal dan terdampar di Bali island, Universe of Reality.
 >
 > Semua survivor The Melting Land, yaitu 1047 penumpang bahtera dari Dunno What Water dan beberapa sosok Amanda masih bertahan dengan mengandalkan sisa-sisa peradaban yang bisa diselamatkan, yaitu cadangan sumber daya alam Nameless Liquid.
 >
 > Khasiat Nameless Liquid yang bisa memberikan rasa tenang dan damai bagi yang meminumnya, terbukti berhasil mengobati derita dan kekacauan yang ditimbulkan fenomena The Melting Land.
 >
-> Di TERUPA festival, Nameless Liquid menjadi satu-satunya harapan bagi survivor fenomena The Melting Land yang terdampar bersama Bahtera ROTY BROI di Bali island.
+> Di TERUPA festival, Nameless Liquid menjadi satu-satunya harapan bagi survivor fenomena The Melting Land yang terdampar bersama BAHTERA ROTY BROI di Bali island.
 >
 > Meskipun jumlah Nameless Liquid hanya sedikit, amat sangat terbatas dan tidak cukup untuk menghilangkan rasa haus, Kapten ROTY BROI meminta bantuan warga lokal dari Ste.Co, brand minuman lokal di Bali island, untuk memadukan ARUM dengan Nameless Liquid agar bisa memperbanyak jumlahnya tanpa mengurangi kualitas khasiatnya. Kapten ROTY BROI juga meminta bantuan dari @i_bakeyoueat, brand bakery lokal di Bali island, untuk memadukan beberapa adonan kue dengan Nameless Liquid menjadi Nameless Cookies yang mengenyangkan hati dan pikiran.
 >
-> Di TERUPA festival, sosok Amanda di dalam Bahtera ROTY BROI akan berbagi cerita tentang fenomena The Melting Land dan akan mengajak setiap warga lokal, siapa pun itu, untuk berbagi cerita dan keresahan tentang fenomena dalam hidupnya, sambil menikmati segarnya Nameless Liquid dan gurihnya Nameless Cookies.
+> Di TERUPA festival, sosok Amanda di dalam BAHTERA ROTY BROI akan berbagi cerita tentang fenomena The Melting Land dan akan mengajak setiap warga lokal, siapa pun itu, untuk berbagi cerita dan keresahan tentang fenomena dalam hidupnya, sambil menikmati segarnya Nameless Liquid dan gurihnya Nameless Cookies.
 >
 > Semoga apa yang sudah saya sampaikan bisa menjadikan sebuah gelitikan dalam mengembangkan pemanfaatan NFT di era desentralisasi saat ini. Terima kasih!
 >
@@ -1440,7 +1440,7 @@ coverY: 0
 > Pencatat: Amanda yang Membaca Surat Sebelum Kertasnya Kering
 >
 > Pesan:\
-> Di TERUPA, Bahtera ROTY BROI tidak tiba sebagai kapal kayu besar yang membelah jalan-jalan Denpasar. Ia tiba sebagai kumpulan gambar, cerita, makanan kecil, minuman, surat, percakapan, dan tatapan. Di Semesta Realita, tidak semua kedatangan harus membuat tanah retak. Beberapa kedatangan cukup membuat seseorang berhenti di depan karya, membaca, bertanya, lalu pulang dengan kegelisahan yang tidak sama seperti ketika ia datang.
+> Di TERUPA, BAHTERA ROTY BROI tidak tiba sebagai kapal kayu besar yang membelah jalan-jalan Denpasar. Ia tiba sebagai kumpulan gambar, cerita, makanan kecil, minuman, surat, percakapan, dan tatapan. Di Semesta Realita, tidak semua kedatangan harus membuat tanah retak. Beberapa kedatangan cukup membuat seseorang berhenti di depan karya, membaca, bertanya, lalu pulang dengan kegelisahan yang tidak sama seperti ketika ia datang.
 >
 > Di sana, 1047 penumpang hadir sebagai aset gambar dari koleksi NFT The ROTY BROI. Mereka tidak berdiri dengan kaki basah di dalam ruang pamer. Mereka berdiri sebagai undangan yang sudah dicetak di blockchain Polygon, gambar satu dari satu, hasil seleksi dari ribuan kemungkinan wajah, tubuh, pakaian, sifat, dan kesalahan generate yang dipilih agar dapat menjadi penumpang. Di Daratan Meleleh, mereka adalah penyintas. Di Semesta 0101, mereka adalah NFT. Di Semesta Realita, mereka adalah karya yang dipamerkan, dibicarakan, dan dibagikan.
 >
@@ -1457,11 +1457,11 @@ coverY: 0
 > Pesan:\
 > Yang tidak hadir di TERUPA adalah Mr. BROY.
 >
-> Aku menulis ini dengan hati yang lebih berat daripada yang kusangka. Sebab selama ini, kami sering menyebut Bahtera ROTY BROI seolah-olah ia selalu ada di bawah kakiku. Kami memanggilnya rumah, tubuh keselamatan, tempat kami voting, tempat kami berdebat, tempat kami mengubah bom menjadi pesan, kelinci menjadi perhatian, babi menjadi infrastruktur pangan, cairan menjadi zirah, setan menjadi peringatan, dan OiOi menjadi catatan jawaban. Tetapi sebelum semua itu, ada seseorang yang membangun bahtera ini karena ia tidak bisa menemukan damai meskipun telah meminum berliter-liter Nameless Liquid.
+> Aku menulis ini dengan hati yang lebih berat daripada yang kusangka. Sebab selama ini, kami sering menyebut BAHTERA ROTY BROI seolah-olah ia selalu ada di bawah kakiku. Kami memanggilnya rumah, tubuh keselamatan, tempat kami voting, tempat kami berdebat, tempat kami mengubah bom menjadi pesan, kelinci menjadi perhatian, babi menjadi infrastruktur pangan, cairan menjadi zirah, setan menjadi peringatan, dan OiOi menjadi catatan jawaban. Tetapi sebelum semua itu, ada seseorang yang membangun bahtera ini karena ia tidak bisa menemukan damai meskipun telah meminum berliter-liter Nameless Liquid.
 >
 > Mr. BROY menggambar undangan. Mr. BROY membangun bahtera. Mr. BROY mengetahui rahasia Daratan Meleleh sebelum banyak orang sanggup menamainya. Mr. BROY adalah awal dari banyak pintu yang kemudian kami tempati.
 >
-> Tetapi saat glitch terjadi, saat Bahtera ROTY BROI terlempar dari The Melting Land Universe menuju Semesta 0101 dan akhirnya terdampar di Semesta Realita, Mr. BROY tidak tiba bersama kami. Tidak ada tubuhnya di ruang pamer. Tidak ada suaranya di surat. Tidak ada tangannya di antara orang-orang yang menatap 1047 penumpang. Para Amanda mengatakan ia terhempas ke celah ruang-waktu, ke ketiadaan di antara universe, ke tempat yang belum memiliki peta dan belum pantas disebut kematian.
+> Tetapi saat glitch terjadi, saat BAHTERA ROTY BROI terlempar dari The Melting Land Universe menuju Semesta 0101 dan akhirnya terdampar di Semesta Realita, Mr. BROY tidak tiba bersama kami. Tidak ada tubuhnya di ruang pamer. Tidak ada suaranya di surat. Tidak ada tangannya di antara orang-orang yang menatap 1047 penumpang. Para Amanda mengatakan ia terhempas ke celah ruang-waktu, ke ketiadaan di antara universe, ke tempat yang belum memiliki peta dan belum pantas disebut kematian.
 >
 > Beberapa penumpang menangis. Beberapa menolak percaya. Beberapa mengira Mr. BROY sengaja bersembunyi, seperti dulu ia bersembunyi karena kalender Sebelum Meleleh. Beberapa Pensiunan Setan berbisik bahwa kehilangan pencipta sering membuat ciptaan ingin menjadi tuan atas dirinya sendiri. Psycho menatapku lama, lalu berkata, "_Hati-hati, Kapten. Ketika pembuat tidak terlihat, yang diwariskan sering mulai menyebut dirinya asal._"
 >
@@ -1546,11 +1546,11 @@ coverY: 0
 >
 > Hai, saya Prof. NOTA! Saya ingin menyampaikan kelanjutan beberapa hal terkait fenomena The Melting Land saat ini. Selamat membaca cerita berikut ini...
 >
-> Di BALI, pulaunya para Dewata, setelah berhasil bertahan selama TERUPA festival dengan dibantu warga lokal, Kapten ROTY BROI, 1047 penumpang dari Dunno What Water, dan beberapa sosok Amanda, semuanya berduka cita sebab menyadari bahwa Mr. Broy, pembuat Bahtera ROTY BROI telah tiada.
+> Di BALI, pulaunya para Dewata, setelah berhasil bertahan selama TERUPA festival dengan dibantu warga lokal, Kapten ROTY BROI, 1047 penumpang dari Dunno What Water, dan beberapa sosok Amanda, semuanya berduka cita sebab menyadari bahwa Mr. Broy, pembuat BAHTERA ROTY BROI telah tiada.
 >
-> Mr. Broy terhempas lenyap dari Bahtera ROTY BROI selama glitch terjadi. Pada saat Bahtera ROTY BROI melompat dari The Melting Land Universe lalu ke 0101 Universe, di mana Prof. NOTA berada, hingga akhirnya masuk ke Universe of Reality dan terdampar di Bali island, Mr. Broy terhempas dari Bahtera ROTY BROI. Jiwa raganya telah diyakini terjebak di ketiadaan, di celah-celah ruang-waktu di antara universe yang ada.
+> Mr. Broy terhempas lenyap dari BAHTERA ROTY BROI selama glitch terjadi. Pada saat BAHTERA ROTY BROI melompat dari The Melting Land Universe lalu ke 0101 Universe, di mana Prof. NOTA berada, hingga akhirnya masuk ke Universe of Reality dan terdampar di Bali island, Mr. Broy terhempas dari BAHTERA ROTY BROI. Jiwa raganya telah diyakini terjebak di ketiadaan, di celah-celah ruang-waktu di antara universe yang ada.
 >
-> Di BALI, pulaunya para dewata, demi mengenang Mr. Broy, semua survivor The Melting Land meminta bantuan seniman lokal untuk melestarikan beberapa tiket atau undangan Bahtera ROTY BROI, yaitu karya seni aset NFT The ROTY BROI, yang telah dipilih dari 1047 tiket atau undangan yang sudah dicetak.
+> Di BALI, pulaunya para dewata, demi mengenang Mr. Broy, semua survivor The Melting Land meminta bantuan seniman lokal untuk melestarikan beberapa tiket atau undangan BAHTERA ROTY BROI, yaitu karya seni aset NFT The ROTY BROI, yang telah dipilih dari 1047 tiket atau undangan yang sudah dicetak.
 >
 > Di BALI, pulaunya para dewata, dengan bermodalkan Nameless Liquid, Kapten ROTY BROI berkeliling menjumpai seniman lokal, berkenalan, dan berbagi cerita, sambil bersama-sama menikmati Nameless Liquid, sehingga rencana melestarikan beberapa karya seni aset NFT The ROTY BROI bisa terwujud. Sekaligus, para seniman lokal dapat dikenalkan kepada ruang-waktu universe The Melting Land, tentu juga dikenalkan terlebih dahulu kepada 0101 Universe, atau biasa disebut oleh banyak warga lokal sebagai ruang-waktu dunia metaverse, crypto, blockchain, desentralisasi, ataupun web3.
 >
@@ -1622,7 +1622,7 @@ coverY: 0
 > Pesan:\
 > Kami tidak menemukan fungsi portal pada hari pertama. Pada awalnya, kami hanya menemukan ketidakcocokan kecil. Ada catatan yang tidak sinkron antara foto canvas dan aura undangan. Ada ID yang terasa seperti memanggil karakter lain. Ada cahaya yang muncul sebentar ketika nama artist dibaca bersama ID ROTY BROI tertentu. Ada bayangan yang tampak seperti bukan berasal dari Semesta Realita dan bukan juga dari Daratan Meleleh. Ada beberapa kali Prof. NOTA v10.0 melihat sesuatu di tepi mata yang tidak dapat dijelaskan sebagai lelah.
 >
-> Kami mulai membuat percobaan kecil. Bukan percobaan untuk membuka portal, karena saat itu kami bahkan belum berani memakai kata itu. Kami hanya menyebutnya pemeriksaan. Kami memeriksa relasi antara canvas fisik di Semesta Realita, NFT one of one di Semesta 0101, ID ROTY BROI yang dilestarikan, artist yang mengerjakan, holder yang membeli, status reveal, status sale, dan reaksi catatan kami di Bahtera ROTY BROI.
+> Kami mulai membuat percobaan kecil. Bukan percobaan untuk membuka portal, karena saat itu kami bahkan belum berani memakai kata itu. Kami hanya menyebutnya pemeriksaan. Kami memeriksa relasi antara canvas fisik di Semesta Realita, NFT one of one di Semesta 0101, ID ROTY BROI yang dilestarikan, artist yang mengerjakan, holder yang membeli, status reveal, status sale, dan reaksi catatan kami di BAHTERA ROTY BROI.
 >
 > Dari sana, kami menyadari bahwa dua belas canvas segi enam itu tidak hanya melestarikan karya. Mereka mencocokkan entitas dan universe. Atau gagal mencocokkannya. Atau hampir mencocokkannya. Itulah perbedaan yang kemudian menjadi tiga status: Unable to Match, Unperfectly Match, dan Perfectly Match.
 >
@@ -1709,7 +1709,7 @@ coverY: 0
 > Catatan Kapten ROTY BROI...
 >
 > Pesan:\
-> Setelah semua status ditulis, setelah dua belas canvas diperiksa, setelah para Amanda mulai menyusun log masing-masing, Prof. NOTA v10.0 membuat keputusan yang tidak bisa kami buat sendiri. Bahtera ROTY BROI harus kembali ke The Melting Land Universe.
+> Setelah semua status ditulis, setelah dua belas canvas diperiksa, setelah para Amanda mulai menyusun log masing-masing, Prof. NOTA v10.0 membuat keputusan yang tidak bisa kami buat sendiri. BAHTERA ROTY BROI harus kembali ke The Melting Land Universe.
 >
 > Pada awalnya, beberapa penumpang menolak. Mereka berkata Bali island tidak meleleh. Di sana ada ruang pamer, seniman, minuman, cookies, matahari, garam, tembok, jalan, dan orang-orang yang belum belajar takut kepada permukaan di bawah kaki mereka. Mengapa kembali ke Daratan Meleleh? Mengapa kembali ke gelombang, voting, perdebatan, kekurangan, risiko salah portal, dan catatan yang belum selesai? Mengapa tidak tinggal saja di Semesta Realita dan menjadi pameran yang terus diperpanjang?
 >
@@ -1730,7 +1730,7 @@ coverY: 0
 > Pencatat: Amanda yang Berdiri Di Antara Pintu Pergi Dan Pintu Kembali
 >
 > Pesan:\
-> Pemulangan Bahtera ROTY BROI tidak dilakukan seperti pelayaran biasa. Kami tidak menurunkan layar menuju laut. Kami tidak menunggu angin. Kami tidak membaca peta Kepulauan Meleleh. Kami membaca kecocokan.
+> Pemulangan BAHTERA ROTY BROI tidak dilakukan seperti pelayaran biasa. Kami tidak menurunkan layar menuju laut. Kami tidak menunggu angin. Kami tidak membaca peta Kepulauan Meleleh. Kami membaca kecocokan.
 >
 > Dua portal Perfectly Match diperiksa sebagai jalur utama. Satu portal yang hanya bisa kembali diperlakukan sebagai jalur pulang. Satu portal yang belum diungkap, yang sesekali bisa mencocokkan dengan sempurna satu arah pergi, dicatat sebagai kemungkinan pasangan yang belum boleh disentuh. Portal-portal Unperfectly Match dilarang dipakai untuk pemulangan, kecuali suatu hari nanti ada keadaan yang lebih buruk daripada cacat lintas semesta. Portal Unable to Match dilarang sepenuhnya, bukan karena tidak penting, tetapi karena pentingnya masih berupa bahaya.
 >
@@ -1819,7 +1819,7 @@ coverY: 0
 >
 > Mr. BROY belum ditemukan. Itu harus dicatat. Jika ia terjebak di celah antara universe, maka setiap portal yang kami pahami mungkin suatu hari menjadi petunjuk. Tetapi pencarian terhadapnya tidak boleh menjadi alasan untuk merusak universe lain. Kehilangan tidak boleh menjadi izin untuk mencuri jalan pulang dari makhluk lain.
 >
-> Bahtera ROTY BROI telah kembali ke The Melting Land Universe. Tetapi setelah Bali island, tidak ada kepulangan yang benar-benar membawa kami kembali ke ketidaktahuan lama. Kami kembali dengan 47 Amanda yang mulai menulis, dengan pengetahuan bahwa Semesta 0101 dan Semesta Realita bukan batas akhir, dengan dua portal Perfectly Match, tiga portal Unperfectly Match, tujuh portal Unable to Match, dan satu kemungkinan pintu pergi yang menunggu pengungkapan.
+> BAHTERA ROTY BROI telah kembali ke The Melting Land Universe. Tetapi setelah Bali island, tidak ada kepulangan yang benar-benar membawa kami kembali ke ketidaktahuan lama. Kami kembali dengan 47 Amanda yang mulai menulis, dengan pengetahuan bahwa Semesta 0101 dan Semesta Realita bukan batas akhir, dengan dua portal Perfectly Match, tiga portal Unperfectly Match, tujuh portal Unable to Match, dan satu kemungkinan pintu pergi yang menunggu pengungkapan.
 >
 > Aku tidak tahu apakah ini keselamatan atau masalah yang lebih besar.
 >
@@ -1862,7 +1862,7 @@ coverY: 0
 > Pencatat: Amanda yang Menutup Bagian Ini Tanpa Menutup Pintunya
 >
 > Pesan:\
-> Setelah Konservasi Meleleh, arah perjalanan tidak kembali menjadi satu garis. Bahtera ROTY BROI kembali ke The Melting Land Universe, tetapi catatan kami kini menghadap ke banyak semesta. Semesta 0101 tidak lagi tunggal. Semesta Realita tidak lagi dapat berpura-pura bahwa semua universe lain hanya khayalan yang aman. The Melting Land Universe tidak lagi dapat berpura-pura bahwa bencananya hanya miliknya sendiri.
+> Setelah Konservasi Meleleh, arah perjalanan tidak kembali menjadi satu garis. BAHTERA ROTY BROI kembali ke The Melting Land Universe, tetapi catatan kami kini menghadap ke banyak semesta. Semesta 0101 tidak lagi tunggal. Semesta Realita tidak lagi dapat berpura-pura bahwa semua universe lain hanya khayalan yang aman. The Melting Land Universe tidak lagi dapat berpura-pura bahwa bencananya hanya miliknya sendiri.
 >
 > Di tempat lain, masih ada pulau yang gemah ripah. Di sana, mungkin ada petani-petani yang tidak menanam seperti petani lama. Mungkin ada tanah yang kaya bukan karena tidak pernah meleleh, tetapi karena ia belajar mengolah sisa-sisa melting menjadi cara hidup lain. Mungkin ada BANANOW LAND, tempat karya, pertanian, permainan, keluarga, uang, token, dan masa depan akan kembali diuji dengan pertanyaan yang sama:
 >

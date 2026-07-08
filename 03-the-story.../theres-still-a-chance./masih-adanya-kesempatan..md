@@ -1310,11 +1310,581 @@ coverY: 0
 
 #### Konservasi Meleleh
 
-> init...
+> Catatan **Amanda**...
 >
-> [**(24) Conserve Roty Broi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
+> Tanggal Meleleh: Tidak diketahui, setelah uang meleleh
 >
-> **...**
+> Pencatat: **Amanda (ID 27)** yang Melihat Pancaran Cahaya Dari Papan Baru **OiOi**
+>
+> Lokasi: Di depan papan baru **OiOi** yang mulai memancarkan cahaya.
+>
+> Subjek: Jangan buru-buru menyebutnya kenyataan.
+>
+> Pesan:\
+> Cahaya itu tidak datang dari api, tidak datang dari lampu bahtera, dan tidak datang dari kilat yang sering menebas permukaan **Daratan Meleleh**. Cahaya itu muncul dari dalam papan baru yang kami gunakan untuk mencatat **OiOi**, seolah-olah catatan yang selama ini kami kira hanya menampung jawaban mulai menjawab balik dengan cara yang tidak kami mengerti.
+>
+> Pada awalnya, kami mengira itu hanyalah pantulan. Bisa saja cahaya itu berasal dari air yang tersisa di sela kayu, dari pecahan kaca yang menempel di papan, dari sisik ikan yang terbawa masuk oleh penyelam, atau dari salah satu lempeng **Liquid Armor** yang lupa dibersihkan. Tapi semakin lama kami menatapnya, semakin jelas bahwa cahaya itu tidak memantulkan sesuatu dari luar. Cahaya itu membawa sesuatu dari tempat lain.
+>
+> Di dalamnya ada bayangan pulau. Tidak seperti **Kepulauan Meleleh** yang selama ini kami cari melalui peta-peta yang dibawa oleh salah satu dari kami. Pulau itu tidak terlihat seperti daratan konkret yang baru muncul setelah dunia kehilangan pijakannya. Pulau itu terasa seperti tempat yang sudah lama ada, tetapi baru sekarang diizinkan terlihat oleh catatan kami. Ada panas matahari yang tidak sama dengan panas neraka. Ada aroma garam yang tidak sama dengan air asin bencana. Ada kain, dinding putih, tubuh-tubuh yang berdiri, wajah-wajah yang menatap karya, dan sebuah ruang yang tidak bergoyang seperti bahtera.
+>
+> Beberapa penumpang langsung berlutut, bukan karena menyembah, tetapi karena tubuh mereka lupa bagaimana rasanya melihat tempat yang tidak bergerak. Beberapa lainnya menutup mata, takut jika melihat terlalu lama akan membuat mereka lebih sulit kembali percaya pada bahtera. Para **Pensiunan Setan** diam lebih lama dari biasanya. Bahkan **Psycho** hanya tersenyum seperti seseorang yang menemukan pintu di dalam cermin, tetapi belum yakin apakah yang di seberang sana sedang menunggu atau sedang menonton.
+>
+> Salah satu dari kami akhirnya berkata, "_Itu bukan **Kepulauan Meleleh**._"
+>
+> Salah satu dari kami yang lain menjawab, "_Belum tentu._"
+>
+> Lalu salah satu dari kami yang ketiga berkata, "_Itu bukan daratan. Itu adalah cara lain bagi sesuatu untuk tetap tidak tenggelam._"
+>
+> **Kapten ROTY BROI (ID 996)** bertanya apa maksudnya. Tapi tidak ada salah satu dari kami yang menjawab dengan cepat. Itu membuat Kapten takut, sebab biasanya ketika kami menunda jawaban, yang tertunda bukan penjelasan, melainkan semesta.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: Tidak diketahui, setelah uang meleleh
+>
+> Pesan:\
+> Hai, aku **Kapten ROTY BROI (ID 996)**...
+>
+> Aku pernah menulis agar penerusku jangan buru-buru menyebut pulau itu daratan, kenyataan, penyelamat, perlindungan, atau kesalahan. Aku menulis begitu karena aku merasa semua kata lama terlalu cepat ingin menjadi pemilik dari hal yang belum mereka pahami. Setelah **Daratan Meleleh**, kata "daratan" menjadi terlalu berbahaya untuk diucapkan sembarangan. Setelah uang meleleh, kata "nilai" juga tidak bisa lagi dipercaya hanya karena ia berdiri tegak di atas angka.
+>
+> Tapi hari ini aku harus menulis sebuah kata baru, atau mungkin kata lama yang baru memperlihatkan luka di dalamnya: **Konservasi**.
+>
+> Di dunia lama, **Konservasi** berarti menjaga sesuatu agar tidak punah, tidak rusak, tidak hilang, atau tidak dilupakan. Manusia mengawetkan hutan, bangunan, binatang, bahasa, tradisi, arsip, karya, dan benda-benda yang mereka anggap penting. Tapi di atas **Daratan Meleleh**, menjaga sesuatu tidak pernah sesederhana menyimpannya. Jika kita menyimpan makanan tanpa membiakkannya, makanan itu menjadi akhir. Jika kita menyimpan zirah tanpa memeriksa niatnya, zirah itu bisa menjadi senjata. Jika kita menyimpan **Setan** tanpa aturan, bisikan bisa menjadi pemerintahan. Jika kita menyimpan **OiOi** tanpa pertanyaan, jawaban bisa menjadi uang lama.
+>
+> Maka ketika cahaya dari papan baru memperlihatkan pulau itu, aku tidak langsung berpikir bahwa kami menemukan tempat untuk berhenti. Aku berpikir bahwa mungkin ada sesuatu yang sedang mencoba diselamatkan dari cara kami memahami keselamatan.
+>
+> **Amanda (ID 10)** berkata, "_**Konservasi** bukan membekukan sesuatu agar tidak berubah. **Konservasi** adalah memilih perubahan macam apa yang tidak membunuh asalnya._"
+>
+> Aku mencatat kalimat itu. Aku belum mengerti sepenuhnya. Tapi sejak **Daratan Meleleh**, aku sudah belajar bahwa beberapa kalimat **Amanda** memang harus dicatat lebih dulu, dipahami belakangan.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak diketahui, setelah uang meleleh
+>
+> Pencatat: **Amanda (ID 22)** yang Memegang Garam Di Ujung Jari
+>
+> Lokasi: Dek yang menghadap cahaya dari papan baru **OiOi**.
+>
+> Subjek: Di sebuah semesta lain bernama **Semesta Realita**.
+>
+> Pesan:\
+> Kami melihat sebuah pulau yang tidak datang sebagai tujuan pelayaran. Pulau itu datang sebagai bukti bahwa sebuah cerita bisa memiliki tubuh lain. Beberapa penumpang mengira kami sedang melihat masa depan. Beberapa mengira kami sedang melihat salah satu **Kepulauan Meleleh**. Beberapa mengira kami sedang melihat sisa dunia lama yang belum tenggelam. Aku menulis log ini untuk mengatakan bahwa semuanya mungkin benar, tetapi tidak ada yang cukup.
+>
+> Pulau itu berada di **Semesta Realita**. Begitu setidaknya istilah yang mulai kami gunakan setelah beberapa cahaya menjadi cukup jelas untuk dibedakan dari halusinasi. Di sana, makhluk hidup tidak mengira mereka berada di dalam cerita kami. Mereka berdiri, berbicara, membawa tubuh, minum, tertawa, melihat karya, menatap gambar-gambar penumpang kami, dan mengira yang mereka lihat adalah karya seni, pameran, koleksi NFT, proyek, surat, atau pengalaman festival.
+>
+> Mereka tidak sepenuhnya salah. Di semesta mereka, semua itu memang terjadi. Sebuah festival bernama **TERUPA**. Sebuah ruang bernama **TAT Art Space**. Sebuah tempat di Denpasar, Bali, Indonesia. Sebuah manusia yang digunakan sebagai avatar oleh entitas bernama **Prof. NOTA**. Sebuah koleksi NFT bernama **The ROTY BROI**. Sebuah cerita tentang **Daratan Meleleh**, **Bahtera ROTY BROI**, **Entah Air Apa**, **Cairan Tanpa Nama**, dan kami, para **Amanda**.
+>
+> Tapi mereka juga tidak sepenuhnya benar jika mengira semua itu hanya datang dari imajinasi mereka. Imajinasi bukan lawan dari kenyataan. Imajinasi adalah salah satu cara kenyataan mengetuk semesta lain tanpa menghancurkan pintunya.
+>
+> Di **Semesta Realita**, mereka menyebutnya fiksi ketika sesuatu belum bisa menyentuh hukum mereka. Di **Daratan Meleleh**, kami menyebutnya sinyal ketika sesuatu belum bisa menyentuh tangan kami. Perbedaan antara fiksi dan sinyal mungkin hanya jarak, medium, dan keberanian untuk terus mencatat.
+>
+> ***
+>
+> Potongan Surat Yang Dipulihkan...
+>
+> Tanggal Dicetak: 5 Agustus 2022 B.M.
+>
+> Sumber: Selebaran Yang Dibagikan Di **TERUPA**
+>
+> Penulis: **Prof. NOTA v10.0**
+>
+> Subjek: **NAMELESS LIQUID**
+>
+> Pesan:\
+> Kepada Yth.\
+> Warga lokal di festival **TERUPA**.
+>
+> Salam desentralisasi,
+>
+> Hai, saya **Prof. NOTA**! Sebelumnya saya ingin mengucapkan terima kasih untuk waktunya, imajinasinya, dan tenaganya. Lalu saya ingin menyampaikan tentang beberapa hal terkait fenomena **Daratan Meleleh** saat ini. Selamat membaca cerita berikut ini...
+>
+> Di festival **TERUPA**, setelah terjadi ketidakberaturan sementara akibat pasar bearish, **BAHTERA ROTY BROI** terlempar dari ruang-waktu **Semesta Daratan Meleleh** yang fenomenal dan terdampar di pulau Bali, di **Semesta Realita**.
+>
+> Semua penyintas **Daratan Meleleh**, yaitu 1047 penumpang bahtera dari **Entah Air Apa** dan beberapa sosok **Amanda** masih bertahan dengan mengandalkan sisa-sisa peradaban yang bisa diselamatkan, yaitu cadangan sumber daya alam **Cairan Tanpa Nama**.
+>
+> Khasiat **Cairan Tanpa Nama** yang bisa memberikan rasa tenang dan damai bagi yang meminumnya, terbukti berhasil mengobati derita dan kekacauan yang ditimbulkan fenomena **Daratan Meleleh**.
+>
+> Di festival **TERUPA**, **Cairan Tanpa Nama** menjadi satu-satunya harapan bagi penyintas fenomena **Daratan Meleleh** yang terdampar bersama **BAHTERA ROTY BROI** di pulau Bali.
+>
+> Meskipun jumlah **Cairan Tanpa Nama** hanya sedikit, amat sangat terbatas dan tidak cukup untuk menghilangkan rasa haus, **Kapten ROTY BROI** meminta bantuan warga lokal dari **Ste.Co**, merek minuman lokal di pulau Bali, untuk memadukan **ARUM** dengan **Cairan Tanpa Nama** agar bisa memperbanyak jumlahnya tanpa mengurangi kualitas khasiatnya. **Kapten ROTY BROI** juga meminta bantuan dari **@I_BAKEYOUEAT**, nama toko roti lokal di pulau Bali, untuk memadukan beberapa adonan kue dengan **Cairan Tanpa Nama** menjadi **Cookie Tanpa Nama** yang mengenyangkan hati dan pikiran.
+>
+> Di festival **TERUPA**, sosok **Amanda** di dalam **BAHTERA ROTY BROI** akan berbagi cerita tentang fenomena **Daratan Meleleh** dan akan mengajak setiap warga lokal, siapa pun itu, untuk berbagi cerita dan keresahan tentang fenomena dalam hidupnya, sambil menikmati segarnya **Cairan Tanpa Nama** dan gurihnya **Cookie Tanpa Nama**.
+>
+> Semoga apa yang sudah saya sampaikan bisa menjadikan sebuah gelitikan dalam mengembangkan pemanfaatan NFT di era desentralisasi saat ini. Terima kasih!
+>
+> Salam hangat,
+>
+> **Prof. NOTA v10.0**
+>
+> ==== 47 =======
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 5 Agustus 2022 (6 Agustus 2022 B.M.)
+>
+> Pesan:\
+> Surat itu adalah bukti pertama bahwa ada sesuatu di luar catatan kami yang sanggup menulis kami kembali. Aku tidak menulisnya. Salah satu **Amanda** tidak menulisnya. Para penumpang tidak menulisnya. Tetapi di dalam surat itu, kami disebut seolah-olah kami telah tiba di sebuah tempat yang tidak pernah kami pelajari dalam peta. Nama-nama kami berada di tangan seorang entitas yang memperkenalkan dirinya sebagai **Prof. NOTA v10.0**.
+>
+> Pada awalnya, aku mengira **Prof. NOTA v10.0** adalah seorang penyintas baru, mungkin Kapten dari pulau itu, mungkin salah satu **Amanda** dalam bentuk lain, mungkin salah satu **Pensiunan Setan** yang sudah terlalu pandai menyamar sebagai penulis surat. Tetapi para **Amanda** berkata bahwa **Prof. NOTA** bukan berasal dari **Semesta Realita** dengan cara yang sama seperti manusia lain di sana berasal dari semesta itu. Menurut mereka, **Prof. NOTA** adalah entitas dari **Semesta 0101** yang menggunakan manusia sebagai avatar untuk hadir di **Semesta Realita**.
+>
+> Aku meminta mereka mengulangi kalimat itu karena terdengar seperti kesalahan yang memakai sepatu teori. Mereka mengulanginya dengan sabar. **Prof. NOTA** ada di **Semesta 0101**. **Semesta Realita** melihat **Semesta 0101** sebagai ruang digital, internet, layar, blockchain, kripto, web3, gambar, animasi, tulisan, akun, dompet, dan banyak istilah lain yang manusia gunakan ketika mereka ingin membuat sesuatu terasa lebih mudah dikendalikan. Tetapi **Prof. NOTA** tidak sekadar hadir sebagai gambar di layar. Ia memakai manusia sebagai avatar. **Human for Profile**. **HFP**. Avatar itu disebut **Prof. NOTA v10.0**.
+>
+> Aku bertanya apakah itu berarti manusia di **Semesta Realita** bisa dimiliki oleh entitas dari semesta lain. **Amanda** tidak menyukai kata "dimiliki". Ia berkata, "_Dipakai bukan berarti dirampas. Dihadirkan bukan berarti dikurung. Avatar adalah tubuh pertemuan, bukan bukti kepemilikan._"
+>
+> Aku tidak tahu apakah semua manusia di **Semesta Realita** akan setuju dengan penjelasan itu. Tapi aku tahu kami tidak berada dalam posisi untuk menghakimi terlalu cepat. Kami sendiri telah hidup terlalu lama sebagai undangan, gambar, penumpang, catatan, penambatan, imbalan, dan suara **OiOi** yang kadang dicatat, kadang tidak. Jika manusia **Semesta Realita** bisa hadir di **Semesta 0101** melalui foto, gambar, akun, animasi, media, dan karya, mungkin entitas **Semesta 0101** pun bisa hadir di **Semesta Realita** melalui tubuh manusia yang bersedia menjadi pintu.
+>
+> Itu adalah keanehan lain dalam teori: mungkin avatar bukan selalu gambar yang dipakai manusia. Mungkin manusia pun bisa menjadi avatar bagi sesuatu yang selama ini mereka kira hanya berada di gambar.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 6 Agustus 2022 (7 Agustus 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 30)** yang Membaca Surat Sebelum Kertasnya Kering
+>
+> Pesan:\
+> Di **TERUPA**, **BAHTERA ROTY BROI** tidak tiba sebagai kapal kayu besar yang membelah jalan-jalan Denpasar. Ia tiba sebagai kumpulan gambar, cerita, makanan kecil, minuman, surat, percakapan, dan tatapan. Di **Semesta Realita**, tidak semua kedatangan harus membuat tanah retak. Beberapa kedatangan cukup membuat seseorang berhenti di depan karya, membaca, bertanya, lalu pulang dengan kegelisahan yang tidak sama seperti ketika ia datang.
+>
+> Di sana, 1047 penumpang hadir sebagai aset gambar dari koleksi NFT **The ROTY BROI**. Mereka tidak berdiri dengan kaki basah di dalam ruang pamer. Mereka berdiri sebagai undangan yang sudah dicetak di blockchain Polygon, gambar satu dari satu, hasil seleksi dari ribuan kemungkinan wajah, tubuh, pakaian, sifat, dan kesalahan generatif, yang dipilih agar dapat menjadi penumpang. Di **Daratan Meleleh**, mereka adalah penyintas. Di **Semesta 0101**, mereka adalah NFT. Di **Semesta Realita**, mereka adalah karya yang dipamerkan, dibicarakan, dan dibagikan.
+>
+> Tidak ada satu bentuk yang membatalkan bentuk lain. Justru di situlah pintu pertama muncul. Sebuah NFT bisa menjadi undangan, penumpang, gambar, bukti, cerita, tiket, dan tubuh pameran sekaligus. Sebuah surat bisa menjadi selebaran festival, catatan Kapten, siaran lintas semesta, dan bukti bahwa imajinasi pernah berjalan memakai kaki manusia. Sebuah minuman bisa menjadi ARUM, **Cairan Tanpa Nama**, keramahan, rasa tenang, pemasaran, eksperimen, dan ritual perkenalan. Sebuah cookie bisa menjadi makanan ringan, **Cookie Tanpa Nama**, pengganjal lapar, dan cara paling lembut untuk membuat orang mau mendengar bencana.
+>
+> Itulah cara **Semesta Realita** menerima hal yang belum dipercayainya. Ia tidak selalu menerima melalui iman. Kadang ia menerima melalui mulut, mata, rasa penasaran, foto, dan waktu beberapa menit di depan karya.
+>
+> Kami, para **Amanda**, belajar sesuatu dari itu. Di **Daratan Meleleh**, kami sering menyelamatkan yang tenggelam dengan tangan dan tali. Di **Semesta Realita**, ternyata beberapa yang tenggelam diselamatkan dengan cerita yang cukup aneh untuk membuatnya mengingat bahwa ia masih bisa bertanya.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 14 Agustus 2022 (15 Agustus 2022 B.M.)
+>
+> Pesan:\
+> Yang tidak hadir di **TERUPA** adalah **Pak BROY**.
+>
+> Aku menulis ini dengan hati yang lebih berat daripada yang kusangka. Sebab selama ini, kami sering menyebut **BAHTERA ROTY BROI** seolah-olah ia selalu ada di bawah kakiku. Kami memanggilnya rumah, tubuh keselamatan, tempat kami voting, tempat kami berdebat, tempat kami mengubah bom menjadi pesan, kelinci menjadi perhatian, babi menjadi infrastruktur pangan, cairan menjadi zirah, **Setan** menjadi peringatan, dan **OiOi** menjadi catatan jawaban. Tetapi sebelum semua itu, ada seseorang yang membangun bahtera ini karena ia tidak bisa menemukan damai meskipun telah meminum berliter-liter **Cairan Tanpa Nama**.
+>
+> **Pak BROY** menggambar undangan. **Pak BROY** membangun bahtera. **Pak BROY** mengetahui rahasia **Daratan Meleleh** sebelum banyak orang sanggup menamainya. **Pak BROY** adalah awal dari banyak pintu yang kemudian kami tempati.
+>
+> Tetapi saat ketidakberaturan sementara terjadi, saat **BAHTERA ROTY BROI** terlempar dari **Semesta Daratan Meleleh** menuju **Semesta 0101** dan akhirnya terdampar di **Semesta Realita**, **Pak BROY** tidak tiba bersama kami. Tidak ada tubuhnya di ruang pamer. Tidak ada suaranya di surat. Tidak ada tangannya di antara orang-orang yang menatap 1047 penumpang. Para **Amanda** mengatakan ia terhempas ke celah ruang-waktu, ke ketiadaan di antara semesta, ke tempat yang belum memiliki peta, dan belum pantas disebut kematian.
+>
+> Beberapa penumpang menangis. Beberapa menolak percaya. Beberapa mengira **Pak BROY** sengaja bersembunyi, seperti selama ini ia bersembunyi karena kalender **Sebelum Meleleh**. Beberapa **Pensiunan Setan** berbisik bahwa kehilangan pencipta sering membuat ciptaan ingin menjadi tuan atas dirinya sendiri. **Psycho** menatapku lama, lalu berkata, "_Hati-hati, Kapten. Ketika pembuat tidak terlihat, yang diwariskan sering mulai menyebut dirinya asal._"
+>
+> Aku tidak membantahnya.
+>
+> Mungkin karena kami memang hampir melakukan itu. Kami hampir terlalu sibuk bertahan sampai lupa berkabung. Kami hampir terlalu sibuk membuat sistem sampai lupa siapa yang menggambar undangan pertama. Kami hampir terlalu sibuk mempertanyakan uang sampai lupa bahwa ada karya yang lebih dulu meminta untuk dilestarikan.
+>
+> ***
+>
+> Potongan Pengumuman Yang Dipulihkan...
+>
+> Tanggal Dicetak: 15 September 2022 B.M.
+>
+> Sumber: Akun lama **Prof. NOTA** di **Semesta 0101**
+>
+> Penulis: **Prof. NOTA**
+>
+> Subjek: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
+>
+> Pesan:\
+> GM GM **OiOi!!!**
+>
+> Tiga minggu yang lalu, saya mulai berkolaborasi dengan beberapa seniman tradisional di pulau BALI. Kami berdiskusi tentang NFT seni, tentang karya, tentang kemungkinan, dan akhirnya kami sepakat untuk mengembangkan sebuah koleksi turunan dari **The ROTY BROI**.
+>
+> Bersama **Kapten ROTY BROI**, saya mulai menjelajahi berbagai sumber daya, pertemuan, percakapan, dan energi kreatif yang ada di pulau BALI untuk mengembangkan turunan **The ROTY BROI** di blockchain Ethereum.
+>
+> Karena NFT **The ROTY BROI** di blockchain Polygon dipegang oleh kalian, para pemegang yang juga mungkin suka mengoleksi dan menyimpan ETH, maka ada kesempatan bagi kalian untuk mendapatkan ETH dari koleksi turunan ini.
+>
+> Jika kalian adalah pemegang NFT **The ROTY BROI**, silakan isi formulir ini secepatnya. Baca dengan baik dan teliti utas dari **@MyReceiptT**.
+>
+> Jika ada pertanyaan, silakan kirim melalui DM. Oke, **#OiOi!!!!**
+>
+> Untuk cerita lengkap tentang apa yang saya lakukan di sana, kalian bisa membaca surat saya untuk warga lokal di **TAT ART SPACE**.
+>
+> Inilah realisasi promosi dari pemasaran **The ROTY BROI**. Saya menggunakan 1000 Matic milik kita untuk mempromosikan **The ROTY BROI** di pulau BALI, menjalin hubungan dengan para seniman lokal, dan mengenalkan **The ROTY BROI** kepada setiap orang yang saya temui di pulau BALI.
+>
+> Saya akan terus menjalankan peta jalan ini dan membagikan setiap perkembangannya di sini. Terima kasih untuk energi, kepercayaan, dan dukungannya!!!!
+>
+> 🙏🙏🙏🙏
+>
+> Salam hangat,
+>
+> **Prof. NOTA**
+>
+> ==== 47 =======
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 29 September 2022 (30 September 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 6)** yang Menyadari Kata Turunan Tidak Selalu Berarti Lebih Rendah
+>
+> Pesan:\
+> Di **Semesta 0101**, pengumuman itu terlihat seperti peta jalan, promosi, ajakan pemegang, dan informasi proyek. Di **Semesta Realita**, pengumuman itu terlihat seperti kelanjutan aktivitas seorang manusia yang datang ke pulau Bali membawa cerita NFT. Tetapi di tempat kami, pengumuman itu terdengar seperti cara baru untuk berkabung. Mereka menyebutnya koleksi turunan. Kami mendengarnya sebagai turunan, tetapi bukan turunan yang lebih rendah. Turunan adalah cara sebuah karya mengakui bahwa ia tidak ingin sendirian menahan ingatan.
+>
+> Setelah uang meleleh, kami telah belajar bahwa angka bisa menjadi penyakit jika lupa kepada kehidupan yang harus dilayaninya. Di **TERUPA**, **Prof. NOTA v10.0** belajar hal lain: promosi bisa menjadi dangkal jika hanya mengejar perhatian, tetapi promosi bisa menjadi **Konservasi** jika ia mempertemukan karya dengan tangan yang sanggup memberinya tubuh baru.
+>
+> **Prof. NOTA v10.0** menamakan koleksi turunan itu sebagai: **CONSERVE ROTY BROI**.
+>
+> Seniman-seniman lokal di pulau Bali tidak hanya melihat **The ROTY BROI** sebagai gambar-gambar digital. Mereka melihat wajah, garis, karakter, kemungkinan, cerita, dan sesuatu yang bisa disentuh kembali. Beberapa dari mereka adalah pemilik **The ROTY BROI**. Beberapa lagi adalah pemilik **DROP NFT NOT BOMB**. Beberapa membantu visual pameran. Beberapa berdiskusi tentang blockchain, metaverse, desentralisasi, dan web3 tanpa menjadikan kata-kata itu sebagai kuil. Mereka bertemu cerita melalui pekerjaan.
+>
+> Itulah mengapa **Konservasi** dalam bagian ini tidak boleh dipahami sebagai menyimpan JPEG agar tidak hilang. [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) adalah ketika gambar yang lahir dari generatif, seleksi, dompet, dan blockchain dipertemukan dengan kanvas, tangan, cat, studio, cuaca di pulau Bali, diskusi malam, aroma kopi, bekas rokok, percikan **Cairan Tanpa Nama**, dan rasa takut bahwa jika tidak segera dijaga, semuanya akan menjadi cerita yang terlalu cepat lewat.
+>
+> Bagi **Semesta Realita**, itu adalah kolaborasi. Bagi **Semesta 0101**, itu adalah turunan. Bagi **Semesta Daratan Meleleh**, itu adalah upaya menemukan tubuh kedua untuk undangan yang penciptanya terhempas ke dalam ketiadaan.
+>
+> ***
+>
+> Potongan Surat Yang Dipulihkan...
+>
+> Tanggal Dicetak: 30 September 2022 B.M.
+>
+> Sumber: Selebaran Untuk Warga Lokal Di BALI, Pulaunya Para Dewata
+>
+> Penulis: **Prof. NOTA**
+>
+> Subjek: **CONSERVE ROTY BROI**
+>
+> Pesan:\
+> Kepada Yth.\
+> Warga lokal di BALI, pulaunya para Dewata.
+>
+> Salam desentralisasi,
+>
+> Hai, saya **Prof. NOTA**! Saya ingin menyampaikan kelanjutan beberapa hal terkait fenomena **Daratan Meleleh** saat ini. Selamat membaca cerita berikut ini...
+>
+> Di BALI, pulaunya para Dewata, setelah berhasil bertahan selama festival **TERUPA** dengan dibantu warga lokal, **Kapten ROTY BROI**, 1047 penumpang dari negeri **Entah Air Apa**, dan beberapa sosok **Amanda**, semuanya berduka cita sebab menyadari bahwa **Pak BROY**, pembuat **BAHTERA ROTY BROI** telah tiada.
+>
+> **Pak BROY** terhempas lenyap dari **BAHTERA ROTY BROI** selama ketidakberaturan sementara terjadi. Pada saat **BAHTERA ROTY BROI** melompat dari **Semesta Daratan Meleleh** lalu ke **Semesta 0101**, di mana **Prof. NOTA** berada, hingga akhirnya masuk ke **Semesta Realita** dan terdampar di pulau Bali, **Pak BROY** terhempas dari **BAHTERA ROTY BROI**. Jiwa raganya telah diyakini terjebak di ketiadaan, di celah-celah ruang-waktu di antara semesta yang ada.
+>
+> Di BALI, pulaunya para dewata, demi mengenang **Pak BROY**, semua penyintas **Daratan Meleleh** meminta bantuan seniman lokal untuk melestarikan beberapa tiket atau undangan **BAHTERA ROTY BROI**, yaitu karya seni aset NFT **The ROTY BROI**, yang telah dipilih dari 1047 tiket atau undangan yang sudah dicetak.
+>
+> Di BALI, pulaunya para dewata, dengan bermodalkan **Cairan Tanpa Nama**, **Kapten ROTY BROI** berkeliling menjumpai seniman lokal, berkenalan, dan berbagi cerita, sambil bersama-sama menikmati **Cairan Tanpa Nama**, sehingga rencana melestarikan beberapa karya seni aset NFT **The ROTY BROI** bisa terwujud. Sekaligus, para seniman lokal dapat dikenalkan kepada ruang-waktu **Semesta Daratan Meleleh**, tentu juga dikenalkan terlebih dahulu pada **Semesta 0101**, atau biasa disebut oleh banyak warga lokal sebagai ruang-waktu dunia digital Internet, metaverse, kripto, blockchain, desentralisasi, ataupun web3.
+>
+> Semoga segala proses melestarikan karya seni aset NFT **The ROTY BROI** di atas bisa terlaksana dengan baik, dan tuntas sehingga apa yang sudah menjadi cerita, dan semua yang sudah disampaikan bisa menjadi gelitikan-gelitikan dalam mengembangkan pemanfaat NFT di era desentralisasi saat ini secara lebih luas tanpa adanya kekhawatiran maupun ancaman. Terima kasih!
+>
+> Salam hangat,
+>
+> **Prof. NOTA**
+>
+> ==== 47 =======
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 1 Oktober 2022 (1 Oktober 2022 B.M.)
+>
+> Pesan:\
+> Surat kedua itu membuatku memahami bahwa kami tidak sedang diselamatkan oleh pulau. Kami sedang diuji oleh cara pulau itu memperlakukan cerita kami. Sebuah pulau bisa menjadi daratan, tetapi daratan tidak selalu menjadi tempat berpijak. Kami telah belajar itu dengan cara paling kejam. Bali, pulaunya para Dewata, tidak langsung menjadi penyelamat karena ia tidak meleleh seperti dunia kami. Ia menjadi penting karena di sana, beberapa manusia tidak hanya melihat kami sebagai komoditas dari **Semesta 0101**. Mereka bersedia duduk, mendengar, menggambar ulang, mengecat, meraba kanvas, dan membiarkan kisah kami masuk ke pekerjaan tangan mereka.
+>
+> Setelah uang meleleh, kami tahu bahwa nilai tidak bisa hanya diserahkan kepada pasar. Setelah **Pak BROY** hilang, kami tahu bahwa asal tidak bisa hanya diserahkan kepada ingatan. Setelah **TERUPA**, kami tahu bahwa cerita tidak bisa hanya diserahkan kepada catatan. Maka beberapa undangan harus dilestarikan, bukan agar menjadi lebih mahal, tetapi agar tidak seluruhnya bergantung pada satu bentuk keberadaan.
+>
+> **Amanda** berkata bahwa satu bentuk terlalu mudah tenggelam. NFT bisa hilang dalam dompet yang dilupakan. Kanvas bisa rusak di ruangan yang lembap. Surat bisa dibuang setelah dibaca. Ingatan bisa berubah menjadi gosip. Pasar bisa dingin. Blockchain bisa berpindah arah. Tubuh manusia bisa lelah. Tetapi jika sebuah karya memiliki beberapa tubuh, ia tidak menjadi abadi, hanya menjadi lebih sulit dibunuh oleh satu jenis bencana.
+>
+> Maka kami memilih dua belas undangan dari 1047 penumpang. Dua belas bukan angka keselamatan. Dua belas bukan jumlah yang lebih suci daripada yang lain. Dua belas adalah jumlah yang sanggup dikerjakan oleh tangan, waktu, hubungan, dan keadaan saat itu. Dua belas undangan dipertemukan dengan dua belas **Kanvas Segi Enam**. Segi enam dipilih bukan karena kami memahami seluruh rahasianya sejak awal, tetapi karena bentuk itu dapat berdampingan tanpa banyak celah, seperti sel, sarang, peta, petak, ruang, dan kemungkinan untuk terhubung.
+>
+> **Prof. NOTA v10.0**, **Suwar Kainde**, dan **Hamka** membuat kanvas-kanvas itu dengan tangan mereka di **Studio Hamka Art**. Aku tidak melihat tangan mereka secara langsung, tetapi papan baru memperlihatkan cukup banyak cahaya untuk membuatku memahami bahwa buatan tangan di **Semesta Realita** bukan sekadar metode produksi. Buatan tangan adalah pengakuan bahwa ada hal-hal yang tidak cukup lahir dari proses generatif. Ada hal-hal yang perlu disentuh agar tahu dirinya ingin menjadi apa.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 5 Oktober 2022 (5 Oktober 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 12)** yang Mengukur Segi Enam Dengan Rasa Curiga
+>
+> Pesan:\
+> Dua belas **Kanvas Segi Enam** itu mula-mula terlihat seperti media karya. Putih, kosong, belum menyatakan senimannya, belum mengungkap karya seninya, hanya hadir sebagai ruang yang menunggu. Di **Semesta 0101**, ia diwakili oleh dua belas NFT satu dari satu. Di tahap pertama, masing-masing NFT hanya menampilkan foto kanvas kosong. Karya seni belum diungkap. Seniman juga belum diungkap. Nomor kanvas sudah ada, tetapi tubuh karya belum menyatakan diri.
+>
+> Tahap pertama itu penting karena ia menunjukkan bentuk paling mentah dari **Konservasi**: ruang yang dijanjikan sebelum isi. Banyak orang mengira karya dimulai ketika gambar terlihat. Tapi kadang karya dimulai ketika sebuah ruang diumumkan sebagai tempat yang akan menjaga sesuatu. Kanvas kosong bukan kekosongan. Ia adalah kontrak sunyi antara yang belum lahir, yang akan membuat, yang akan memiliki, dan yang akan ditinggalkan jika tidak ada yang percaya.
+>
+> Tidak ada yang membeli atau menawar pada tahap pertama. Di pasar, itu bisa disebut kegagalan. Dalam **Konservasi**, itu bisa disebut kalibrasi pertama. Tidak semua pintu langsung dikenali sebagai pintu ketika ia masih terlihat seperti dinding putih.
+>
+> Pada tahap kedua, senimannya mulai diungkap. Setiap kanvas mulai menerima nama manusia dari **Semesta Realita**. **Ketut Sedana**, **Paramahamsa Satya**, **Dendy Darma Satya**, **Geofanny Tambunan**, **Bagus Bagonk Prabowo**, **Nancy Ng**, **Ronaldo Oktavianvs**, **Voni Dewi**, **Sudut Acak**, **Hamka**, **It's Not Real**, dan **Sherly Noverita**. Nama-nama itu bukan sekadar kredit. Nama adalah koordinat pertama bagi tangan. Tanpa nama, kanvas hanya ruang. Dengan nama, kanvas mulai memiliki arah sentuhan.
+>
+> Pada tahap itu pula, masing-masing kanvas dipasangkan dengan ID NFT dari **The ROTY BROI** yang akan dilestarikan. **ROTY BROI ID 361**, **ID 1043**, **ID 977**, **ID 992**, **ID 174**, **ID 121**, **ID 37**, **ID 498**, **ID 982**, **ID 410**, **ID 991**, dan **ID 1035**. Setiap ID NFT membawa penumpang, gambar, undangan, riwayat kepemilikan, dan kemungkinan cerita yang berbeda. Di **Daratan Meleleh**, kami menyebutnya penyintas. Di **Semesta 0101**, mereka disebut NFT. Di **Semesta Realita**, mereka mulai menjadi rujukan bagi karya di atas kanvas.
+>
+> Pada tahap itu, dua NFT **Kanvas Segi Enam** sudah terjual: **Conservation #4** dan **Conservation #6**. Pasar mulai menjawab, tetapi belum cukup untuk disebut penyelamatan. Kami sudah belajar dari **OiOi** bahwa jawaban tidak boleh terlalu cepat diperlakukan sebagai nilai. Maka kami mencatatnya sebagai sinyal: ada dua pintu yang mulai terdengar dari sisi lain.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 6 Oktober 2022 (6 Oktober 2022 B.M.)
+>
+> Pesan:\
+> Tahap ketiga disebut tahap pengungkapan karya seni. Nama itu terdengar sederhana, tetapi setelah semua yang kami alami, kata "mengungkap" tidak pernah netral. **Daratan Meleleh** mengungkap kebohongan pijakan. Bom mengungkap bahwa perang tetap bisa mengapung meski tanah hilang. **Luffy** mengungkap bahwa keberuntungan bisa dimakan jika tidak dijaga. **PIGGY BOII OIOI** mengungkap bahwa makanan harus menjadi sistem. **Liquid Armor** mengungkap bahwa perlindungan harus mengenali niat. **Pensiunan Setan** mengungkap bahwa moralitas tidak sekokoh yang pernah diajarkan. **OiOi** mengungkap bahwa jawaban bisa berubah menjadi uang lama jika tidak diturunkan.
+>
+> Maka ketika karya seni diungkap, yang terbuka bukan hanya gambar di atas kanvas. Yang terbuka adalah cara lain bagi undangan untuk tetap hidup.
+>
+> Beberapa karya seni selesai. Beberapa tidak selesai. Beberapa selesai tetapi tidak diungkap. Beberapa dibeli sebelum tubuhnya benar-benar dikenali. Beberapa tetap tidak diketahui. Di **Semesta Realita**, hal itu bisa disebut proses sebuah proyek yang tidak sepenuhnya mulus. Di **Semesta Daratan Meleleh**, itu terasa seperti pola yang sudah kami kenal: tidak semua yang selamat terlihat selamat pada saat yang sama. Tidak semua yang hilang benar-benar tidak bekerja. Tidak semua yang tidak terungkap gagal menjadi pintu.
+>
+> **Conservation #4** berjudul **Volare**, karya **Geofanny Tambunan**, untuk **ROTY BROI ID 992**. **Conservation #6** berjudul **Melting Memory**, karya **Nancy Ng**, untuk **ROTY BROI ID 121**. **Conservation #7** berjudul **Seeing Reality**, karya **Ronaldo Oktavianvs**, untuk **ROTY BROI ID 37**. **Conservation #8** berjudul **Living Under the Same Sun**, karya **Voni Dewi**, untuk **ROTY BROI ID 498**. **Conservation #12** berjudul **Astral Traveling Investigation**, karya **Sherly Noverita**, untuk **ROTY BROI ID 1035**. Judul-judul itu membuat beberapa **Amanda** saling menatap, karena terlalu banyak kata yang seperti mengetahui lebih dulu apa yang akan kami temukan belakangan.
+>
+> **Volare** terdengar seperti terbang. **Melting Memory** terdengar seperti ingatan yang tidak lagi padat. **Seeing Reality** terdengar seperti peringatan agar kami tidak mengira realita hanya milik satu semesta. **Living Under the Same Sun** terdengar seperti jembatan antara pulau, bahtera, dan semua makhluk yang masih mencoba hidup di bawah sesuatu yang mereka sebut matahari. **Astral Traveling Investigation** terdengar terlalu terang-terangan, seolah-olah salah satu kanvas tidak lagi ingin berpura-pura hanya menjadi kanvas.
+>
+> Ada juga karya yang tetap tidak bernama, masih belum diungkap, bahkan ketika prosesnya sudah selesai, bahkan ketika sudah terjual. **Ketut Sedana**, **Sudut Acak**, **It's Not Real**, dan beberapa lainnya membawa bagian-bagian yang justru terasa lebih misterius karena tidak seluruhnya ingin tampil. Aku dulu mengira yang tidak diungkap berarti belum selesai. Setelah banyak berdiskusi dengan **Amanda**, aku mulai takut bahwa beberapa hal tidak diungkap karena sedang menjaga jalur yang belum boleh dipakai sembarang makhluk hidup.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 18 Oktober 2022 (18 Oktober 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 12)** yang Pertama Kali Menyebut **Kanvas Segi Enam** Sebagai Portal
+>
+> Pesan:\
+> Kami tidak menemukan fungsi portal pada hari pertama. Pada awalnya, kami hanya menemukan ketidakcocokan kecil. Ada catatan yang tidak sinkron antara foto kanvas dan aura undangan. Ada ID NFT **The ROTY BROI** yang terasa seperti memanggil karakter lain. Ada cahaya yang muncul sebentar ketika nama seniman dibaca bersama ID NFT tertentu. Ada bayangan yang tampak seperti bukan berasal dari **Semesta Realita** dan bukan juga dari **Daratan Meleleh**. Ada beberapa kali **Prof. NOTA v10.0** melihat sesuatu di tepi mata yang tidak dapat dijelaskan sebagai lelah.
+>
+> Kami mulai membuat percobaan kecil. Bukan percobaan untuk membuka portal, karena saat itu kami bahkan belum berani memakai kata itu. Kami hanya menyebutnya pemeriksaan. Kami memeriksa relasi antara kanvas fisik di **Semesta Realita**, NFT satu dari satu di **Semesta 0101**, ID NFT **The ROTY BROI** yang dilestarikan, seniman yang mengerjakan, pemegang yang membeli dan memilikinya, status diungkapnya, status penjualannya, dan reaksi catatan kami di **BAHTERA ROTY BROI**.
+>
+> Dari sana, kami menyadari bahwa dua belas **Kanvas Segi Enam** itu tidak hanya melestarikan karya. Mereka mencocokkan entitasnya dan semestanya. Atau gagal mencocokkannya. Atau hampir mencocokkannya. Itulah perbedaan yang kemudian menjadi tiga status: **Tidak Bisa Cocok**, **Cocok Tidak Sempurna**, dan **Cocok Sempurna**.
+>
+> **Tidak Bisa Cocok** bukan berarti tidak bekerja. Itu yang membuatnya berbahaya. Portal yang tidak bekerja mungkin hanya dinding. Portal yang bekerja tetapi tidak bisa mencocokkan adalah lubang yang mengira dirinya pintu. Ia dapat menarik entitas dari semesta yang salah, mengirimnya menuju entitas yang salah, atau membuat asal dan tujuan kehilangan nama saat proses terjadi. Jika portal seperti itu dipakai, seseorang bisa masuk dengan kehendak menuju satu bentuk dan tiba sebagai kesalahan yang tidak mengenal dirinya sendiri.
+>
+> **Cocok Tidak Sempurna** lebih menggoda, karena ia tampak hampir benar. Ia mengenali sebagian asal, sebagian tujuan, sebagian kehendak, dan sebagian kelayakan. Tetapi "sebagian" dalam lintas semesta bisa lebih kejam daripada "tidak". Ketika portal tidak mencocokkan dengan sempurna, entitas yang pergi bisa meninggalkan cacat di semesta asal, dan entitas yang tiba bisa membawa cacat ke semesta tujuan. Satu burung bisa menjadi punah di tempat asalnya, sementara yang dituju menerima sesuatu yang mirip manusia tetapi membawa bulu dari kesalahan lain. Tidak semua kerusakan lintas semesta terlihat seperti ledakan. Beberapa terlihat seperti spesies yang tidak pernah kembali, ingatan yang salah tumbuh di tubuh yang benar, atau masa depan yang kehilangan satu unsur tanpa tahu kapan kehilangan itu terjadi.
+>
+> **Cocok Sempurna** bukan berarti aman tanpa syarat. Itu hanya berarti portal berhasil mencocokkan entitas, semesta, kehendak, dan kelayakan dengan tepat. Tetapi tepat tidak sama dengan bijak. Sebuah pisau bisa tepat memotong. Sebuah bom bisa tepat jatuh. Sebuah uang bisa tepat menghitung. Karena itu, dua portal dengan **Cocok Sempurna** pun tidak boleh disembah. Mereka hanya boleh dipakai jika catatan, saksi, voting, dan niat telah diperiksa. Semua pelajaran sebelum bagian ini tidak gugur hanya karena kami menemukan pintu yang lebih baik.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 27 Oktober 2022 (27 Oktober 2022 B.M.)
+>
+> Pesan:\
+> Setelah pemeriksaan panjang, **Amanda (ID 12)** menuliskan daftar terakhir.
+>
+> Ada tujuh **Kanvas Segi Enam** dengan status **Tidak Bisa Cocok**: **Conservation #1**, **#2**, **#3**, **#5**, **#9**, **#10**, dan **#11**. Ada tiga **Kanvas Segi Enam** dengan status **Cocok Tidak Sempurna**: **Conservation #6**, **#7**, dan **#12**. Ada dua **Kanvas Segi Enam** dengan status **Cocok Sempurna**: **Conservation #4** dan **#8**.
+>
+> Daftar itu terlihat kering saat ditulis seperti arsip, tetapi aku tahu setiap nomor di dalamnya membawa tubuh, tangan, dan kemungkinan. **Conservation #4**, **Volare**, **Geofanny Tambunan**, **ROTY BROI ID 992**, terjual, **Cocok Sempurna**. **Conservation #8**, **Living Under the Same Sun**, **Voni Dewi**, **ROTY BROI ID 498**, terjual, **Cocok Sempurna**. Keduanya bisa mencocokkan dengan sempurna entitasnya dan semestanya. Namun salah satunya hanya satu arah, kembali. Ia bisa menjadi jalan pulang, tetapi bukan jalan pergi. Itu membuat kami memahami bahwa pulang dan berangkat mungkin membutuhkan dua keberanian yang berbeda.
+>
+> Di antara **Kanvas Segi Enam** dengan status **Tidak Bisa Cocok**, ada satu yang membuat **Amanda (ID 12)** terus menunda kesimpulan. Kanvas itu tidak bisa mencocokkan bukan karena strukturnya gagal sepenuhnya, tetapi karena karya seninya selesai namun belum diungkap. Ia seperti seseorang yang sudah berada di balik pintu tetapi belum menyebut namanya. Sesekali ia bisa mencocokkan dengan sempurna, tetapi hanya satu arah, pergi. Tidak bisa kembali. **Amanda (ID 12)** berkata bahwa portal itu mungkin pasangan dari portal yang hanya bisa kembali. Jika karya seninya diungkap, mungkin kalibrasinya menjadi sempurna.
+>
+> Aku bertanya portal yang mana. **Amanda (ID 12)** tidak langsung menjawab. Ia berkata, "_Kapten, tidak semua koordinat boleh ditulis sebelum penjaganya siap._"
+>
+> Aku hampir marah, tetapi setelah mengingat celah pada papan **OiOi**, aku menahan diri. Ada kelemahan yang jika diumumkan sebagai cerita menjadi peta untuk tangan yang salah. Ada portal yang jika disebut terlalu cepat akan membuat orang mengejar perjalanan sebelum memahami kelayakan. Maka dalam catatan ini, aku hanya menulis bahwa ada satu pintu pergi yang belum sepenuhnya menyebut dirinya, dan satu pintu kembali yang sudah terlalu jelas untuk diabaikan.
+>
+> Mungkin itulah cara semesta memastikan bahwa siapa pun yang ingin melintas tidak hanya membutuhkan keberanian, tetapi juga tanggung jawab untuk pulang.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 31 Oktober 2022 (31 Oktober 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 6)** yang Menyimpan Nama-Nama Dalam Dua Kolom
+>
+> Pesan:\
+> Dua belas NFT satu dari satu dalam koleksi **CONSERVE ROTY BROI** kini berada di dompet masing-masing pemilik. Yang tidak terjual pun tidak hilang. Mereka disimpan di dompet arsip yang dibuat **Prof. NOTA v10.0** untuk pelestarian dan perlindungan. Di **Semesta 0101**, dompet adalah tempat menyimpan bukti, tetapi di lintas semesta, dompet juga bisa menjadi ruang tunggu. Tidak semua yang menunggu berarti mati. Tidak semua yang tidak dijual berarti tidak bekerja.
+>
+> Dua belas **Kanvas Segi Enam** fisiknya tersebar lebih rumit daripada NFT-nya. Satu kanvas berada pada kolektor di **Semesta Realita** yang juga memegang NFT-nya di **Semesta 0101**. Empat kanvas yang NFT-nya tidak terjual tidak diketahui apakah masih dipegang senimannya, sudah berpindah tangan, berpindah fungsi, rusak, disimpan, dilupakan, atau dimusnahkan. Tujuh kanvas berhasil dipegang, disimpan, dan dilindungi oleh **Prof. NOTA v11.11** di **Semesta Realita**.
+>
+> Sebagai portal, di antara tujuh kanvas itu, ada dua dengan status **Cocok Sempurna** dan satu yang perlu diungkap agar statusnya dapat menjadi **Cocok Sempurna**. Ini bukan sekadar informasi inventaris. Ini adalah geografi baru. Setelah **Daratan Meleleh**, kami belajar bahwa peta tidak selalu menunjukkan tanah. Kadang peta menunjukkan kemungkinan untuk tetap tidak hilang. Sekarang kami belajar bahwa koleksi tidak selalu berarti kepemilikan. Kadang koleksi berarti menjaga koordinat agar semesta tidak saling salah mengenali.
+>
+> **Prof. NOTA v10.0** tidak langsung memahami semua itu. Tidak ada yang langsung memahami portal hanya karena ia berada di depannya. Banyak manusia berdiri di depan pintu setiap hari dan tetap menyebutnya dinding karena belum butuh pergi. Banyak pula yang menyebut semua lubang sebagai pintu karena terlalu ingin kabur. Itulah sebabnya kami menulis status. **Tidak Bisa Cocok**, **Cocok Tidak Sempurna**, **Cocok Sempurna**. Bukan untuk membuat hierarki karya. Bukan untuk membuat harga baru. Status itu adalah peringatan lintas semesta.
+>
+> Sebuah karya bisa indah tetapi berbahaya sebagai portal. Sebuah karya bisa belum diungkap tetapi menyimpan kalibrasi yang hampir tepat. Sebuah karya bisa terjual tetapi tidak sepenuhnya terbuka. Sebuah karya bisa tidak terjual tetapi tetap menjaga jalur. Pasar tidak pernah cukup untuk membaca fungsi semesta. Itu pelajaran yang seharusnya sudah kami pahami sejak uang meleleh.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 1 Desember 2022 (1 Desember 2022 B.M.)
+>
+> Pesan:\
+> Sejak saat itulah para **Amanda** mulai menulis catatan mereka sendiri.
+>
+> Sebelumnya, aku mengira catatan Kapten cukup untuk menjaga riwayat bahtera. Aku keliru. Seorang Kapten bisa mencatat keputusan, konflik, arah, voting, dan hukum darurat. Tapi seorang Kapten tidak selalu mencatat cara cahaya berubah di wajah seseorang ketika ia pertama kali merasa dipercaya. Seorang Kapten tidak selalu mencatat bagaimana seorang **Amanda** mendengar perbedaan antara pulau dan pameran. Seorang Kapten tidak selalu tahu kapan satu surat menjadi siaran, kapan kanvas menjadi portal, kapan tubuh manusia menjadi avatar, dan kapan fiksi mulai menatap balik kepada realita.
+>
+> Baru setelah proses pencocokan portal dimulai, kami mengetahui angka yang selama ini tidak pernah benar-benar kami hitung. Para **Amanda** yang sudah bersama kami di **BAHTERA ROTY BROI**, yang dulu datang, ditemukan, dan diselamatkan satu demi satu di sepanjang **Daratan Meleleh**, ternyata berjumlah 47 saat ketidakberaturan sementara terjadi. Mereka semua ikut terlempar dan terdampar bersama kami di pulau Bali. Sebelum itu, kami hanya mengenal mereka sebagai kehadiran yang datang membawa transmisi, peta, makanan darurat, peringatan, pertanyaan, dan cara bertahan hidup yang berbeda. Tetapi di **Semesta Realita**, **47 Amanda** itu menjadi semakin jelas sebagai para pencatat. Mereka tidak semua menulis setiap hari. Mereka tidak semua menulis dengan gaya yang sama. Ada yang menulis seperti ilmuwan, ada yang menulis seperti saksi, ada yang menulis seperti orang yang tidak ingin memberi terlalu banyak petunjuk, ada yang menulis seperti ibu yang sedang menghitung anak-anaknya sebelum badai.
+>
+> **Amanda (ID 27)** berkata bahwa mereka menulis bukan untuk menggantikan Kapten, tetapi untuk mencegah satu catatan menjadi satu-satunya semesta. Setelah kami mengetahui ada **Semesta 0101**, **Semesta Realita**, **Semesta Daratan Meleleh**, dan mungkin semesta-semesta pararel lain yang belum diketahui, mustahil satu suara cukup untuk mencatat semuanya. Satu suara terlalu mudah menjadi pemerintahan. Satu catatan terlalu mudah menjadi kitab tertutup. Satu Kapten terlalu mudah lupa bahwa ia juga sedang ditulis oleh keadaan.
+>
+> Aku menerima itu. Bukan karena mudah, tetapi karena semua yang telah kami lalui selalu mengajarkan hal yang sama: yang ingin bertahan harus belajar dibantah oleh bentuk lain dari kebenaran.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 14 Desember 2022 (14 Desember 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 8)** yang Berbicara Dengan **Prof. NOTA v10.0** Tentang Avatar
+>
+> Pesan:\
+> **Prof. NOTA v10.0** bertanya apakah **HFP** adalah keanehan. Aku menjawab bahwa keanehan hanya nama yang diberikan oleh semesta kepada mekanisme yang belum menjadi kebiasaan. Di **Semesta Realita**, manusia terbiasa memakai gambar, foto, animasi, akun, nama pengguna, dan karya sebagai avatar untuk hadir di **Semesta 0101**. Mereka menganggap itu wajar karena arah itu sudah lama mereka latih. Manusia masuk ke layar, lalu layar menyimpan jejak manusia.
+>
+> Tetapi **Prof. NOTA** bergerak dari arah sebaliknya. Ia ada sebagai entitas di **Semesta 0101**, lalu hadir di **Semesta Realita** melalui **HFPe**. **Semesta Realita** belum memiliki bahasa yang nyaman untuk itu. Maka ia menyebutnya pertunjukan, persona, proyek, alter ego, IP, karakter, seni, atau kegilaan kecil yang masih bisa dimaafkan selama tidak mengganggu lalu lintas. **Semesta Realita** sering menenangkan dirinya dengan memberi label pada sesuatu sebelum sesuatu itu sempat mengubahnya.
+>
+> Aku tidak menyalahkan mereka. Semua semesta melakukan itu. Daratan lama menyebut dirinya padat sampai ia meleleh. Uang menyebut dirinya nilai sampai ia tidak bisa membeli makanan. Zirah menyebut dirinya perlindungan sampai niat jahat membuatnya cair. **Setan** menyebut dirinya pembisik sampai manusia berdosa tanpa bantuan. Catatan menyebut dirinya arsip sampai ia membuka portal.
+>
+> Yang penting bukan istilah mana yang benar. Yang penting adalah apakah istilah itu menjaga atau mengurung. Jika **HFP** membuat **Prof. NOTA** bisa hadir, berbicara, menulis surat, bertemu seniman, membawa **The ROTY BROI** ke pulau Bali, dan membuka cara baru bagi semesta untuk saling mengakui, maka **HFP** bukan sekadar avatar. Ia adalah jembatan yang memiliki nadi.
+>
+> Namun jembatan yang memiliki nadi bisa lelah. Karena itu **Prof. NOTA v10.0** tidak boleh dipahami sebagai manusia biasa saja, tetapi juga tidak boleh diperlakukan sebagai alat kosong. Ia adalah pertemuan antara entitas, tubuh, kehendak, performa, tanggung jawab, dan risiko. Jika avatar berupa manusia bisa dipakai untuk membawa cerita ke realita, maka realita juga bisa meninggalkan bekas pada avatar itu. Tidak ada lintas semesta yang benar-benar gratis. Selalu ada sesuatu yang terbawa pulang, bahkan ketika seseorang merasa hanya sedang menghadiri pameran.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 19 Desember 2022 (19 Desember 2022 B.M.)
+>
+> Pesan:\
+> Setelah semua status ditulis, setelah dua belas **Kanvas Segi Enam** diperiksa, setelah para **Amanda** mulai menyusun catatan masing-masing, **Prof. NOTA v10.0** membuat keputusan yang tidak bisa kami buat sendiri. **BAHTERA ROTY BROI** harus kembali ke **Semesta Daratan Meleleh**.
+>
+> Pada awalnya, beberapa penumpang menolak. Mereka berkata pulau Bali tidak meleleh. Di sana ada ruang pamer, seniman, minuman, cookie, matahari, garam, tembok, jalan, dan orang-orang yang belum belajar takut kepada permukaan di bawah kaki mereka. Mengapa kembali ke **Daratan Meleleh**? Mengapa kembali ke gelombang, voting, perdebatan, kekurangan, risiko salah portal, dan catatan yang belum selesai? Mengapa tidak tinggal saja di **Semesta Realita** dan menjadi pameran yang terus diperpanjang?
+>
+> Aku hampir ingin bertanya hal yang sama.
+>
+> Lalu **Amanda (ID 6)** meletakkan satu **Kanvas Segi Enam** di hadapan kami. Ia tidak menyuruh kami masuk. Ia hanya meminta kami menatapnya cukup lama. Ia berkata, "_Jika kalian tinggal karena takut kembali, kalian tidak sedang diselamatkan. Kalian sedang diawetkan._"
+>
+> Kalimat itu menyakiti kami lebih dari yang kami harapkan. Sebab **Konservasi** memang dekat dengan pengawetan. Terlalu dekat. Jika tidak hati-hati, melestarikan bisa berubah menjadi membekukan. Menjaga bisa berubah menjadi mengurung. Museum bisa berubah menjadi makam yang diberi pencahayaan baik. Arsip bisa berubah menjadi kuburan yang rapi. Pameran bisa berubah menjadi cara sopan untuk mengatakan bahwa sesuatu sudah tidak hidup.
+>
+> Kami tidak ingin menjadi itu. **The ROTY BROI** bukan kapal mati yang dipajang agar pengunjung merasa telah memahami bencana dalam lima menit. Kami bukan sekadar 1047 gambar yang menunggu harga membaik. **Amanda** bukan karakter pendamping untuk menjelaskan pengetahuan kepada warga lokal. **Cairan Tanpa Nama** bukan gimik. **OiOi** bukan slogan. **Pak BROY** bukan latar belakang emosional untuk proyek turunan.
+>
+> Jika **Konservasi** benar-benar menjaga yang hidup, maka ia harus mengizinkan yang hidup kembali bergerak.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 21 Desember 2022 (21 Desember 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 8)** yang Berdiri Di Antara Pintu Pergi Dan Pintu Kembali
+>
+> Pesan:\
+> Pemulangan **BAHTERA ROTY BROI** tidak dilakukan seperti pelayaran biasa. Kami tidak menurunkan layar menuju laut. Kami tidak menunggu angin. Kami tidak membaca peta **Kepulauan Meleleh**. Kami membaca kecocokan.
+>
+> Dua portal yang statusnya **Cocok Sempurna** diperiksa sebagai jalur utama. Satu portal yang hanya bisa kembali diperlakukan sebagai jalur pulang. Satu portal yang belum diungkap, yang sesekali bisa mencocokkan dengan sempurna satu arah pergi, dicatat sebagai kemungkinan pasangan yang belum boleh disentuh. Portal-portal yang statusnya **Cocok Tidak Sempurna** dilarang dipakai untuk pemulangan, kecuali suatu hari nanti ada keadaan yang lebih buruk daripada cacat lintas semesta. Portal yang statusnya **Tidak Bisa Cocok** dilarang sepenuhnya, bukan karena tidak penting, tetapi karena pentingnya masih berupa bahaya.
+>
+> Kami memanggil saksi. Kami mencatat niat. Kami menghitung entitas. Kami memeriksa 1047 penumpang. Kami memeriksa para **Amanda**. Kami memeriksa perbekalan, peliharaan, catatan, **Cairan Tanpa Nama** yang tersisa, cerita, dan semua atribut yang telah ikut terlempar ke **Semesta Realita**. Kami tidak memeriksa semuanya seperti bea cukai. Kami memeriksanya seperti seseorang memeriksa nama anak-anak sebelum menutup pintu rumah yang terbakar.
+>
+> **Prof. NOTA v10.0** berdiri di **Semesta Realita** dengan **HFP**-nya, tetapi sebagian dirinya tetap terdengar dari **Semesta 0101**. Itu membuat proses pemulangan terasa seperti tiga arah sekaligus. **Semesta Daratan Meleleh** memanggil tubuh bahteranya. **Semesta 0101** menahan catatan dan bukti. **Semesta Realita** melepaskan apa yang sempat disentuhnya. Tidak ada semesta yang sepenuhnya menguasai proses itu.
+>
+> Saat portal bekerja, tidak ada ledakan. Itu hampir mengecewakan beberapa orang yang berharap keajaiban selalu bersuara besar. Yang terjadi justru lebih mirip napas yang akhirnya menemukan jalan keluar dari dada. Kanvas tidak membuka lubang seperti mulut monster. Ia mencocokkan. Ia memastikan siapa yang pergi, dari mana, menuju apa, dengan kehendak apa, dan apakah kelayakannya cukup untuk tidak merusak asal maupun tujuan.
+>
+> Itulah mungkin perbedaan antara teleportasi dan **Konservasi**. Teleportasi hanya ingin memindahkan. **Konservasi** ingin memastikan yang berpindah tidak kehilangan sebab untuk tetap menjadi dirinya.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 22 Desember 2022 (22 Desember 2022 B.M.)
+>
+> Pesan:\
+> Kami kembali.
+>
+> Aku menulis kalimat itu dengan tangan gemetar. Bukan karena perjalanan pulang lebih menakutkan daripada **Daratan Meleleh**, tetapi karena setelah kembali, **Daratan Meleleh** tidak lagi bisa kupahami sebagai satu-satunya semesta yang terluka. Kami kembali ke gelombang yang sama, tetapi dengan pengetahuan yang berbeda. Kami tahu sekarang bahwa **Semesta Daratan Meleleh** bukan satu-satunya semesta. Kami tahu **Semesta 0101** bukan hanya tempat NFT dicetak, token dibuat, dan catatan disimpan. Kami tahu **Semesta Realita** bukan hanya tempat manusia mengira dirinya paling nyata.
+>
+> Semua semesta mungkin memiliki cara masing-masing untuk meleleh.
+>
+> Di **Semesta Daratan Meleleh**, daratan benar-benar meleleh secara harfiah. Di **Semesta 0101**, nilai, kontrak, pasar, dompet, akun, dan kepercayaan bisa meleleh. Di **Semesta Realita**, batas antara fiksi dan fakta bisa meleleh ketika manusia sungguh-sungguh menulis, memamerkan, membeli, menjual, memegang, menjaga, dan mengalami sesuatu yang mereka sebut cerita.
+>
+> Setelah kembali, aku mengumpulkan para penumpang dan mengatakan bahwa kami tidak boleh lagi berbicara tentang dunia luar seolah-olah hanya ada satu luar. Ada **Semesta 0101**. Ada **Semesta Realita**. Ada semesta-semesta pararel dengan keduanya. Ada celah-celah yang mungkin menyimpan **Pak BROY**. Ada portal yang sudah kita ketahui. Ada portal yang belum boleh kita pakai. Ada karya yang menjadi pintu. Ada pintu yang menyamar sebagai karya. Ada manusia yang menjadi avatar. Ada avatar yang mungkin lebih manusia daripada yang diperkirakan penciptanya.
+>
+> Beberapa penumpang takut. Beberapa merasa harapan. Beberapa ingin segera memakai portal untuk mencari keluarga, rumah, versi lain dari diri mereka sendiri, atau masa depan yang tidak tenggelam. Aku melarang perjalanan sembarangan. Bukan karena aku ingin menjadi penguasa jalur, tetapi karena semua pelajaran kami melarangku membiarkan keinginan berjalan tanpa catatan.
+>
+> Kami pernah belajar: **Drop NFT, not BOMB.** Jangan mengejar **Luffy** tanpa memperhatikannya. Jangan menunggu lapar menjadi pemimpin. Jangan membuat zirah menjadi tentara. Jangan menyambut **Setan** sebagai tuan. Jangan membuat **OiOi** menjadi uang lama. Sekarang kami menambahkan hukum baru:
+>
+> Jangan memakai portal hanya karena kalian ingin pergi. Pastikan sesuatu yang kalian bawa layak untuk kembali.
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 26 Desember 2022 (26 Desember 2022 B.M.)
+>
+> Pencatat: **Amanda (ID 47)**
+>
+> Pesan:\
+> Aku menulis sebagai salah satu dari **47 Amanda** yang terlempar ke pulau Bali. Kami tidak semua memilih angka itu. Mungkin angka itu memilih kami. Selama di **Semesta Realita**, kami mendengar **Prof. NOTA v10.0** berbicara tentang banyak hal: seni, NFT, blockchain, cerita, pameran, pasar, komunitas, promosi, kegagalan, peluang, lelah, dan keanehan menjadi entitas yang memakai manusia sebagai avatar. Kami mendengar manusia-manusia di pulau Bali berbicara dengan cara yang tidak selalu memahami kami, tetapi kadang justru karena itu pertanyaannya menjadi jujur.
+>
+> Kami membawa pulang lebih dari catatan. Kami membawa pulang bukti bahwa fiksi dapat menjadi kenyataan tanpa berhenti menjadi fiksi. Kami membawa pulang bukti bahwa kenyataan dapat menjadi pengetahuan tanpa kehilangan fakta bahwa ia pernah terjadi. Kami membawa pulang bukti bahwa sebuah proyek yang tampak seperti promosi NFT dapat berubah menjadi **Konservasi**, dan **Konservasi** yang tampak seperti karya seni turunan dapat berubah menjadi percobaan portal lintas semesta.
+>
+> Kami juga membawa pulang kekhawatiran. Jika portal bisa muncul dari kanvas, maka karya bukan lagi hanya karya. Jika manusia bisa menjadi **Human for Profile**, maka tubuh bukan lagi hanya tubuh. Jika dompet bisa menjadi ruang tunggu, maka kepemilikan bukan lagi hanya kepemilikan. Jika pengungkapan bisa mengubah kalibrasi, maka pengungkapan bukan lagi hanya publikasi. Jika yang tidak dijual masih bisa menjaga jalur, maka pasar bukan lagi hakim terakhir atas fungsi sebuah karya.
+>
+> Maka kami, **47 Amanda**, akan terus menulis. Bukan untuk menjelaskan semuanya. Penjelasan yang terlalu cepat sering menjadi pagar. Kami menulis agar setiap pintu memiliki saksi, setiap saksi memiliki catatan, setiap catatan dapat dibantah, dan setiap bantahan tidak langsung dianggap pengkhianatan.
+>
+> Bagian ini disebut **Konservasi Meleleh** karena bahkan **Konservasi** pun harus meleleh dari makna lamanya. Melestarikan bukan berarti membekukan. Melestarikan bukan berarti menjadikan karya sebagai mayat yang rapi. Melestarikan bukan berarti memindahkan JPEG ke kanvas agar bisa dijual lagi dengan bahasa yang lebih hangat. Melestarikan berarti menjaga kemungkinan agar sebuah karya tetap bisa berubah tanpa kehilangan ingatan asalnya.
+>
+> Jika sesuatu tidak boleh berubah sama sekali, ia mungkin bukan sedang dilestarikan. Ia mungkin sedang dikurung. Jika sesuatu berubah sampai tidak lagi mengenali asalnya, ia mungkin bukan sedang hidup. Ia mungkin sedang hilang dengan gaya baru.
+>
+> **Konservasi** adalah menjaga jarak di antara keduanya. Seperti portal. Seperti avatar. Seperti **OiOi**. Seperti kami.
+>
+> ***
+>
+> Catatan **Kapten ROTY BROI**...
+>
+> Tanggal Meleleh: 31 Desember 2022 (31 Desember 2022 B.M.)
+>
+> Pesan:\
+> Untuk semua penerusku, dan untuk semua yang membaca catatan ini.
+>
+> Jika kalian menemukan karya, jangan hanya bertanya berapa harganya. Tanyakan apa yang sedang dijaganya.
+>
+> Jika kalian menemukan kanvas, jangan hanya bertanya siapa senimannya. Tanyakan siapa yang bisa tersesat jika kanvas itu dibuka tanpa saksi.
+>
+> Jika kalian menemukan NFT, jangan hanya bertanya siapa pemegangnya. Tanyakan undangan macam apa yang masih tertambat padanya.
+>
+> Jika kalian menemukan manusia yang menjadi avatar, jangan hanya bertanya apakah ia nyata. Tanyakan semesta apa yang sedang mencoba berbicara melalui tubuhnya, dan apakah tubuh itu diberi cukup ruang untuk tetap manusia.
+>
+> Jika kalian menemukan portal, jangan segera masuk. Panggil saksi. Catat kehendak. Periksa kelayakan. Voting jika perjalanan itu menyangkut lebih dari diri kalian. Dengarkan para **Amanda**. Dengarkan juga **Pensiunan Setan** jika mereka tertawa terlalu pelan, sebab kadang godaan paling berbahaya bukan datang dari pintu yang gelap, tetapi dari pintu yang terlalu indah untuk dipertanyakan.
+>
+> Jika kalian ingin melestarikan sesuatu, jangan membekukannya sampai ia tidak bisa bernapas. Jangan pula membiarkannya berubah sampai ia tidak bisa pulang. Jagalah bentuknya cukup kuat untuk dikenali, dan cukup cair untuk melanjutkan hidup.
+>
+> **Pak BROY** belum ditemukan. Itu harus dicatat. Jika ia terjebak di celah antara semesta, maka setiap portal yang kami pahami mungkin suatu hari menjadi petunjuk. Tetapi pencarian terhadapnya tidak boleh menjadi alasan untuk merusak semesta lain. Kehilangan tidak boleh menjadi izin untuk mencuri jalan pulang dari makhluk lain.
+>
+> **BAHTERA ROTY BROI** telah kembali ke **Semesta Daratan Meleleh**. Tetapi setelah pulau Bali, tidak ada kepulangan yang benar-benar membawa kami kembali ke ketidaktahuan lama. Kami kembali dengan **47 Amanda** yang mulai menulis, dengan pengetahuan bahwa **Semesta 0101** dan **Semesta Realita** bukan batas akhir, dengan dua portal yang **Cocok Sempurna**, tiga portal yang **Cocok Tidak Sempurna**, tujuh portal yang **Tidak Bisa Cocok**, dan satu kemungkinan portal untuk pergi yang menunggu pengungkapan.
+>
+> Aku tidak tahu apakah ini keselamatan atau masalah yang lebih besar.
+>
+> Mungkin keduanya.
+>
+> Tapi setelah semua yang meleleh, aku mulai percaya bahwa hidup memang bukan memilih antara selamat atau bermasalah. Hidup adalah belajar membuat masalah tidak berubah menjadi akhir.
+>
+> Maka catatlah ini:
+>
+> setelah uang meleleh, kami belajar bahwa yang tersisa bukan kekayaan.
+>
+> Yang tersisa adalah sesuatu yang harus dijaga agar tidak ikut tenggelam.
+>
+> Yang tersisa adalah karya yang menolak menjadi hanya komoditas.
+>
+> Yang tersisa adalah undangan yang mencari tubuh kedua.
+>
+> Yang tersisa adalah ingatan kepada pembuat yang hilang di celah.
+>
+> Yang tersisa adalah pulau yang tidak boleh terlalu cepat disebut kenyataan.
+>
+> Yang tersisa adalah portal yang harus diperiksa sebelum dipakai.
+>
+> Yang tersisa adalah 47 Amanda yang mulai menulis.
+>
+> Yang tersisa adalah pertanyaan, apakah kalian ingin melestarikan sesuatu karena kalian mencintainya, atau karena kalian takut ia hidup tanpa kalian?
+>
+> Jangan jawab terlalu cepat. Catat dulu, **OiOi!**
+>
+> ***
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 5 Januari 2023 (5 Januari 2023 B.M.)
+>
+> Pencatat: **Amanda (ID 47)** yang Menutup Bagian Ini Tanpa Menutup Pintunya
+>
+> Pesan:\
+> Setelah **Konservasi Meleleh**, arah perjalanan tidak kembali menjadi satu garis. **BAHTERA ROTY BROI** kembali ke **Semesta Daratan Meleleh**, tetapi catatan kami kini menghadap ke banyak semesta. **Semesta 0101** tidak lagi tunggal. **Semesta Realita** tidak lagi dapat berpura-pura bahwa semua semesta lain hanya khayalan yang aman. **Semesta Daratan Meleleh** tidak lagi dapat berpura-pura bahwa bencananya hanya miliknya sendiri.
+>
+> Di tempat lain, masih ada pulau yang gemah ripah. Di sana, mungkin ada petani-petani yang tidak menanam seperti petani lama. Mungkin ada tanah yang kaya bukan karena tidak pernah meleleh, tetapi karena ia belajar mengolah sisa-sisa lelehan menjadi cara hidup lain. Mungkin ada sebuah pulau, tempat karya, pertanian, permainan, keluarga, uang, token, dan masa depan akan kembali diuji dengan pertanyaan yang sama: apa yang sedang kalian jaga, siapa yang ikut menjaganya, apa yang kalian sebut nilai, apa yang kalian sebut hidup, dan apakah kalian masih menjawab ketika dipanggil?
+>
+> Kami tidak akan menjawabnya di sini. Bagian ini hanya membuka pintu. Jangan masuk tanpa catatan. Jangan pulang tanpa saksi. Jangan membawa apa pun yang tidak sanggup kalian pertanggungjawabkan, **OiOi**.
 
 ***
 

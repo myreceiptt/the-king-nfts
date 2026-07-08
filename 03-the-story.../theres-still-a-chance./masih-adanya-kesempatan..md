@@ -1490,7 +1490,7 @@ coverY: 0
 >
 > Penulis: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> Subjek: [[**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
+> Subjek: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
 >
 > Pesan:\
 > GM GM [**OiOi!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
@@ -1536,7 +1536,8 @@ coverY: 0
 >
 > Seniman-seniman lokal di pulau Bali tidak hanya melihat [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) sebagai gambar-gambar digital. Mereka melihat wajah, garis, karakter, kemungkinan, cerita, dan sesuatu yang bisa disentuh kembali. Beberapa dari mereka adalah pemilik [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Beberapa lagi adalah pemilik [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md). Beberapa membantu visual pameran. Beberapa berdiskusi tentang blockchain, metaverse, desentralisasi, dan web3 tanpa menjadikan kata-kata itu sebagai kuil. Mereka bertemu cerita melalui pekerjaan.
 >
-> Itulah mengapa [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) dalam bagian ini tidak boleh dipahami sebagai menyimpan JPEG agar tidak hilang. [[**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) adalah ketika gambar yang lahir dari generatif, seleksi, dompet, dan blockchain dipertemukan dengan kanvas, tangan, cat, studio, cuaca di pulau Bali, diskusi malam, aroma kopi, bekas rokok, percikan **Cairan Tanpa Nama**, dan rasa takut bahwa jika tidak segera dijaga, semuanya akan menjadi cerita yang terlalu cepat lewat.
+> Itulah mengapa [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) dalam bagian ini tidak boleh dipahami sebagai menyimpan JPEG agar tidak hilang. [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
+> adalah ketika gambar yang lahir dari generatif, seleksi, dompet, dan blockchain dipertemukan dengan kanvas, tangan, cat, studio, cuaca di pulau Bali, diskusi malam, aroma kopi, bekas rokok, percikan **Cairan Tanpa Nama**, dan rasa takut bahwa jika tidak segera dijaga, semuanya akan menjadi cerita yang terlalu cepat lewat.
 >
 > Bagi **Semesta Realita**, itu adalah kolaborasi. Bagi **Semesta 0101**, itu adalah turunan. Bagi [**Semesta Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), itu adalah upaya menemukan tubuh kedua untuk undangan yang penciptanya terhempas ke dalam ketiadaan.
 >
@@ -1722,7 +1723,7 @@ coverY: 0
 > Pesan:\
 > [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) bertanya apakah **HFP** adalah keanehan. Aku menjawab bahwa keanehan hanya nama yang diberikan oleh semesta kepada mekanisme yang belum menjadi kebiasaan. Di **Semesta Realita**, manusia terbiasa memakai gambar, foto, animasi, akun, nama pengguna, dan karya sebagai avatar untuk hadir di **Semesta 0101**. Mereka menganggap itu wajar karena arah itu sudah lama mereka latih. Manusia masuk ke layar, lalu layar menyimpan jejak manusia.
 >
-> Tetapi [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) bergerak dari arah sebaliknya. Ia ada sebagai entitas di **Semesta 0101**, lalu hadir di **Semesta Realita** melalui **HFPe**. **Semesta Realita** belum memiliki bahasa yang nyaman untuk itu. Maka ia menyebutnya pertunjukan, persona, proyek, alter ego, IP, karakter, seni, atau kegilaan kecil yang masih bisa dimaafkan selama tidak mengganggu lalu lintas. **Semesta Realita** sering menenangkan dirinya dengan memberi label pada sesuatu sebelum sesuatu itu sempat mengubahnya.
+> Tetapi [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) bergerak dari arah sebaliknya. Ia ada sebagai entitas di **Semesta 0101**, lalu hadir di **Semesta Realita** melalui **HFP**. **Semesta Realita** belum memiliki bahasa yang nyaman untuk itu. Maka ia menyebutnya pertunjukan, persona, proyek, alter ego, IP, karakter, seni, atau kegilaan kecil yang masih bisa dimaafkan selama tidak mengganggu lalu lintas. **Semesta Realita** sering menenangkan dirinya dengan memberi label pada sesuatu sebelum sesuatu itu sempat mengubahnya.
 >
 > Aku tidak menyalahkan mereka. Semua semesta melakukan itu. Daratan lama menyebut dirinya padat sampai ia meleleh. Uang menyebut dirinya nilai sampai ia tidak bisa membeli makanan. Zirah menyebut dirinya perlindungan sampai niat jahat membuatnya cair. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menyebut dirinya pembisik sampai manusia berdosa tanpa bantuan. Catatan menyebut dirinya arsip sampai ia membuka portal.
 >

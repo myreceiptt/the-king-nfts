@@ -30,7 +30,7 @@ coverY: 0
 >
 > Komentator: Warga-Penduduk Di Negeri **Entah Air Apa**
 >
-> Komentar: Aye, Aye, Captain!!!
+> Komentar: Aye, aye, Kapten!!!
 >
 > ***
 > 
@@ -45,7 +45,7 @@ coverY: 0
 >
 > Komentator: [**Kapten ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
-> Komentar: Anjiiir, Aku Merinding, Woiii!!!!
+> Komentar: Anjiiir, aku merinding, woiii!!!!
 >
 > ***
 > 
@@ -75,7 +75,7 @@ coverY: 0
 >
 > Komentator: [**Kapten ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
-> Komentar: Semua Naik Ke Geladak, OiOi!!!!
+> Komentar: Semua naik ke geladak, woiii!!!!
 >
 > ***
 > 
@@ -165,7 +165,7 @@ coverY: 0
 >
 > Penyiar: [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > Hai, yang di sana. Ini... Ini [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Apakah ada orang di luar sana?
@@ -176,7 +176,7 @@ coverY: 0
 >
 > Penyiar: Penyintas Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > Halo! Aku mencoba menghubungi siapa pun.
@@ -187,7 +187,7 @@ coverY: 0
 >
 > Penyiar: Penyintas Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > Kami beruntung menemukan orang dengan transmisi ini.
@@ -198,7 +198,7 @@ coverY: 0
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > Ketika tidak ada lagi daratan untuk berpijak, segalanya menjadi seperti lautan yang bergejolak. Seluruh kota hilang, tenggelam dalam [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
@@ -209,7 +209,7 @@ coverY: 0
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > Kantor Pengurangan Risiko Bencana Perserikatan Bangsa-Bangsa hari ini melaporkan bahwa bantuan mungkin tidak akan pernah tersedia dalam waktu dekat...
@@ -220,7 +220,7 @@ coverY: 0
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > ...berbagai puing-puing digunakan sebagai tempat berdiri dan bertahan hidup, di tengah-tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
@@ -231,7 +231,7 @@ coverY: 0
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
 >
-> Subjek: Tidak Diketahui
+> Subjek: Tidak diketahui.
 >
 > Pesan:\
 > Kantor Pengurangan Risiko Bencana Perserikatan Bangsa-Bangsa telah membuat pengumuman yang menginstruksikan untuk membangun sebuah kapal penyelamat yang berfungsi sebagai semacam bahtera agar orang-orang yang dapat bertahan hidup dapat tinggal di sana.
@@ -486,35 +486,43 @@ coverY: 0
 
 > Serpihan yang Dipulihkan...
 >
-> Sumber: Tidak Diketahui
+> Sumber: Tidak diketahui.
 >
 > Pesan:\
 > Hari ini kita tidak membutuhkan emas. Kita tidak membutuhkan bendera. Kita tidak membutuhkan takhta. Kita tidak membutuhkan perbatasan. Kita membutuhkan makanan.
 >
 > ***
 >
-> Sumber: Panggilan radio yang rusak
+> Serpihan yang Dipulihkan...
+>
+> Sumber: Panggilan radio yang rusak.
 >
 > Pesan:\
 > Apakah ada orang di luar sana yang masih makan? Tolong jawab. Apa yang kalian makan sekarang? Apa yang kalian masak? Apa yang kalian berikan kepada anak-anak kalian? Apa yang kalian berikan kepada orang-orang tua kalian? Apa yang kalian berikan kepada mereka yang sudah tidak bisa mengunyah? Tolong jawab.
 >
 > ***
 >
-> Sumber: Kayu tercoret yang ditemukan menempel di sisi [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> Serpihan yang Dipulihkan...
+>
+> Sumber: Kayu tercoret yang ditemukan menempel di sisi [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > Pesan:\
 > Jangan melihat temanmu seperti makanan. Belum. Tolong.
 >
 > ***
 >
-> Sumber: Catatan di dalam botol
+> Serpihan yang Dipulihkan...
+>
+> Sumber: Catatan di dalam botol.
 >
 > Pesan:\
 > Kami melihat salah satu dari kami menawarkan bagian tubuhnya sendiri kepada seseorang yang ia cintai. Kami tidak menulis ini untuk mempermalukannya. Kami menulis ini karena rasa lapar sudah mulai berbicara lebih keras daripada kami.
 >
 > ***
 >
-> Sumber: [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Tidak Diketahui
+> Serpihan yang Dipulihkan...
+>
+> Sumber: [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang tidak diketahui.
 >
 > Pesan:\
 > Kapsul-kapsul itu hampir habis. Kita harus belajar membuat makanan lagi sebelum makanan hanya menjadi ingatan.
@@ -523,7 +531,7 @@ coverY: 0
 >
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah 31 Mei 2022
+> Tanggal Meleleh: Tidak Diketahui (setelah 31 Mei 2022)
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -672,7 +680,7 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah pembiakan pertama [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/)
+> Tanggal Meleleh: Tidak Diketahui (setelah pembiakan pertama [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/))
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -878,7 +886,7 @@ coverY: 0
 >
 > Tanggal Siaran: Tidak Diketahui
 >
-> Sumber: Suara Dari Bawah Lumpur Yang Mendidih
+> Sumber: Suara dari bawah lumpur yang mendidih.
 >
 > Subjek: Neraka tidak berguna bagi penumpang curian.
 >
@@ -901,7 +909,7 @@ coverY: 0
 >
 > Tanggal Siaran: Tidak Diketahui
 >
-> Sumber: Topeng Hangus Yang Ditemukan Di Atas Puing Mengapung
+> Sumber: Topeng hangus yang ditemukan di atas puing mengapung.
 >
 > Subjek: Para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) naik.
 >
@@ -946,7 +954,7 @@ coverY: 0
 >
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)
+> Tanggal Meleleh: Tidak Diketahui (setelah [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md))
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -1065,7 +1073,7 @@ coverY: 0
 >
 > Tanggal Siaran: 13 Mei 2022
 >
-> Sumber: Pasar Lama Yang Tidak Lagi Mengetahui Harga
+> Sumber: Pasar lama yang tidak lagi mengetahui harga.
 >
 > Subjek: Angka masih ada, tetapi tidak lagi dipatuhi.
 >
@@ -1094,7 +1102,7 @@ coverY: 0
 >
 > Tanggal Siaran: 19 Juni 2022
 >
-> Sumber: Dompet Yang Ditemukan Mengapung Di Antara Dua Papan
+> Sumber: Dompet yang ditemukan mengapung di antara dua papan.
 >
 > Subjek: Aku bekerja untuk makan, lalu lupa makan.
 >
@@ -1117,7 +1125,7 @@ coverY: 0
 >
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) diterima sebagai peringatan
+> Tanggal Meleleh: Tidak Diketahui (setelah para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) diterima sebagai peringatan)
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -1312,9 +1320,9 @@ coverY: 0
 
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah uang meleleh
+> Tanggal Meleleh: Tidak Diketahui (setelah uang meleleh)
 >
-> Pencatat: [**Amanda (ID 27)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Melihat Pancaran Cahaya Dari Papan Baru [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
+> Pencatat: [**Amanda (ID 27)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang melihat pancaran cahaya dari papan baru [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md))
 >
 > Lokasi: Di depan papan baru [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) yang mulai memancarkan cahaya.
 >
@@ -1341,7 +1349,7 @@ coverY: 0
 >
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah uang meleleh
+> Tanggal Meleleh: Tidak Diketahui (setelah uang meleleh)
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -1362,9 +1370,9 @@ coverY: 0
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak diketahui, setelah uang meleleh
+> Tanggal Meleleh: Tidak Diketahui (setelah uang meleleh)
 >
-> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Memegang Garam Di Ujung Jari
+> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang mmemegang garam di ujung jari)
 >
 > Lokasi: Dek yang menghadap cahaya dari papan baru [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
 >
@@ -1387,11 +1395,11 @@ coverY: 0
 >
 > Tanggal Dicetak: 5 Agustus 2022 B.M.
 >
-> Sumber: Selebaran Yang Dibagikan Di **TERUPA**
+> Sumber: Selebaran yang dibagikan di **TERUPA**.
 >
 > Penulis: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> Subjek: **Cairan Tanpa Nama**
+> Subjek: **Cairan Tanpa Nama**.
 >
 > Pesan:\
 > Kepada Yth.\
@@ -1446,7 +1454,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 6 Agustus 2022 (7 Agustus 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 30)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Membaca Surat Sebelum Kertasnya Kering
+> Pencatat: [**Amanda (ID 30)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang membaca surat sebelum kertasnya kering)
 >
 > Pesan:\
 > Di **TERUPA**, [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tidak tiba sebagai kapal kayu besar yang membelah jalan-jalan Denpasar. Ia tiba sebagai kumpulan gambar, cerita, makanan kecil, minuman, surat, percakapan, dan tatapan. Di **Semesta Realita**, tidak semua kedatangan harus membuat tanah retak. Beberapa kedatangan cukup membuat seseorang berhenti di depan karya, membaca, bertanya, lalu pulang dengan kegelisahan yang tidak sama seperti ketika ia datang.
@@ -1486,11 +1494,11 @@ coverY: 0
 >
 > Tanggal Dicetak: 15 September 2022 B.M.
 >
-> Sumber: Akun lama [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) di **Semesta 0101**
+> Sumber: Akun lama [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) di **Semesta 0101**.
 >
 > Penulis: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> Subjek: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
+> Subjek: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
 > Pesan:\
 > GM GM [**OiOi!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
@@ -1525,7 +1533,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 29 September 2022 (30 September 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Menyadari Kata Turunan Tidak Selalu Berarti Lebih Rendah
+> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang menyadari kata turunan tidak selalu berarti lebih rendah)
 >
 > Pesan:\
 > Di **Semesta 0101**, pengumuman itu terlihat seperti peta jalan, promosi, ajakan pemegang, dan informasi proyek. Di **Semesta Realita**, pengumuman itu terlihat seperti kelanjutan aktivitas seorang manusia yang datang ke pulau Bali membawa cerita NFT. Tetapi di tempat kami, pengumuman itu terdengar seperti cara baru untuk berkabung. Mereka menyebutnya koleksi turunan. Kami mendengarnya sebagai turunan, tetapi bukan turunan yang lebih rendah. Turunan adalah cara sebuah karya mengakui bahwa ia tidak ingin sendirian menahan ingatan.
@@ -1547,11 +1555,11 @@ coverY: 0
 >
 > Tanggal Dicetak: 30 September 2022 B.M.
 >
-> Sumber: Selebaran Untuk Warga Lokal Di BALI, Pulaunya Para Dewata
+> Sumber: Selebaran untuk warga lokal di BALI, pulaunya para Dewata.
 >
 > Penulis: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> Subjek: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
+> Subjek: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
 > Pesan:\
 > Kepada Yth.\
@@ -1600,7 +1608,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 5 Oktober 2022 (5 Oktober 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Mengukur Segi Enam Dengan Rasa Curiga
+> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang mengukur segi enam dengan rasa curiga)
 >
 > Pesan:\
 > Dua belas [**Kanvas Segi Enam**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) itu mula-mula terlihat seperti media karya. Putih, kosong, belum menyatakan senimannya, belum mengungkap karya seninya, hanya hadir sebagai ruang yang menunggu. Di **Semesta 0101**, ia diwakili oleh dua belas NFT satu dari satu. Di tahap pertama, masing-masing NFT hanya menampilkan foto kanvas kosong. Karya seni belum diungkap. Seniman juga belum diungkap. Nomor kanvas sudah ada, tetapi tubuh karya belum menyatakan diri.
@@ -1640,7 +1648,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 18 Oktober 2022 (18 Oktober 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Pertama Kali Menyebut [**Kanvas Segi Enam**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) Sebagai Portal
+> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang pertama kali menyebut [**Kanvas Segi Enam**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) sebagai portal)
 >
 > Pesan:\
 > Kami tidak menemukan fungsi portal pada hari pertama. Pada awalnya, kami hanya menemukan ketidakcocokan kecil. Ada catatan yang tidak sinkron antara foto kanvas dan aura undangan. Ada ID NFT [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang terasa seperti memanggil karakter lain. Ada cahaya yang muncul sebentar ketika nama seniman dibaca bersama ID NFT tertentu. Ada bayangan yang tampak seperti bukan berasal dari **Semesta Realita** dan bukan juga dari [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Ada beberapa kali [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) melihat sesuatu di tepi mata yang tidak dapat dijelaskan sebagai lelah.
@@ -1682,7 +1690,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 31 Oktober 2022 (31 Oktober 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Menyimpan Nama-Nama Dalam Dua Kolom
+> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang menyimpan nama-nama dalam dua kolom)
 >
 > Pesan:\
 > Dua belas NFT satu dari satu dalam koleksi [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) kini berada di dompet masing-masing pemilik. Yang tidak terjual pun tidak hilang. Mereka disimpan di dompet arsip yang dibuat [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) untuk pelestarian dan perlindungan. Di **Semesta 0101**, dompet adalah tempat menyimpan bukti, tetapi di lintas semesta, dompet juga bisa menjadi ruang tunggu. Tidak semua yang menunggu berarti mati. Tidak semua yang tidak dijual berarti tidak bekerja.
@@ -1718,7 +1726,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 14 Desember 2022 (14 Desember 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Berbicara Dengan [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) Tentang Avatar
+> Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang berbicara dengan [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) tentang avatar)
 >
 > Pesan:\
 > [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) bertanya apakah **HFP** adalah keanehan. Aku menjawab bahwa keanehan hanya nama yang diberikan oleh semesta kepada mekanisme yang belum menjadi kebiasaan. Di **Semesta Realita**, manusia terbiasa memakai gambar, foto, animasi, akun, nama pengguna, dan karya sebagai avatar untuk hadir di **Semesta 0101**. Mereka menganggap itu wajar karena arah itu sudah lama mereka latih. Manusia masuk ke layar, lalu layar menyimpan jejak manusia.
@@ -1758,7 +1766,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 21 Desember 2022 (21 Desember 2022 B.M.)
 >
-> Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Berdiri Di Antara Pintu Pergi Dan Pintu Kembali
+> Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang berdiri di antara pintu pergi dan pintu kembali)
 >
 > Pesan:\
 > Pemulangan [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tidak dilakukan seperti pelayaran biasa. Kami tidak menurunkan layar menuju laut. Kami tidak menunggu angin. Kami tidak membaca peta [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Kami membaca kecocokan.
@@ -1878,7 +1886,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 5 Januari 2023 (5 Januari 2023 B.M.)
 >
-> Pencatat: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang Menutup Bagian Ini Tanpa Menutup Pintunya
+> Pencatat: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang menutup bagian ini tanpa menutup pintunya)
 >
 > Pesan:\
 > Setelah [**Konservasi Meleleh**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), arah perjalanan tidak kembali menjadi satu garis. [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) kembali ke [**Semesta Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tetapi catatan kami kini menghadap ke banyak semesta. **Semesta 0101** tidak lagi tunggal. **Semesta Realita** tidak lagi dapat berpura-pura bahwa semua semesta lain hanya khayalan yang aman. [**Semesta Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) tidak lagi dapat berpura-pura bahwa bencananya hanya miliknya sendiri.

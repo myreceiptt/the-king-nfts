@@ -1058,7 +1058,7 @@ coverY: 0
 >
 > This is another fringe in theory:
 >
-> Khen everything melts, even hell may send refugees. And if those refugees can no longer work as [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), perhaps they must be recorded as something else: [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
+> When everything melts, even hell may send refugees. And if those refugees can no longer work as [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), perhaps they must be recorded as something else: [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
 
 ***
 

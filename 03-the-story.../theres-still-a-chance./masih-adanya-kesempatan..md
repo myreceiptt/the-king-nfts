@@ -249,7 +249,7 @@ coverY: 0
 >
 > Tidak ada pengetahuan (zero-knowledge) di antara kami masing-masing, tidak perlu rasa percaya (trust-less), dan yang ada hanya gosip yang tersebar di antara kami, yang dapat digunakan untuk mengonfirmasi dan memvalidasi siapa kami. Jika kalian di luar sana bisa bertahan, selamatkan hidup kalian! Saling membantu apa pun kondisinya. Bersiaplah untuk apa pun. Perjalanan kami baru saja dimulai.
 >
-> Meski kami masih belum tahu ke mana kami harus pergi, bahtera ini memberi kami waktu yang memberi kami kesempatan. Berlayar ke mana pun untuk bertahan hidup. Melalui pemungutan suara, kami akan terus memilih salah satu sebagai Kapten. Melalui pemungutan suara, kami akan selalu memutuskan bagaimana mengatur aktivitas kami. Melalui pemungutan suara, kami akan selalu memutuskan ke mana bahtera kami harus berlayar dalam perjalanan ini.
+> Meski kami masih belum tahu ke mana kami harus pergi, bahtera ini memberi kami waktu yang memberi kami kesempatan. Berlayar ke mana pun untuk bertahan hidup. Melalui pemungutan suara, kami akan terus memilih salah satu sebagai **Kapten**. Melalui pemungutan suara, kami akan selalu memutuskan bagaimana mengatur aktivitas kami. Melalui pemungutan suara, kami akan selalu memutuskan ke mana bahtera kami harus berlayar dalam perjalanan ini.
 >
 > N.B. Pesan ini secara khusus ditujukan kepada semua [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), penggantiku. Selalu ingat keanehan-keanehan dalam teori yang telah tercatat, perhatikan jika terjadi keanehan-keanehan dalam teori lainnya, dan masukkan ke dalam catatan.
 

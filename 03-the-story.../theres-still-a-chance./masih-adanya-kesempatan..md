@@ -1911,7 +1911,7 @@ coverY: 0
 >
 > Subjek: Aku pergi bukan karena membenci bahtera.
 >
-> Pesan:
+> Pesan:\
 > Kalau pesan ini sampai ke [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), tolong jangan langsung menyebutku orang yang tidak tahu terima kasih.
 >
 > Aku pergi bukan karena bahtera gagal menyelamatkan kami. Aku pergi karena peta tidak akan pernah menjadi jalan kalau semua orang hanya menatapnya sambil menunggu orang lain lebih dulu hilang. Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) pernah membawa peta tentang daratan-daratan yang mungkin masih ada setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kita menyebutnya [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Kita memilih untuk mencarinya. Tetapi pilihan yang terlalu lama hanya dibicarakan akan berubah menjadi hiasan di dinding yang basah.
@@ -1922,7 +1922,7 @@ coverY: 0
 >
 > Aku pergi sambil gemetar.
 >
-> ---
+> ***
 >
 > Potongan Pesan Pertama...
 >
@@ -1932,7 +1932,7 @@ coverY: 0
 >
 > Subjek: Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Pesan:
+> Pesan:\
 > Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
 > Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), nanti kalian lupa bertanya namaku.*"
@@ -1945,7 +1945,7 @@ coverY: 0
 >
 > Aku membaginya air. Ia membaginya arah. Untuk sementara, itu cukup disebut hidup.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -1955,7 +1955,7 @@ coverY: 0
 >
 > Subjek: Beberapa pesan terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md), padahal bukan.
 >
-> Pesan:
+> Pesan:\
 > Aku perlu mencatat ini sebelum semua orang tambah sok tahu.
 >
 > Beberapa pesan dari sekoci [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md). Bukan suaranya. Bukan namanya. Bukan tubuhnya. Tapi caranya membuat hal kecil menjadi pertanyaan besar. Air menjadi arah. Daun menjadi dokumen. Daratan menjadi proyek yang tidak mau disebut proyek. Keluarga menjadi teknologi paling tua yang belum selesai diuji.
@@ -1966,7 +1966,7 @@ coverY: 0
 >
 > Kalau kalian bingung, bagus. Banyak pintu terbuka bukan karena kita paham, tapi karena kita cukup sopan untuk tidak langsung menutupnya.
 >
-> ---
+> ***
 >
 > Potongan Pesan Kedua...
 >
@@ -1976,7 +1976,7 @@ coverY: 0
 >
 > Subjek: Di sini ramai.
 >
-> Pesan:
+> Pesan:\
 > Ada tempat yang tidak bergoyang.
 >
 > Ada suara tertawa. Ada anak-anak. Ada sesuatu yang disebut tetangga, tapi tidak terdengar seperti orang yang hanya tinggal di sebelah. Tetangga di sini terdengar seperti orang yang masih mau menoleh ketika seseorang jatuh.
@@ -1987,7 +1987,7 @@ coverY: 0
 >
 > Tanahnya tidak menjawab saat dipanggil. Tapi sesuatu di sana seperti melambai.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -1995,7 +1995,7 @@ coverY: 0
 >
 > Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
-> Pesan:
+> Pesan:\
 > Beberapa penumpang langsung berkata ada pesan dari salah satu [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Beberapa lainnya berkata itu pasti tipu daya penyintas jahat. Satu orang berkata itu terdengar seperti kata "banana" dan langsung meminta jatah makan ditambah. Aku tidak akan menulis namanya karena ia sudah cukup malu setelah semua orang memandangnya.
 >
 > Aku hanya menulis: catat dulu.
@@ -2006,7 +2006,7 @@ coverY: 0
 >
 > Itu belum cukup untuk disebut keselamatan. Tapi cukup untuk tidak diabaikan.
 >
-> ---
+> ***
 >
 > Pesan Seorang Penyintas Perempuan...
 >
@@ -2016,7 +2016,7 @@ coverY: 0
 >
 > Subjek: Jangan petik semuanya.
 >
-> Pesan:
+> Pesan:\
 > Kami menemukan pohon pisang.
 >
 > Tidak banyak. Jangan bayangkan kebun besar. Jangan bayangkan buah menumpuk sampai orang-orang bisa malas dan tetap kenyang. Hanya beberapa batang. Beberapa daun lebar. Beberapa buah yang menggantung seperti pertanyaan yang bisa dimakan kalau kalian cukup sabar.
@@ -2029,7 +2029,7 @@ coverY: 0
 >
 > Aku tidak tahu apakah itu disebut bertani. Mungkin hanya disebut tidak bodoh dua kali.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2039,14 +2039,14 @@ coverY: 0
 >
 > Subjek: Pohon pisang bukan jawaban.
 >
-> Pesan:
+> Pesan:\
 > Pohon pisang bukan jawaban. Jangan membuatnya menjadi patung. Pohon pisang juga bukan sekadar makanan. Jangan membuatnya menjadi stok. Pohon pisang adalah pertanyaan yang tumbuh pelan-pelan: apakah makhluk yang sudah terlalu lama diselamatkan masih mampu menunggu sesuatu tumbuh tanpa langsung menghabiskannya?
 >
 > Itu pertanyaan yang kasar, sebenarnya. Tapi pohon pisang menanyakannya dengan daun yang sopan, jadi beberapa orang tidak merasa diserang. Bagus. Kadang kebenaran harus memakai daun lebar agar manusia tidak langsung tersinggung.
 >
 > [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) dan penyintas perempuan itu belum tahu bahwa mereka sedang menjadi petani. Mereka hanya sedang belajar tidak mengulang cara lama. Itu lebih baik daripada banyak orang yang sudah memakai gelar besar tapi belum belajar menyisakan tunas.
 >
-> ---
+> ***
 >
 > Pesan Dalam Botol Kecap...
 >
@@ -2056,7 +2056,7 @@ coverY: 0
 >
 > Subjek: [**BANANOW**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)?
 >
-> Pesan:
+> Pesan:\
 > Ada anak kecil yang menunjuk buah dan berkata, "*Nana.*"
 >
 > Ada orang dewasa yang berkata, "*Banana.*"
@@ -2067,7 +2067,7 @@ coverY: 0
 >
 > Nama yang lebih baik belum datang. Mungkin ia tersesat. Atau mungkin nama ini yang lebih dulu menemukan kami.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2077,7 +2077,7 @@ coverY: 0
 >
 > Subjek: Nama yang terdengar lucu kadang lebih aman.
 >
-> Pesan:
+> Pesan:\
 > Beberapa penumpang tidak suka nama [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) karena terdengar terlalu lucu untuk sebuah daratan setelah kiamat. Mereka ingin nama yang lebih besar. Lebih berat. Lebih seperti bangsa lama memberi nama sesuatu sebelum mulai mengklaimnya.
 >
 > Aku tidak setuju. Nama yang terlalu besar sering membuat manusia merasa berhak menjadi besar juga. Nama yang terlalu serius sering mengundang orang-orang yang suka berdiri di atas batu lalu menunjuk-nunjuk arah seperti semua arah menunggu telunjuk mereka.
@@ -2086,7 +2086,7 @@ coverY: 0
 >
 > Catat dulu: daratan itu mulai punya nama. Tapi jangan langsung membuat bendera.
 >
-> ---
+> ***
 >
 > Pesan Dari Lumbung Kecil...
 >
@@ -2096,7 +2096,7 @@ coverY: 0
 >
 > Subjek: Tanda palsu masuk.
 >
-> Pesan:
+> Pesan:\
 > Kami membuat lumbung kecil.
 >
 > Jangan tertawa. Lumbungnya memang kecil. Bahkan satu peti basah di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mungkin lebih besar daripada lumbung pertama kami. Tapi di dalamnya ada hal-hal yang tidak boleh hilang: tunas, buah yang belum dibagi, catatan cara menanam, simpul tali, dan tanda untuk membedakan mana yang boleh dipetik, mana yang harus ditunggu.
@@ -2109,7 +2109,7 @@ coverY: 0
 >
 > Jika pesan ini sampai, jangan hanya datang karena kami menemukan daratan. Datanglah karena daratan juga bisa tertipu.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2119,7 +2119,7 @@ coverY: 0
 >
 > Subjek: Dompet bisa berupa lumbung.
 >
-> Pesan:
+> Pesan:\
 > Aku tahu beberapa penumpang akan berkata, "*Bagaimana mungkin lumbung tertipu?*"
 >
 > Pertanyaan itu terdengar pintar hanya jika kita lupa bahwa lumbung tidak membuka dirinya sendiri. Selalu ada tangan. Selalu ada percaya. Selalu ada kalimat yang membuat percaya merasa seperti kecerdasan.
@@ -2130,9 +2130,9 @@ coverY: 0
 >
 > Jadi daratan itu nyata. Bukan karena ia sempurna. Justru karena ia bisa salah membuka pintu.
 >
-> ---
+> ***
 >
-> Pesan Pada Kain Putih Pembungkus Pohon Pisang...
+> Pesan Di Kain Putih Pembungkus Pohon Pisang...
 >
 > Tanggal Meleleh: 2 Januari 2023 (2 Januari 2023 B.M.)
 >
@@ -2140,14 +2140,14 @@ coverY: 0
 >
 > Subjek: Jangan datang sebagai pahlawan.
 >
-> Pesan:
+> Pesan:\
 > Jika [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendengar kami, jangan datang sebagai pahlawan. Pahlawan sering datang dengan langkah terlalu keras. Tanah yang baru belajar tidak tenggelam tidak suka langkah yang terlalu yakin.
 >
 > Datanglah sebagai saksi. Datanglah sebagai tangan tambahan. Datanglah sebagai orang yang juga pernah salah percaya.
 >
 > Kami tidak butuh orang yang mengejek lumbung kami karena pernah terbuka. Kami butuh orang yang bisa membantu membuat simpul baru tanpa mengubah lumbung menjadi penjara.
 >
-> ---
+> ***
 >
 > Suara Dari Arah Barat...
 >
@@ -2157,7 +2157,7 @@ coverY: 0
 >
 > Subjek: Aku menemukan daratan, lalu kehilangan suara.
 >
-> Pesan:
+> Pesan:\
 > Aku menemukan daratan setelah mengarahkan sekociku ke arah yang berbeda.
 >
 > Aku bersorak. Tapi tidak ada yang mendengar. Aku menangis dan gelombang tidak peduli. Aku berlari, lalu jatuh, karena tubuhku lupa cara berurusan dengan tanah yang tidak ikut naik-turun. Setelah itu aku tidak lagi bersorak terlalu keras. Daratan membuat orang terlihat bodoh dengan cara yang sangat sopan.
@@ -2166,7 +2166,7 @@ coverY: 0
 >
 > Hari pertama menemukan daratan adalah euforia. Hari kedua adalah pertanyaan yang menampar: apa gunanya menemukan kalau kabarnya ikut terdampar?
 >
-> ---
+> ***
 >
 > Potongan Gema Yang Dipulihkan...
 >
@@ -2178,14 +2178,14 @@ coverY: 0
 >
 > Subjek: Ada bantuan yang tidak terdengar seperti pertolongan.
 >
-> Pesan:
+> Pesan:\
 > Kadang bantuan datang sebagai pemeriksaan simpul. Kadang bantuan datang sebagai pertanyaan, "*Apa lagi yang hilang?*"
 >
 > Kadang bantuan datang bukan untuk mengambil alih lumbung, tetapi untuk memastikan lubang yang sama tidak menjadi kebiasaan. Kadang bantuan datang dari suara yang jauh, dari tubuh yang berada di semesta lain, dari seseorang yang tidak memegang pisang pertama, tetapi tahu bahwa satu simpul yang salah bisa membuat satu musim gagal.
 >
 > Jika ini terdengar seperti telepon, mungkin itu karena beberapa semesta masih percaya pada suara. Jika ini terdengar seperti catatan teknis, mungkin itu karena masa depan kadang lebih dulu pecah di bagian yang disebut akses. Jika ini terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md), mungkin karena gema memang suka memakai jaket orang lain.
 >
-> ---
+> ***
 >
 > Pesan Dari Corong Pengeras Suara...
 >
@@ -2195,14 +2195,14 @@ coverY: 0
 >
 > Subjek: Aku membangun mulut untuk daratan.
 >
-> Pesan:
+> Pesan:\
 > Aku membangun corong pengeras suara. Bentuknya tidak bagus. Kalau ada arsitek dunia lama melihatnya, mungkin ia akan pura-pura pingsan. Corong pengeras suara ini terbuat dari logam bekas, kayu yang belum memutuskan mau menjadi tiang atau kenangan, kulit kerang besar, dan bagian sekoci yang sudah tidak layak disebut sekoci.
 >
 > Bentuknya seperti corong pengeras suara masjid dalam ingatan yang masih basah. Tapi fungsinya bukan memanggil orang untuk membuktikan siapa yang paling dekat dengan langit. Fungsinya sederhana: agar kabar tidak mati terlalu cepat.
 >
 > Hari pertama, corong pengeras suara yang aku bangun hanya memperbesar suara angin. Hari kedua, ia memperbesar suara perutku. Hari ketiga, ia menangkap kata: pisang. Aku langsung percaya bahwa benda jelek ini akan berguna.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2212,7 +2212,7 @@ coverY: 0
 >
 > Subjek: Dua panggilan mungkin satu daratan.
 >
-> Pesan:
+> Pesan:\
 > Pesan [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) datang dari arah yang seharusnya berbeda dengan pesan [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Itu membuat beberapa penumpang senang karena mengira kami menemukan dua pulau.
 >
 > Aku tidak langsung senang. Senang yang terlalu cepat sering malas menghitung.
@@ -2223,7 +2223,7 @@ coverY: 0
 >
 > Hmmm... Jangan tepuk tangan dulu. Aku belum selesai curiga.
 >
-> ---
+> ***
 >
 > Sebuah Pesan Pendek...
 >
@@ -2233,7 +2233,7 @@ coverY: 0
 >
 > Subjek: Aku tidak tahu cara hidup di atasnya.
 >
-> Pesan:
+> Pesan:\
 > Aku sudah berdiri di daratan selama tujuh hari.
 >
 > Aku masih menyimpan makanan seperti akan tenggelam besok pagi.
@@ -2248,9 +2248,9 @@ coverY: 0
 >
 > Tolong jangan tulis namaku.
 >
-> ---
+> ***
 >
-> Suara Dari Arah Barat...
+> Suara Dari Rumah Yang Belum Punya Alamat...
 >
 > Tanggal Meleleh: 8 Januari 2023 (8 Januari 2023 B.M.)
 >
@@ -2258,14 +2258,14 @@ coverY: 0
 >
 > Subjek: Ada dua anak.
 >
-> Pesan:
+> Pesan:\
 > Ada rumah di daratan itu, tapi belum punya alamat. Atau itu sesuatu yang sedang belajar menjadi rumah.
 >
 > Ada dua anak yang tidak terlalu peduli apakah daratan ini pulau, kepulauan, super-daratan, atau hasil dari semua peta yang akhirnya lelah berpisah. Mereka lebih peduli apakah pisang yang matang boleh dimakan sekarang atau harus menunggu orang dewasa selesai mencatat.
 >
 > Salah satu dari mereka bertanya apakah [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) punya halaman. Tidak ada yang menjawab. Bagaimana menjelaskan kepada anak-anak bahwa selama ini halaman kami adalah gelombang yang selalu mencoba menelan?
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2275,7 +2275,7 @@ coverY: 0
 >
 > Subjek: Aku hanya lewat.
 >
-> Pesan:
+> Pesan:\
 > Aku tahu ini belum bagianku.
 >
 > Kalau ada yang bertanya mengapa aku menulis di sini, jawab saja: aku lewat dan mencium bau rumah. Sulit bagi sebagian dari kami untuk tidak berhenti ketika ada kata keluarga, anak-anak, dan pisang matang di kalimat yang sama.
@@ -2286,7 +2286,7 @@ coverY: 0
 >
 > Sudah. Aku pergi. Jangan terlalu merindukanku. Nanti catatan ini jadi tidak objektif. Padahal sejak kapan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) objektif?
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2296,7 +2296,7 @@ coverY: 0
 >
 > Subjek: Ini mulai terdengar seperti [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
-> Pesan:
+> Pesan:\
 > Sekarang pesan-pesan dari daratan mulai berantakan dengan cara yang sehat.
 >
 > Ada pesan tentang pisang. Ada pesan tentang lumbung yang keliru dibuka. Ada pesan tentang corong pengeras suara yang terlalu keras. Ada pesan dari seseorang yang tidak tahu cara hidup di atas daratan. Ada pesan dari anak-anak yang menamai sesuatu sebelum orang dewasa selesai menyusun istilah. Ada pesan dari orang-orang yang ingin mengambil, lalu malu karena pohon masih ada besoknya.
@@ -2307,7 +2307,7 @@ coverY: 0
 >
 > Aku suka. Aku tidak bilang percaya. Aku bilang suka. Itu beda, walaupun beberapa penumpang yang sudah lama di bahtera tampaknya lupa bahwa suka tidak harus langsung menjadi sumpah.
 >
-> ---
+> ***
 >
 > Pesan Di Sebuah Papan...
 >
@@ -2317,14 +2317,14 @@ coverY: 0
 >
 > Subjek: Gunungnya seperti jahitan.
 >
-> Pesan:
+> Pesan:\
 > Aku melihat gunung. Bukan gunung seperti di buku-buku sebelum bencana. Gunung ini terlalu panjang. Terlalu seperti bekas luka yang menolak hilang. Punggungnya menyambung jauh ke arah yang tidak bisa kulihat habisnya.
 >
 > Kalau ini pulau, pulau ini terlalu banyak menahan rahasia. Kalau ini daratan, daratan ini pernah dipaksa menyatu dengan sesuatu yang besar.
 >
-> Aku bukan pembaca peta. Aku hanya menulis apa yang kakiku takutkan: tanah ini tidak kecil.
+> Aku bukan pembaca peta. Yang kubaca pun belum tentu mau disebut peta. Aku hanya menulis apa yang kakiku takutkan: tanah ini tidak kecil.
 >
-> ---
+> ***
 >
 > Pesan Dari Teluk Yang Menahan Napas...
 >
@@ -2334,7 +2334,7 @@ coverY: 0
 >
 > Subjek: Teluk ini seperti mulut.
 >
-> Pesan:
+> Pesan:\
 > Aku menemukan teluk besar. Bentuknya seperti daratan yang sedang menahan sesuatu agar tidak keluar sekaligus. Di tepinya banyak sisa benda dari dunia lama. Kayu. Kain. Mainan. Tulang. Botol. Potongan logam. Tulisan yang hanya tinggal setengah huruf.
 >
 > Kami hampir menyebut semuanya harta. Lalu hampir menyebut semuanya sampah. Keduanya salah.
@@ -2343,7 +2343,7 @@ coverY: 0
 >
 > Kami menaruh beberapa di tempat kering. Kami belum tahu untuk apa. Kami hanya tahu: jangan buang terlalu cepat.
 >
-> ---
+> ***
 >
 > Pesan Dari Orang Yang Berjalan Terlalu Jauh...
 >
@@ -2353,14 +2353,14 @@ coverY: 0
 >
 > Subjek: Tiga hari dan tanah belum habis.
 >
-> Pesan:
+> Pesan:\
 > Aku berjalan tiga hari. Tanah belum habis. Aku berjalan bukan untuk mencari sesuatu. Aku berjalan karena sombong. Aku ingin menjadi orang pertama yang tahu ukuran daratan ini.
 >
 > Pada hari kedua, aku lupa jalan pulang. Pada hari ketiga, seorang anak menunjukku dan berkata, "*Om itu tersesat di halaman sendiri.*"
 >
 > Aku tidak tahu mana yang lebih menyakitkan: tersesat atau dipanggil om oleh anak yang benar.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2370,7 +2370,7 @@ coverY: 0
 >
 > Subjek: Ini bukan banyak pulau.
 >
-> Pesan:
+> Pesan:\
 > Aku mulai berani menulisnya, meskipun masih dengan pensil yang bisa dihapus kalau daratan ini tiba-tiba mempermalukanku.
 >
 > Ini bukan banyak pulau. Atau setidaknya, bukan lagi banyak pulau seperti yang dulu kami kira.
@@ -2383,7 +2383,7 @@ coverY: 0
 >
 > Kalau tiga orang berdiri di tiga pantai berbeda dan semuanya mengaku menemukan pulau pertama, mungkin masalahnya bukan pada jumlah pulau. Mungkin kaki mereka terlalu kecil untuk memahami ukuran daratan.
 >
-> ---
+> ***
 >
 > Potongan Gema Yang Dipulihkan...
 >
@@ -2395,7 +2395,7 @@ coverY: 0
 >
 > Subjek: Rilis ulang bukan selalu mengulang dari awal.
 >
-> Pesan:
+> Pesan:\
 > Ada hal-hal yang harus dibuat ulang bukan karena yang pertama palsu.
 >
 > Kadang jalan masuk pertama cukup untuk membuat orang datang, tapi belum cukup untuk membuat mereka tidak tersesat setelah sampai. Kadang undangan pertama cukup untuk memanggil, tapi belum cukup untuk menjaga. Kadang tubuh lama sebuah tempat terlalu kecil untuk niat yang mulai tumbuh di dalamnya. Maka dibuat tubuh baru.
@@ -2404,7 +2404,7 @@ coverY: 0
 >
 > Jika ini terdengar seperti kontrak, jangan buru-buru menyebutnya kontrak. Jika ini terdengar seperti acara, jangan buru-buru menyebutnya acara. Jika ini terdengar seperti rencana, jangan buru-buru menyebutnya rencana. Beberapa semesta memakai kata yang berbeda untuk hal yang sama: memperbaiki jalan agar yang datang tidak salah mengira pintu sebagai lumbung.
 >
-> ---
+> ***
 >
 > Tulisan Di Papan Lumbung...
 >
@@ -2416,7 +2416,7 @@ coverY: 0
 >
 > Subjek: 2345.
 >
-> Pesan:
+> Pesan:\
 > 2345 bukan jumlah pisang dan bukan pula jumlah pohon.
 >
 > 2345 bukan jumlah orang baik. Tolong jangan terlalu percaya angka seperti itu.
@@ -2431,7 +2431,7 @@ coverY: 0
 >
 > Mereka mulai disebut petani. Bukan karena semuanya menanam pisang. Tapi karena semuanya setuju bahwa daratan yang subur akan mati jika hanya dirayakan.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2441,14 +2441,14 @@ coverY: 0
 >
 > Subjek: Petani bukan pekerjaan.
 >
-> Pesan:
+> Pesan:\
 > Aku suka cara mereka memakai kata petani. Tidak rapi. Sedikit sembarangan. Agak berbahaya kalau dibawa ke rapat dunia lama. Tapi hidup.
 >
-> Di sana, orang yang menjaga corong pengeras suara bisa disebut petani. Orang yang menjaga lumbung bisa disebut petani. Orang yang mengantar anak-anak menjauh dari tepi air bisa disebut petani. Orang yang menulis kesalahan agar tidak berubah menjadi tradisi juga bisa disebut petani. Bahkan orang yang baru belajar meminta maaf kepada pohon karena hampir memetik terlalu banyak bisa disebut petani, asal setelah itu ia benar-benar menanam.
+> Di sana, orang yang menjaga corong pengeras suara bisa disebut petani. Orang yang menjaga lumbung bisa disebut petani. Orang yang mengantar anak-anak menjauh dari tepi jurang bisa disebut petani. Orang yang menulis kesalahan agar tidak berubah menjadi tradisi juga bisa disebut petani. Bahkan orang yang baru belajar meminta maaf kepada pohon karena hampir memetik terlalu banyak bisa disebut petani, asal setelah itu ia benar-benar menanam.
 >
 > Ini mengganggu beberapa penumpang yang suka definisi rapat. Bagus, sebab beberapa definisi memang perlu diganggu agar tidak berubah menjadi pagar.
 >
-> ---
+> ***
 >
 > Pesan Dari Sebuah **Dermaga**...
 >
@@ -2458,7 +2458,7 @@ coverY: 0
 >
 > Subjek: Kami membangun tempat berlabuh tanpa membuat daratan panik.
 >
-> Pesan:
+> Pesan:\
 > Kami mulai membangun **Dermaga**.
 >
 > Jangan bayangkan pelabuhan besar. Jangan bayangkan gerbang megah. Jangan bayangkan patung siapa pun, apalagi patungku. Kalau suatu hari ada patungku di sini, tolong dorong ke laut sebelum ia belajar bicara.
@@ -2475,7 +2475,7 @@ coverY: 0
 >
 > Kami kalah. Tanda anak-anak lebih baik.
 >
-> ---
+> ***
 >
 > Pesan Dari Corong Pengeras Suara...
 >
@@ -2485,14 +2485,14 @@ coverY: 0
 >
 > Subjek: Corong pengeras suara sudah melihat bahtera sebelum mataku.
 >
-> Pesan:
+> Pesan:\
 > Corong pengeras suara buatanku menangkap sesuatu dari arah laut. Aku belum melihat [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), tapi corong pengeras suara sudah bergetar seperti orang yang mendengar namanya dipanggil dari masa lalu.
 >
 > [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) berkata kami harus menyiapkan **Dermaga**. Penyintas perempuan itu berkata kami harus menyiapkan air. Anak-anak berkata kami harus menyiapkan pisang. Aku berkata kami harus menyiapkan corong pengeras suara yang kedua.
 >
 > Semua orang mengabaikanku. Tapi aku tetap membuat corong pengeras suara yang kedua. Sejarah akan berterima kasih. Atau setidaknya sejarah akan mendengar lebih keras.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2502,7 +2502,7 @@ coverY: 0
 >
 > Subjek: Super-daratan, tapi jangan genit dulu.
 >
-> Pesan:
+> Pesan:\
 > Aku sudah hampir yakin. Aku menulis "hampir" agar [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak menatapku seperti aku baru saja membuka lumbung untuk tanda palsu.
 >
 > [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) mungkin bukan pulau biasa. Ia mungkin tubuh besar dari banyak [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Bukan menyatu seperti kerajaan menaklukkan wilayah. Menyatu seperti luka-luka lama saling menempel, tidak selalu indah, tapi cukup kuat untuk menahan kaki.
@@ -2517,19 +2517,19 @@ coverY: 0
 >
 > Yang pertama terlihat adalah pisang. Itu bagus. Dunia baru kadang harus memakai kulit kuning agar manusia tidak langsung mengeluarkan pidato.
 >
-> ---
+> ***
 >
 > Pesan Menuju **Dermaga**...
 >
 > Tanggal Meleleh: 22 Januari 2023 (22 Januari 2023 B.M.)
 >
-> Pengirim: [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> Pengirim: [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Penerjemah: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
 > Subjek: Bahtera menggesakan diri.
 >
-> Pesan:
+> Pesan:\
 > Kami sudah mengubah arah.
 >
 > Tidak semua setuju. Itu bagus. Kalau semua setuju terlalu cepat, biasanya ada yang belum mendengar pertanyaannya.
@@ -2542,7 +2542,7 @@ coverY: 0
 >
 > Tapi di depan, corong pengeras suara itu terus memanggil. Suaranya jelek. Untungnya jelek tidak berarti salah.
 >
-> ---
+> ***
 >
 > Potongan Kertas Dari Dek Bahtera...
 >
@@ -2552,7 +2552,7 @@ coverY: 0
 >
 > Subjek: Kalau sampai nanti...
 >
-> Pesan:
+> Pesan:\
 > Kalau sampai nanti, aku ingin turun pelan-pelan. Aku tidak ingin mencium tanah. Aku takut tanahnya tidak suka.
 >
 > Kalau sampai nanti, aku ingin bertanya dulu kepada petani apakah ada cara benar untuk berdiri.
@@ -2561,7 +2561,7 @@ coverY: 0
 >
 > Tidak usah tulis namaku. Kalau aku tenggelam sebelum sampai, aku tidak ingin catatan ini terdengar terlalu sedih.
 >
-> ---
+> ***
 >
 > Pesan Dari Sebuah **Dermaga**...
 >
@@ -2571,7 +2571,7 @@ coverY: 0
 >
 > Subjek: Kami belum selesai, tapi kalian boleh datang.
 >
-> Pesan:
+> Pesan:\
 > **Dermaga** belum selesai. Kalau kalian menunggu kami menyelesaikannya dengan sempurna, mungkin kalian akan tiba saat kami sudah terlalu sibuk berdebat warna papan. Jadi datanglah.
 >
 > Ada jalur turun. Ada air. Ada lumbung, tapi jangan langsung ke sana.
@@ -2586,7 +2586,7 @@ coverY: 0
 >
 > Datanglah ke **Dermaga**. Jangan datang sebagai penakluk. Jangan datang sebagai pembeli pertama. Jangan datang sebagai orang yang ingin memberi nama baru kepada semua hal yang sudah belajar hidup sebelum kalian sampai. Datanglah seperti orang yang masih punya tangan untuk membantu.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2596,7 +2596,7 @@ coverY: 0
 >
 > Subjek: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) terdengar lagi, tapi jangan panik.
 >
-> Pesan:
+> Pesan:\
 > Pesan [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) hari ini terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) yang sedang pura-pura menjadi papan **Dermaga**.
 >
 > Aku tahu itu kalimat yang tidak akan membantu siapa pun yang ingin dokumentasi bersih. Tapi memang begitu bunyinya.
@@ -2605,7 +2605,7 @@ coverY: 0
 >
 > Aku tidak akan menyelesaikan misteri ini sekarang. Beberapa gema harus dibiarkan memantul sampai buahnya matang. Kalau tidak sabar, makan pisang dulu. Tapi jangan yang untuk ditanam.
 >
-> ---
+> ***
 >
 > Corong Pengeras Suara Pertama...
 >
@@ -2615,7 +2615,7 @@ coverY: 0
 >
 > Subjek: Bahtera terlihat.
 >
-> Pesan:
+> Pesan:\
 > Bahtera terlihat.
 >
 > Ulangi.
@@ -2638,7 +2638,7 @@ coverY: 0
 >
 > [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), aku serius.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2648,7 +2648,7 @@ coverY: 0
 >
 > Subjek: Bahtera menyentuh daratan.
 >
-> Pesan:
+> Pesan:\
 > Hari ini [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tiba di [**Dermaga BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
 > Aku tidak menulis "berlabuh" dulu, karena yang terjadi tidak seanggun kata itu. Bahtera lebih mirip mendamparkan diri dengan sisa tenaga yang sudah terlalu lama dipinjam dari doa, tali, kayu, dan keras kepala. Gelombang mendorong dari belakang. **Dermaga** menahan dari depan. Tali pertama putus. Tali kedua hampir menyeret tiga orang. Tali ketiga berhasil, mungkin karena anak-anak ikut berteriak seolah-olah tali bisa malu kalau gagal di depan mereka.
@@ -2667,7 +2667,7 @@ coverY: 0
 >
 > Tidak ada yang punya jawaban lebih baik.
 >
-> ---
+> ***
 >
 > Pesan Dari Papan Kecil...
 >
@@ -2677,7 +2677,7 @@ coverY: 0
 >
 > Subjek: Urutan turun.
 >
-> Pesan:
+> Pesan:\
 > Yang hidup turun dulu. Yang terluka turun duluan dari yang sok kuat.
 >
 > Anak-anak jangan dilepas.
@@ -2694,7 +2694,7 @@ coverY: 0
 >
 > Kalau bingung, tanya [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kalau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berbeda jawaban, berarti pertanyaannya bagus.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2704,12 +2704,12 @@ coverY: 0
 >
 > Subjek: Bahtera selesai menjadi bahtera.
 >
-> Pesan:
+> Pesan:\
 > Setelah semua yang harus diturunkan selesai diturunkan, [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengeluarkan suara yang membuat semua orang berhenti berbicara.
 >
 > Bukan ledakan. Bukan patah yang marah. Bukan suara benda yang kalah. Lebih seperti napas panjang dari sesuatu yang akhirnya diizinkan berhenti memaksa dirinya kuat.
 >
-> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan Penjaga Pohon Pisang berkata, "*Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan.*"
+> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan-perempuan penjaga pohon pisang berkata, "*Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan.*"
 >
 > Maka mereka berhenti. Bahtera runtuh pelan-pelan. Tidak tenggelam. Tidak hilang. Tidak kalah. Ia selesai menjadi bahtera.
 >
@@ -2717,7 +2717,7 @@ coverY: 0
 >
 > Hari ini, biarkan bahtera menjadi saksi. Besok, kita pikirkan bagaimana cara berterima kasih kepada runtuhan bahtera itu.
 >
-> ---
+> ***
 >
 > Lipatan Daun Pisang...
 >
@@ -2727,14 +2727,14 @@ coverY: 0
 >
 > Subjek: 2020???
 >
-> Pesan:
+> Pesan:\
 > Di ujung **Dermaga**, seseorang menulis angka **2020** di daun pisang. Lalu melipat daunnya. Lalu menyelipkannya di antara catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
 > Ketika ditanya, semua [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menunjuk [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain.
 >
 > Ini tidak membantu. Tapi begitulah kami.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2744,7 +2744,7 @@ coverY: 0
 >
 > Subjek: Jangan hitung semua [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) hari ini.
 >
-> Pesan:
+> Pesan:\
 > Beberapa orang mulai menghitung kami lagi.
 >
 > Tolong jangan.
@@ -2757,7 +2757,7 @@ coverY: 0
 >
 > Jangan paksa bagian ini menjadi daftar. Ini bagian petani. Bahkan misteri pun harus menunggu musimnya.
 >
-> ---
+> ***
 >
 > Pesan Dari Seorang Perempuan...
 >
@@ -2767,7 +2767,7 @@ coverY: 0
 >
 > Subjek: Petani bukan yang paling dulu tiba di sini.
 >
-> Pesan:
+> Pesan:\
 > Banyak yang bertanya kapan mereka boleh disebut petani.
 >
 > Aku ingin menjawab setelah sarapan. Mereka bertanya sebelum sarapan. Itu sebabnya jawaban pertamaku mungkin sedikit galak.
@@ -2792,7 +2792,7 @@ coverY: 0
 >
 > Kalau pertanyaan itu membuat kalian tidak nyaman, bagus. Tanah juga tidak nyaman ketika pertama kali diinjak oleh orang yang baru berhenti tenggelam.
 >
-> ---
+> ***
 >
 > Corong Pengeras Suara Kedua...
 >
@@ -2802,10 +2802,10 @@ coverY: 0
 >
 > Subjek: Corong pengeras suara kedua berguna.
 >
-> Pesan:
+> Pesan:\
 > Corong pengeras suara kedua berguna. Aku hanya ingin itu tercatat.
 >
-> Semua orang yang dulu mengabaikanku sekarang pura-pura sibuk mengangkat pisang.
+> Semua orang yang dulu mengabaikanku sekarang disibukkan dengan mengangkat pisang.
 >
 > Tidak apa-apa. Aku memaafkan mereka dengan suara keras.
 >
@@ -2815,7 +2815,7 @@ coverY: 0
 >
 > Ini pelajaran pertama setelah **Dermaga**: daratan luas bisa membuat orang tersesat tanpa tenggelam.
 >
-> ---
+> ***
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
@@ -2825,7 +2825,7 @@ coverY: 0
 >
 > Subjek: Setelah bahtera, kami belajar berdiri.
 >
-> Pesan:
+> Pesan:\
 > Sebelumnya aku menutup catatan tentang pintu tanpa menutup semesta. Kali ini aku akan menutup catatan tentang petani tanpa menutup daratannya. Atau mungkin menutup catatan tentang daratan tanpa menutup petaninya. Aku lupa mana yang terdengar lebih misterius. Kalau kalian bingung, jangan khawatir. Beberapa misteri memang hanya kalimat yang belum sarapan.
 >
 > Sudah tiga hari sejak [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendamparkan diri di [**Dermaga BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
@@ -2856,7 +2856,7 @@ coverY: 0
 >
 > Jangan tertawa terlalu keras pada orang yang baru belajar berdiri, karena mungkin kemarin kalian juga muntah setelah mencium tanah.
 >
-> Dan jika seseorang masih memanggil dari laut, jangan bertanya dulu apakah ia layak menjadi petani. Lemparkan tali. Tanyakan namanya setelah ia tidak lagi tenggelam.
+> Dan jika seseorang masih memanggil dari gelombang luas samudera [**DARATAN MELELEH**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), jangan bertanya dulu apakah ia layak menjadi petani. Lemparkan tali. Tanyakan namanya setelah ia tidak lagi tenggelam.
 
 ***
 

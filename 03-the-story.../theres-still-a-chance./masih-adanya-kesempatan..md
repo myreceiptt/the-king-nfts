@@ -1905,7 +1905,7 @@ coverY: 0
 
 > Pesan Dari Sekoci...
 >
-> Tanggal Meleleh: Setelah 21 Desember 2022 (21 Desember 2022 B.M.)
+> Tanggal Meleleh: 22 Desember 2022 (22 Desember 2022 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -1926,7 +1926,7 @@ coverY: 0
 >
 > Potongan Pesan Pertama...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 23 Desember 2022 (23 Desember 2022 B.M.)
 >
 > Sumber: Selembar daun kering yang dibawa seekor burung.
 >
@@ -1935,7 +1935,7 @@ coverY: 0
 > Pesan:
 > Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut **Amanda**, nanti kalian lupa bertanya namaku.*"
+> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), nanti kalian lupa bertanya namaku.*"
 >
 > Aku tidak punya jawaban bagus.
 >
@@ -1949,7 +1949,7 @@ coverY: 0
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 24 Desember 2022 (24 Desember 2022 B.M.)
 >
 > Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -1970,7 +1970,7 @@ coverY: 0
 >
 > Potongan Pesan Kedua...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 25 Desember 2022 (25 Desember 2022 B.M.)
 >
 > Pengirim: Seorang Penyintas Perempuan
 >
@@ -1991,7 +1991,7 @@ coverY: 0
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 26 Desember 2022 (26 Desember 2022 B.M.)
 >
 > Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2010,7 +2010,7 @@ coverY: 0
 >
 > Pesan Seorang Penyintas Perempuan...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 27 Desember 2022 (27 Desember 2022 B.M.)
 >
 > Lokasi: Daratan yang belum mau disebut pulau.
 >
@@ -2033,7 +2033,7 @@ coverY: 0
 >
 > Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 28 Desember 2022 (28 Desember 2022 B.M.)
 >
 > Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2050,7 +2050,7 @@ coverY: 0
 >
 > Pesan Dalam Botol Kecap...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 29 Desember 2022 (29 Desember 2022 B.M.)
 >
 > Sumber: Botol kecap tanpa kecap.
 >
@@ -2069,20 +2069,20 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 30 Desember 2022 (30 Desember 2022 B.M.)
 >
 > Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
 > Subjek: Nama yang terdengar lucu kadang lebih aman.
 >
 > Pesan:
-> Beberapa penumpang tidak suka nama **BANANOW LAND** karena terdengar terlalu lucu untuk sebuah daratan setelah kiamat. Mereka ingin nama yang lebih besar. Lebih berat. Lebih seperti bangsa lama memberi nama sesuatu sebelum mulai mengklaimnya.
+> Beberapa penumpang tidak suka nama [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) karena terdengar terlalu lucu untuk sebuah daratan setelah kiamat. Mereka ingin nama yang lebih besar. Lebih berat. Lebih seperti bangsa lama memberi nama sesuatu sebelum mulai mengklaimnya.
 >
 > Aku tidak setuju. Nama yang terlalu besar sering membuat manusia merasa berhak menjadi besar juga. Nama yang terlalu serius sering mengundang orang-orang yang suka berdiri di atas batu lalu menunjuk-nunjuk arah seperti semua arah menunggu telunjuk mereka.
 >
-> **BANANOW LAND** terdengar seperti buah dan waktu. Seperti orang yang sedang lapar tapi masih bisa bercanda. Seperti anak-anak yang tidak sabar menunggu orang dewasa selesai rapat. Seperti daratan yang berkata, "*Kalau kalian ingin menjadi makhluk baru, mungkin jangan mulai dengan nama yang membuat kalian kaku.*"
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) terdengar seperti buah dan waktu. Seperti orang yang sedang lapar tapi masih bisa bercanda. Seperti anak-anak yang tidak sabar menunggu orang dewasa selesai rapat. Seperti daratan yang berkata, "*Kalau kalian ingin menjadi makhluk baru, mungkin jangan mulai dengan nama yang membuat kalian kaku.*"
 >
 > Catat dulu: daratan itu mulai punya nama. Tapi jangan langsung membuat bendera.
 >
@@ -2090,7 +2090,7 @@ coverY: 0
 >
 > Pesan Dari Lumbung Kecil...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 31 Desember 2022 (31 Desember 2022 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2101,7 +2101,7 @@ coverY: 0
 >
 > Jangan tertawa. Lumbungnya memang kecil. Bahkan satu peti basah di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mungkin lebih besar daripada lumbung pertama kami. Tapi di dalamnya ada hal-hal yang tidak boleh hilang: tunas, buah yang belum dibagi, catatan cara menanam, simpul tali, dan tanda untuk membedakan mana yang boleh dipetik, mana yang harus ditunggu.
 >
-> Lalu sebuah tanda datang. Bentuknya seperti bantuan. Suaranya seperti orang yang sudah mengenal kami. Ia tahu nama **BANANOW LAND**. Ia tahu tentang pohon pisang. Ia bahkan tahu cara menyebut [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tanpa terdengar seperti orang asing.
+> Lalu sebuah tanda datang. Bentuknya seperti bantuan. Suaranya seperti orang yang sudah mengenal kami. Ia tahu nama [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). Ia tahu tentang pohon pisang. Ia bahkan tahu cara menyebut [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tanpa terdengar seperti orang asing.
 >
 > Tanda itu berkata ia bisa membantu menjaga lumbung. Kami membukakan simpul. Sebagian benih hilang. Sebagian catatan hilang. Beberapa tunas yang belum waktunya dicabut lenyap dari tempatnya.
 >
@@ -2111,9 +2111,9 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 1 Januari 2023 (1 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2134,7 +2134,7 @@ coverY: 0
 >
 > Pesan Pada Kain Putih Pembungkus Pohon Pisang...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 2 Januari 2023 (2 Januari 2023 B.M.)
 >
 > Pengirim: Seorang Penyintas Perempuan
 >
@@ -2151,7 +2151,7 @@ coverY: 0
 >
 > Suara Dari Arah Barat...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 3 Januari 2023 (3 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2170,7 +2170,7 @@ coverY: 0
 >
 > Potongan Gema Yang Dipulihkan...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 4 Januari 2023 (4 Januari 2023 B.M.)
 >
 > Penanda Gema: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
@@ -2189,7 +2189,7 @@ coverY: 0
 >
 > Pesan Dari Corong Pengeras Suara...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 5 Januari 2023 (5 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2204,20 +2204,20 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 6 Januari 2023 (6 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
 > Subjek: Dua panggilan mungkin satu daratan.
 >
 > Pesan:
-> Pesan **Penumpang ROTY BROI (ID 410)** datang dari arah yang seharusnya berbeda dengan pesan **Penumpang ROTY BROI (ID 498)**. Itu membuat beberapa penumpang senang karena mengira kami menemukan dua pulau.
+> Pesan [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) datang dari arah yang seharusnya berbeda dengan pesan [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Itu membuat beberapa penumpang senang karena mengira kami menemukan dua pulau.
 >
 > Aku tidak langsung senang. Senang yang terlalu cepat sering malas menghitung.
 >
-> Aku membandingkan arah angin, waktu pesan, jenis pasir yang menempel pada kain, bentuk daun yang digambarkan, suara burung, dan kebiasaan gelombang saat pesan tiba. Aku juga membandingkan cara mereka berdua menyebut tanah. **Penumpang ROTY BROI (ID 498)** menyebutnya seperti orang yang hampir memetik terlalu cepat. **Penumpang ROTY BROI (ID 410)** menyebutnya seperti orang yang hampir mati karena tidak bisa memberi kabar.
+> Aku membandingkan arah angin, waktu pesan, jenis pasir yang menempel pada kain, bentuk daun yang digambarkan, suara burung, dan kebiasaan gelombang saat pesan tiba. Aku juga membandingkan cara mereka berdua menyebut tanah. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menyebutnya seperti orang yang hampir memetik terlalu cepat. [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menyebutnya seperti orang yang hampir mati karena tidak bisa memberi kabar.
 >
 > Dua luka berbeda. Bau tanahnya sama. Catat dulu: mungkin mereka tidak menemukan dua pulau. Mungkin mereka menyentuh dua sisi dari daratan yang sama.
 >
@@ -2227,7 +2227,7 @@ coverY: 0
 >
 > Sebuah Pesan Pendek...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 7 Januari 2023 (7 Januari 2023 B.M.)
 >
 > Sumber: Pesan dalam saset kopi bekas.
 >
@@ -2252,7 +2252,7 @@ coverY: 0
 >
 > Suara Dari Arah Barat...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 8 Januari 2023 (8 Januari 2023 B.M.)
 >
 > Sumber: Suara hangat dari corong pengeras suara.
 >
@@ -2267,9 +2267,9 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 9 Januari 2023 (9 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 14)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2284,17 +2284,17 @@ coverY: 0
 >
 > Aku hanya menulis satu hal: daratan yang bisa membuat anak-anak bertanya tentang halaman mungkin lebih berbahaya bagi kesedihan daripada daratan yang hanya memamerkan pegunungan.
 >
-> Sudah. Aku pergi. Jangan terlalu merindukanku. Nanti catatan ini jadi tidak objektif. Padahal sejak kapan **Amanda** objektif?
+> Sudah. Aku pergi. Jangan terlalu merindukanku. Nanti catatan ini jadi tidak objektif. Padahal sejak kapan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) objektif?
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 10 Januari 2023 (10 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
-> Subjek: Ini mulai terdengar seperti **BANANOW LAND**.
+> Subjek: Ini mulai terdengar seperti [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
 > Pesan:
 > Sekarang pesan-pesan dari daratan mulai berantakan dengan cara yang sehat.
@@ -2303,7 +2303,7 @@ coverY: 0
 >
 > Ini mulai terdengar seperti tempat yang hidup.
 >
-> Tempat mati biasanya rapi. Tempat hidup berantakan, tetapi berantakannya punya arah. Mungkin itu sebabnya **BANANOW LAND** tidak terdengar seperti kerajaan. Ia terdengar seperti rumah yang terlalu besar, dapur yang belum selesai, kebun yang menegur orang lapar, dan halaman tempat anak-anak berlari sebelum orang dewasa sepakat apakah halaman itu aman.
+> Tempat mati biasanya rapi. Tempat hidup berantakan, tetapi berantakannya punya arah. Mungkin itu sebabnya [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) tidak terdengar seperti kerajaan. Ia terdengar seperti rumah yang terlalu besar, dapur yang belum selesai, kebun yang menegur orang lapar, dan halaman tempat anak-anak berlari sebelum orang dewasa sepakat apakah halaman itu aman.
 >
 > Aku suka. Aku tidak bilang percaya. Aku bilang suka. Itu beda, walaupun beberapa penumpang yang sudah lama di bahtera tampaknya lupa bahwa suka tidak harus langsung menjadi sumpah.
 >
@@ -2311,7 +2311,7 @@ coverY: 0
 >
 > Pesan Di Sebuah Papan...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 11 Januari 2023 (11 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2322,13 +2322,13 @@ coverY: 0
 >
 > Kalau ini pulau, pulau ini terlalu banyak menahan rahasia. Kalau ini daratan, daratan ini pernah dipaksa menyatu dengan sesuatu yang besar.
 >
-> Aku bukan pembaca peta yang tidak mau mengaku peta. Aku hanya menulis apa yang kakiku takutkan: tanah ini tidak kecil.
+> Aku bukan pembaca peta. Aku hanya menulis apa yang kakiku takutkan: tanah ini tidak kecil.
 >
 > ---
 >
 > Pesan Dari Teluk Yang Menahan Napas...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 12 Januari 2023 (12 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2347,7 +2347,7 @@ coverY: 0
 >
 > Pesan Dari Orang Yang Berjalan Terlalu Jauh...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 13 Januari 2023 (13 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2362,9 +2362,9 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 14 Januari 2023 (14 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2375,11 +2375,11 @@ coverY: 0
 >
 > Ini bukan banyak pulau. Atau setidaknya, bukan lagi banyak pulau seperti yang dulu kami kira.
 >
-> **Penumpang ROTY BROI (ID 498)** menemukan pohon pisang. **Penumpang ROTY BROI (ID 410)** menemukan pantai yang membuatnya membangun corong pengeras suara. **Penumpang ROTY BROI (ID 361)** menemukan gunung seperti jahitan. **Penumpang ROTY BROI (ID 121)** menemukan teluk seperti mulut. **Penumpang ROTY BROI (ID 37)** berjalan tiga hari dan hanya menemukan egonya sendiri kelelahan.
+> [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menemukan pohon pisang. [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menemukan pantai yang membuatnya membangun corong pengeras suara. [**Penumpang ROTY BROI (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menemukan gunung seperti jahitan. [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menemukan teluk seperti mulut. [**Penumpang ROTY BROI (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) berjalan tiga hari dan hanya menemukan egonya sendiri kelelahan.
 >
 > Semuanya mengira berdiri di tempat berbeda. Mungkin benar. Tapi berbeda tidak selalu berarti terpisah.
 >
-> Pola anginnya menyambung. Bau tanahnya menyambung. Burung yang disebut **Penumpang ROTY BROI (ID 410)** muncul dalam catatan **Penumpang ROTY BROI (ID 121)**. Bayangan gunung yang diceritakan **Penumpang ROTY BROI (ID 361)** terlihat sangat jauh dari catatan **Penumpang ROTY BROI (ID 37)**. Jenis pisang yang ditemukan **Penumpang ROTY BROI (ID 498)** muncul lagi sebagai kulit kering di botol yang dikirim dari teluk.
+> Pola anginnya menyambung. Bau tanahnya menyambung. Burung yang disebut [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) muncul dalam catatan [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Bayangan gunung yang diceritakan [**Penumpang ROTY BROI (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) terlihat sangat jauh dari catatan [**Penumpang ROTY BROI (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Jenis pisang yang ditemukan [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) muncul lagi sebagai kulit kering di botol yang dikirim dari teluk.
 >
 > Kalau tiga orang berdiri di tiga pantai berbeda dan semuanya mengaku menemukan pulau pertama, mungkin masalahnya bukan pada jumlah pulau. Mungkin kaki mereka terlalu kecil untuk memahami ukuran daratan.
 >
@@ -2387,7 +2387,7 @@ coverY: 0
 >
 > Potongan Gema Yang Dipulihkan...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 15 Januari 2023 (15 Januari 2023 B.M.)
 >
 > Penanda Gema: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
@@ -2408,7 +2408,7 @@ coverY: 0
 >
 > Tulisan Di Papan Lumbung...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 16 Januari 2023 (16 Januari 2023 B.M.)
 >
 > Sumber: Papan yang tulisannya diganti empat kali.
 >
@@ -2421,7 +2421,7 @@ coverY: 0
 >
 > 2345 bukan jumlah orang baik. Tolong jangan terlalu percaya angka seperti itu.
 >
-> 2345 adalah jumlah mereka yang hari ini mau ikut menjaga sesuatu di **BANANOW LAND**.
+> 2345 adalah jumlah mereka yang hari ini mau ikut menjaga sesuatu di [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
 > Ada yang menjaga pohon. Ada yang menjaga air. Ada yang menjaga corong pengeras suara agar tidak dipakai berteriak tanpa isi.
 >
@@ -2433,9 +2433,9 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 17 Januari 2023 (17 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2452,7 +2452,7 @@ coverY: 0
 >
 > Pesan Dari Sebuah **Dermaga**...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 18 Januari 2023 (18 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2463,7 +2463,7 @@ coverY: 0
 >
 > Jangan bayangkan pelabuhan besar. Jangan bayangkan gerbang megah. Jangan bayangkan patung siapa pun, apalagi patungku. Kalau suatu hari ada patungku di sini, tolong dorong ke laut sebelum ia belajar bicara.
 >
-> **Dermaga** ini dibuat dari sisa sekoci, kayu yang diseret gelombang, batu yang bisa ditata, tali dari serat pohon, dan beberapa bagian yang dikumpulkan **Penumpang ROTY BROI (ID 410)** sambil terus menjelaskan bahwa corong pengeras suara harus ditempatkan lebih tinggi. Ia benar, tapi ia terlalu sering mengatakan bahwa ia benar tapi ragu kalau menjadi satu-satunya yang benar.
+> **Dermaga** ini dibuat dari sisa sekoci, kayu yang diseret gelombang, batu yang bisa ditata, tali dari serat pohon, dan beberapa bagian yang dikumpulkan [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) sambil terus menjelaskan bahwa corong pengeras suara harus ditempatkan lebih tinggi. Ia benar, tapi ia terlalu sering mengatakan bahwa ia benar, padahal ia sendiri ragu menjadi satu-satunya yang benar.
 >
 > **Dermaga** ini bukan untuk membuat semua orang datang. **Dermaga** ini untuk membuat kedatangan tidak langsung menjadi kerusakan.
 >
@@ -2479,33 +2479,33 @@ coverY: 0
 >
 > Pesan Dari Corong Pengeras Suara...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 20 Januari 2023 (20 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Subjek: Corong pengeras suara sudah melihat bahtera sebelum mataku.
 >
 > Pesan:
-> Corong pengeras suara buatanku menangkap sesuatu dari arah laut. Tapi aku belum melihat [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), tapi corong pengeras suara sudah bergetar seperti orang yang mendengar namanya dipanggil dari masa lalu.
+> Corong pengeras suara buatanku menangkap sesuatu dari arah laut. Aku belum melihat [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), tapi corong pengeras suara sudah bergetar seperti orang yang mendengar namanya dipanggil dari masa lalu.
 >
-> **Penumpang ROTY BROI (ID 498)** berkata kami harus menyiapkan **Dermaga**. Penyintas perempuan itu berkata kami harus menyiapkan air. Anak-anak berkata kami harus menyiapkan pisang. Aku berkata kami harus menyiapkan corong pengeras suara yang kedua.
+> [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) berkata kami harus menyiapkan **Dermaga**. Penyintas perempuan itu berkata kami harus menyiapkan air. Anak-anak berkata kami harus menyiapkan pisang. Aku berkata kami harus menyiapkan corong pengeras suara yang kedua.
 >
 > Semua orang mengabaikanku. Tapi aku tetap membuat corong pengeras suara yang kedua. Sejarah akan berterima kasih. Atau setidaknya sejarah akan mendengar lebih keras.
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 21 Januari 2023 (21 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
 > Subjek: Super-daratan, tapi jangan genit dulu.
 >
 > Pesan:
-> Aku sudah hampir yakin. Aku menulis "hampir" agar **Amanda (ID 6)** tidak menatapku seperti aku baru saja membuka lumbung untuk tanda palsu.
+> Aku sudah hampir yakin. Aku menulis "hampir" agar [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak menatapku seperti aku baru saja membuka lumbung untuk tanda palsu.
 >
-> **BANANOW LAND** mungkin bukan pulau biasa. Ia mungkin tubuh besar dari banyak [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Bukan menyatu seperti kerajaan menaklukkan wilayah. Menyatu seperti luka-luka lama saling menempel, tidak selalu indah, tapi cukup kuat untuk menahan kaki.
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) mungkin bukan pulau biasa. Ia mungkin tubuh besar dari banyak [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Bukan menyatu seperti kerajaan menaklukkan wilayah. Menyatu seperti luka-luka lama saling menempel, tidak selalu indah, tapi cukup kuat untuk menahan kaki.
 >
 > Gunung-gunungnya seperti jahitan. Teluknya seperti napas yang ditahan. Pantainya seperti bekas batas yang lupa menjadi batas.
 >
@@ -2521,7 +2521,7 @@ coverY: 0
 >
 > Pesan Menuju **Dermaga**...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 22 Januari 2023 (22 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2536,7 +2536,7 @@ coverY: 0
 >
 > Beberapa takut daratan itu jebakan. Beberapa takut bahtera tidak sanggup sampai. Beberapa takut kalau sampai nanti mereka tidak tahu harus menjadi apa. Di bahtera, semua orang setidaknya tahu cara menjadi penumpang. Di daratan, kata penumpang mulai kehabisan tempat duduk.
 >
-> Kami menggesakan diri bukan karena yakin sepenuhnya. Kami menggesakan diri karena pesan dari **BANANOW LAND** tidak terdengar seperti surga. Ia terdengar seperti tempat yang sedang belajar melindungi diri tanpa berubah menjadi benteng. Itu cukup.
+> Kami menggesakan diri bukan karena yakin sepenuhnya. Kami menggesakan diri karena pesan dari [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) tidak terdengar seperti surga. Ia terdengar seperti tempat yang sedang belajar melindungi diri tanpa berubah menjadi benteng. Itu cukup.
 >
 > Gelombang lebih kasar dari biasanya. Mungkin [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) tidak suka kehilangan kami. Mungkin ia tidak peduli. Mungkin kami saja yang terlalu lama menganggap bencana punya perasaan.
 >
@@ -2546,7 +2546,7 @@ coverY: 0
 >
 > Potongan Kertas Dari Dek Bahtera...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 24 Januari 2023 (24 Januari 2023 B.M.)
 >
 > Sumber: Kertas yang hampir dimakan garam.
 >
@@ -2565,7 +2565,7 @@ coverY: 0
 >
 > Pesan Dari Sebuah **Dermaga**...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 25 Januari 2023 (25 Januari 2023 B.M.)
 >
 > Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
@@ -2576,7 +2576,7 @@ coverY: 0
 >
 > Ada jalur turun. Ada air. Ada lumbung, tapi jangan langsung ke sana.
 >
-> Ada corong pengeras suara, jangan berdiri terlalu dekat kalau **Penumpang ROTY BROI (ID 410)** sedang bangga.
+> Ada corong pengeras suara, jangan berdiri terlalu dekat kalau [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) sedang bangga.
 >
 > Ada pohon pisang pertama. Jangan menyentuhnya sebelum bertanya.
 >
@@ -2588,13 +2588,13 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+> Tanggal Meleleh: 26 Januari 2023 (26 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
-> Subjek: **Prof. NOTA** terdengar lagi, tapi jangan panik.
+> Subjek: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) terdengar lagi, tapi jangan panik.
 >
 > Pesan:
 > Pesan [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) hari ini terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) yang sedang pura-pura menjadi papan **Dermaga**.
@@ -2611,7 +2611,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
 >
-> Lokasi: **Dermaga BANANOW LAND**
+> Lokasi: [**Dermaga BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 >
 > Subjek: Bahtera terlihat.
 >
@@ -2634,13 +2634,13 @@ coverY: 0
 >
 > Tidak, jangan jauh sekali. Mereka harus melihat. Tapi pegang tangan mereka.
 >
-> **Penumpang ROTY BROI (ID 410)**, turunkan volume corong.
+> [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), turunkan volume corong.
 >
-> **Penumpang ROTY BROI (ID 410)**, aku serius.
+> [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), aku serius.
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
 > Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
 >
@@ -2649,7 +2649,7 @@ coverY: 0
 > Subjek: Bahtera menyentuh daratan.
 >
 > Pesan:
-> Hari ini [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tiba di **Dermaga BANANOW LAND**.
+> Hari ini [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tiba di [**Dermaga BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
 > Aku tidak menulis "berlabuh" dulu, karena yang terjadi tidak seanggun kata itu. Bahtera lebih mirip mendamparkan diri dengan sisa tenaga yang sudah terlalu lama dipinjam dari doa, tali, kayu, dan keras kepala. Gelombang mendorong dari belakang. **Dermaga** menahan dari depan. Tali pertama putus. Tali kedua hampir menyeret tiga orang. Tali ketiga berhasil, mungkin karena anak-anak ikut berteriak seolah-olah tali bisa malu kalau gagal di depan mereka.
 >
@@ -2692,11 +2692,11 @@ coverY: 0
 >
 > Papan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) jangan dijadikan alas pisang.
 >
-> Kalau bingung, tanya **Amanda**. Kalau **Amanda** berbeda jawaban, berarti pertanyaannya bagus.
+> Kalau bingung, tanya [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kalau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berbeda jawaban, berarti pertanyaannya bagus.
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
 > Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
 >
@@ -2705,11 +2705,11 @@ coverY: 0
 > Subjek: Bahtera selesai menjadi bahtera.
 >
 > Pesan:
-> Setelah semua yang harus diturunkan telah diturunkan, [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengeluarkan suara yang membuat semua orang berhenti berbicara.
+> Setelah semua yang harus diturunkan selesai diturunkan, [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengeluarkan suara yang membuat semua orang berhenti berbicara.
 >
 > Bukan ledakan. Bukan patah yang marah. Bukan suara benda yang kalah. Lebih seperti napas panjang dari sesuatu yang akhirnya diizinkan berhenti memaksa dirinya kuat.
 >
-> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan-perempuan penjaga pohon pisang berkata, "*Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan.*"
+> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan Penjaga Pohon Pisang berkata, "*Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan.*"
 >
 > Maka mereka berhenti. Bahtera runtuh pelan-pelan. Tidak tenggelam. Tidak hilang. Tidak kalah. Ia selesai menjadi bahtera.
 >
@@ -2730,19 +2730,19 @@ coverY: 0
 > Pesan:
 > Di ujung **Dermaga**, seseorang menulis angka **2020** di daun pisang. Lalu melipat daunnya. Lalu menyelipkannya di antara catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Ketika ditanya, semua **Amanda** menunjuk **Amanda** yang lain.
+> Ketika ditanya, semua [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menunjuk [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain.
 >
 > Ini tidak membantu. Tapi begitulah kami.
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
 > Tanggal Meleleh: 29 Januari 2023 (29 Januari 2023 B.M.)
 >
 > Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
-> Subjek: Jangan hitung semua **Amanda** hari ini.
+> Subjek: Jangan hitung semua [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) hari ini.
 >
 > Pesan:
 > Beberapa orang mulai menghitung kami lagi.
@@ -2763,7 +2763,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 29 Januari 2023 (29 Januari 2023 B.M.)
 >
-> Lokasi: **BANANOW LAND**
+> Lokasi: [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 >
 > Subjek: Petani bukan yang paling dulu tiba di sini.
 >
@@ -2817,7 +2817,7 @@ coverY: 0
 >
 > ---
 >
-> Catatan **Amanda**...
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
 >
 > Tanggal Meleleh: 31 Januari 2023 (31 Januari 2023 B.M.)
 >
@@ -2828,7 +2828,7 @@ coverY: 0
 > Pesan:
 > Sebelumnya aku menutup catatan tentang pintu tanpa menutup semesta. Kali ini aku akan menutup catatan tentang petani tanpa menutup daratannya. Atau mungkin menutup catatan tentang daratan tanpa menutup petaninya. Aku lupa mana yang terdengar lebih misterius. Kalau kalian bingung, jangan khawatir. Beberapa misteri memang hanya kalimat yang belum sarapan.
 >
-> Sudah tiga hari sejak [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendamparkan diri di **Dermaga BANANOW LAND**.
+> Sudah tiga hari sejak [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendamparkan diri di [**Dermaga BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
 > Kata "mendamparkan" masih terasa paling jujur.
 >
@@ -2838,7 +2838,7 @@ coverY: 0
 >
 > "Selamat" terlalu cepat.
 >
-> Bahtera datang seperti sesuatu yang telah menggendong terlalu banyak kehidupan dan akhirnya menemukan tempat untuk menurunkannya tanpa merasa bersalah. Setelah itu, semua orang harus belajar bentuk keselamatan yang baru. Di bahtera, keselamatan berarti tetap berada di atas. Di **BANANOW LAND**, keselamatan mulai berarti tahu kapan harus turun, kapan harus menanam, kapan harus membagi, kapan harus diam, dan kapan harus tidak menyentuh lumbung orang lain meskipun kalian merasa sangat membantu.
+> Bahtera datang seperti sesuatu yang telah menggendong terlalu banyak kehidupan dan akhirnya menemukan tempat untuk menurunkannya tanpa merasa bersalah. Setelah itu, semua orang harus belajar bentuk keselamatan yang baru. Di bahtera, keselamatan berarti tetap berada di atas. Di [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), keselamatan mulai berarti tahu kapan harus turun, kapan harus menanam, kapan harus membagi, kapan harus diam, dan kapan harus tidak menyentuh lumbung orang lain meskipun kalian merasa sangat membantu.
 >
 > Para penumpang masih sering dipanggil penumpang. Itu wajar. Nama lama tidak langsung lepas hanya karena kaki menyentuh tanah. Beberapa masih tidur dekat reruntuhan bahtera. Beberapa masih menyimpan tali di bawah kepala. Beberapa berjalan terlalu jauh hanya untuk memastikan daratan tidak tiba-tiba habis. Beberapa belajar menanam, lalu kecewa karena tanaman tidak tumbuh secepat pengumuman. Beberapa mulai bertanya apakah menjadi petani ada votingnya.
 >
@@ -2846,7 +2846,7 @@ coverY: 0
 >
 > Itu jawaban yang cukup baik untuk sementara.
 >
-> **BANANOW LAND** belum kami pahami sepenuhnya. Mungkin ia benar-benar super-daratan. Mungkin ia tubuh baru dari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Mungkin peta-peta lama hanya halaman basah dari sesuatu yang terlalu luas untuk dibaca oleh satu bahtera. Tapi kami tidak perlu memahami seluruh tubuh daratan sebelum belajar tidak merusak bagian yang kami pijak hari ini.
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) belum kami pahami sepenuhnya. Mungkin ia benar-benar super-daratan. Mungkin ia tubuh baru dari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Mungkin peta-peta lama hanya halaman basah dari sesuatu yang terlalu luas untuk dibaca oleh satu bahtera. Tapi kami tidak perlu memahami seluruh tubuh daratan sebelum belajar tidak merusak bagian yang kami pijak hari ini.
 >
 > Itu mungkin pelajaran pertama para petani.
 >

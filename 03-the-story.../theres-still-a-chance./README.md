@@ -242,13 +242,13 @@ coverY: 0
 > Melting Date: February 14, 2022
 >
 > Message:\
-> Hi, I'm the new [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) here. Well, thanks for voting me to be the new Cap'n...
+> Hi, I'm the new [**Cap'n ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) here. Well, thanks for voting me to be the new **Cap'n**...
 >
 > As you know, this isn't the end. Not even close. This is just the beginning. We've lost entire cities. There is no official authority to help. All governments collapsed in all countries. But others have found a rough way to survive their life.
 >
 > Zero-knowledge between each of us, trust-less, and there is only gossip that spreads between us that can be used to confirm and validate who we are. If you out there can survive, survive your life! Help each other no matter the conditions. Be prepared for anything. Our journey has just begun.
 >
-> Although we still don't know where we should go, this ark bought us some time which gave us a chance. Sailing nowhere to survive our life. By vote, we will continue to choose the one as a Captain. By vote, we will always decide how to regulate our activities. By vote, we will always decide where our ark should sail on this journey.
+> Although we still don't know where we should go, this ark bought us some time which gave us a chance. Sailing nowhere to survive our life. By vote, we will continue to choose the one as a **Captain**. By vote, we will always decide how to regulate our activities. By vote, we will always decide where our ark should sail on this journey.
 >
 > P.S. This message is specifically addressed to all [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), my successor. Always remember the fringes in theory that are recorded in all logs, pay attention to whether there are fringes in theory that happen, and put it in your daily log.
 

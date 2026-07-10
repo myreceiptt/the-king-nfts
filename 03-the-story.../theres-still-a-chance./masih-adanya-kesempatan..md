@@ -1903,11 +1903,960 @@ coverY: 0
 
 #### Para Petani di [BANANOW LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 
-> init...
+> Pesan Dari Sekoci...
 >
-> [**(22) BANANOW NFTs**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+> Tanggal Meleleh: Setelah 21 Desember 2022 (21 Desember 2022 B.M.)
 >
-> **...**
+> Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Aku pergi bukan karena membenci bahtera.
+>
+> Pesan:
+> Kalau pesan ini sampai ke [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), tolong jangan langsung menyebutku orang yang tidak tahu terima kasih.
+>
+> Aku pergi bukan karena bahtera gagal menyelamatkan kami. Aku pergi karena peta tidak akan pernah menjadi jalan kalau semua orang hanya menatapnya sambil menunggu orang lain lebih dulu hilang. Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) pernah membawa peta tentang daratan-daratan yang mungkin masih ada setelah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kita menyebutnya [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Kita memilih untuk mencarinya. Tetapi pilihan yang terlalu lama hanya dibicarakan akan berubah menjadi hiasan di dinding yang basah.
+>
+> Aku membawa sedikit bekal, satu potong layar, tali, pisau tumpul, dan ketakutan yang sok setia. Sekoci ini kecil. Gelombang terlalu besar. Aku juga tidak sehebat cerita yang mungkin nanti akan dibuat kalau aku kebetulan selamat.
+>
+> Jadi kalau nanti ada yang bercerita bahwa aku pergi seperti pahlawan, tolong koreksi.
+>
+> Aku pergi sambil gemetar.
+>
+> ---
+>
+> Potongan Pesan Pertama...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Sumber: Selembar daun kering yang dibawa seekor burung.
+>
+> Subjek: Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> Pesan:
+> Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut **Amanda**, nanti kalian lupa bertanya namaku.*"
+>
+> Aku tidak punya jawaban bagus.
+>
+> Namanya tidak kutulis di sini, bukan karena ia tidak punya nama, tapi karena ia memintaku menunggu. Katanya, nama yang ditulis terlalu cepat kadang berubah menjadi pagar.
+>
+> Ia kutemukan di antara sisa-sisa pintu rumah yang mengambang. Atau mungkin ia menemukanku. Kami masih berdebat soal itu. Ia berkata aku datang dari arah yang salah. Aku berkata ia duduk di benda yang hanyut ke arah sekociku. Ia berkata, "*Berarti pintu itu lebih pintar dari kita berdua.*"
+>
+> Aku membaginya air. Ia membaginya arah. Untuk sementara, itu cukup disebut hidup.
+>
+> ---
+>
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Beberapa pesan terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md), padahal bukan.
+>
+> Pesan:
+> Aku perlu mencatat ini sebelum semua orang tambah sok tahu.
+>
+> Beberapa pesan dari sekoci [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md). Bukan suaranya. Bukan namanya. Bukan tubuhnya. Tapi caranya membuat hal kecil menjadi pertanyaan besar. Air menjadi arah. Daun menjadi dokumen. Daratan menjadi proyek yang tidak mau disebut proyek. Keluarga menjadi teknologi paling tua yang belum selesai diuji.
+>
+> Aku tidak berkata pesan itu dikirim oleh [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md). Aku hanya berkata ada gema.
+>
+> Gema itu menyebalkan karena ia membuat semua orang ingin buru-buru mencari sumber. Padahal kadang gema bukan untuk memberi tahu siapa yang berbicara. Kadang gema hanya memberi tahu bahwa ada ruang di antara suara dan pendengaran.
+>
+> Kalau kalian bingung, bagus. Banyak pintu terbuka bukan karena kita paham, tapi karena kita cukup sopan untuk tidak langsung menutupnya.
+>
+> ---
+>
+> Potongan Pesan Kedua...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: Seorang Penyintas Perempuan
+>
+> Subjek: Di sini ramai.
+>
+> Pesan:
+> Ada tempat yang tidak bergoyang.
+>
+> Ada suara tertawa. Ada anak-anak. Ada sesuatu yang disebut tetangga, tapi tidak terdengar seperti orang yang hanya tinggal di sebelah. Tetangga di sini terdengar seperti orang yang masih mau menoleh ketika seseorang jatuh.
+>
+> Ada keluarga. Ada rumah. Ada di sini, di tempat yang tidak malu disebut menyenangkan meskipun dunia sudah pernah berakhir berkali-kali dalam kepala orang-orang yang selamat.
+>
+> Ada nama yang belum utuh tertangkap, [**Na... Na... Now...**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+>
+> Tanahnya tidak menjawab saat dipanggil. Tapi sesuatu di sana seperti melambai.
+>
+> ---
+>
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Pesan:
+> Beberapa penumpang langsung berkata ada pesan dari salah satu [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Beberapa lainnya berkata itu pasti tipu daya penyintas jahat. Satu orang berkata itu terdengar seperti kata "banana" dan langsung meminta jatah makan ditambah. Aku tidak akan menulis namanya karena ia sudah cukup malu setelah semua orang memandangnya.
+>
+> Aku hanya menulis: catat dulu.
+>
+> Jangan langsung menikahi daratan dari suara pertamanya. Jangan juga langsung mencurigainya sebagai jebakan hanya karena ia terdengar menyenangkan. Setelah terlalu lama hidup di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), beberapa orang mulai mengira semua hal yang menyenangkan pasti akan berakhir sebagai lubang. Itu bisa dimengerti, tapi kalau semua hal yang menyenangkan langsung disebut lubang, maka hidup yang tersisa hanya akan menjadi latihan tenggelam yang diperpanjang.
+>
+> Jadi, catat dulu. Ada suara dari daratan. Ada sesuatu yang meriah. Ada kata keluarga. Ada kata tetangga. Ada kata sehat. Ada tawa yang tidak terdengar seperti orang sedang menertawakan kematian.
+>
+> Itu belum cukup untuk disebut keselamatan. Tapi cukup untuk tidak diabaikan.
+>
+> ---
+>
+> Pesan Seorang Penyintas Perempuan...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Lokasi: Daratan yang belum mau disebut pulau.
+>
+> Subjek: Jangan petik semuanya.
+>
+> Pesan:
+> Kami menemukan pohon pisang.
+>
+> Tidak banyak. Jangan bayangkan kebun besar. Jangan bayangkan buah menumpuk sampai orang-orang bisa malas dan tetap kenyang. Hanya beberapa batang. Beberapa daun lebar. Beberapa buah yang menggantung seperti pertanyaan yang bisa dimakan kalau kalian cukup sabar.
+>
+> [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) hampir memetik semuanya. Aku menahan tangannya.
+>
+> Ia berkata ia lapar. Aku percaya. Aku juga lapar. Bahkan tanah pun mungkin lapar setelah semua yang pernah terjadi pada permukaannya. Tapi kalau lapar selalu menjadi alasan pertama, maka daratan baru hanya akan menjadi tempat lama dengan pemandangan berbeda.
+>
+> Kami memetik sedikit. Kami menyisakan lebih banyak. Kami menunggu tunas.
+>
+> Aku tidak tahu apakah itu disebut bertani. Mungkin hanya disebut tidak bodoh dua kali.
+>
+> ---
+>
+> Catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Pohon pisang bukan jawaban.
+>
+> Pesan:
+> Pohon pisang bukan jawaban. Jangan membuatnya menjadi patung. Pohon pisang juga bukan sekadar makanan. Jangan membuatnya menjadi stok. Pohon pisang adalah pertanyaan yang tumbuh pelan-pelan: apakah makhluk yang sudah terlalu lama diselamatkan masih mampu menunggu sesuatu tumbuh tanpa langsung menghabiskannya?
+>
+> Itu pertanyaan yang kasar, sebenarnya. Tapi pohon pisang menanyakannya dengan daun yang sopan, jadi beberapa orang tidak merasa diserang. Bagus. Kadang kebenaran harus memakai daun lebar agar manusia tidak langsung tersinggung.
+>
+> [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) dan penyintas perempuan itu belum tahu bahwa mereka sedang menjadi petani. Mereka hanya sedang belajar tidak mengulang cara lama. Itu lebih baik daripada banyak orang yang sudah memakai gelar besar tapi belum belajar menyisakan tunas.
+>
+> ---
+>
+> Pesan Dalam Botol Kecap...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Sumber: Botol kecap tanpa kecap.
+>
+> Subjek: [**BANANOW**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)?
+>
+> Pesan:
+> Ada anak kecil yang menunjuk buah dan berkata, "*Nana.*"
+>
+> Ada orang dewasa yang berkata, "*Banana.*"
+>
+> Ada orang lain yang berkata, "*Now.*"
+>
+> Lalu semua orang yang terlalu lelah untuk berdebat menyebut tempat ini [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) sampai ada nama yang lebih baik.
+>
+> Nama yang lebih baik belum datang. Mungkin ia tersesat. Atau mungkin nama ini yang lebih dulu menemukan kami.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Nama yang terdengar lucu kadang lebih aman.
+>
+> Pesan:
+> Beberapa penumpang tidak suka nama **BANANOW LAND** karena terdengar terlalu lucu untuk sebuah daratan setelah kiamat. Mereka ingin nama yang lebih besar. Lebih berat. Lebih seperti bangsa lama memberi nama sesuatu sebelum mulai mengklaimnya.
+>
+> Aku tidak setuju. Nama yang terlalu besar sering membuat manusia merasa berhak menjadi besar juga. Nama yang terlalu serius sering mengundang orang-orang yang suka berdiri di atas batu lalu menunjuk-nunjuk arah seperti semua arah menunggu telunjuk mereka.
+>
+> **BANANOW LAND** terdengar seperti buah dan waktu. Seperti orang yang sedang lapar tapi masih bisa bercanda. Seperti anak-anak yang tidak sabar menunggu orang dewasa selesai rapat. Seperti daratan yang berkata, "*Kalau kalian ingin menjadi makhluk baru, mungkin jangan mulai dengan nama yang membuat kalian kaku.*"
+>
+> Catat dulu: daratan itu mulai punya nama. Tapi jangan langsung membuat bendera.
+>
+> ---
+>
+> Pesan Dari Lumbung Kecil...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Tanda palsu masuk.
+>
+> Pesan:
+> Kami membuat lumbung kecil.
+>
+> Jangan tertawa. Lumbungnya memang kecil. Bahkan satu peti basah di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mungkin lebih besar daripada lumbung pertama kami. Tapi di dalamnya ada hal-hal yang tidak boleh hilang: tunas, buah yang belum dibagi, catatan cara menanam, simpul tali, dan tanda untuk membedakan mana yang boleh dipetik, mana yang harus ditunggu.
+>
+> Lalu sebuah tanda datang. Bentuknya seperti bantuan. Suaranya seperti orang yang sudah mengenal kami. Ia tahu nama **BANANOW LAND**. Ia tahu tentang pohon pisang. Ia bahkan tahu cara menyebut [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tanpa terdengar seperti orang asing.
+>
+> Tanda itu berkata ia bisa membantu menjaga lumbung. Kami membukakan simpul. Sebagian benih hilang. Sebagian catatan hilang. Beberapa tunas yang belum waktunya dicabut lenyap dari tempatnya.
+>
+> Penyintas perempuan itu tidak memarahiku. Itu lebih buruk. Kalau ia marah, aku bisa membela diri. Tapi ia hanya duduk di depan lumbung dan berkata, "*Kesempatan palsu sering lebih sopan daripada perampok.*"
+>
+> Jika pesan ini sampai, jangan hanya datang karena kami menemukan daratan. Datanglah karena daratan juga bisa tertipu.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Dompet bisa berupa lumbung.
+>
+> Pesan:
+> Aku tahu beberapa penumpang akan berkata, "*Bagaimana mungkin lumbung tertipu?*"
+>
+> Pertanyaan itu terdengar pintar hanya jika kita lupa bahwa lumbung tidak membuka dirinya sendiri. Selalu ada tangan. Selalu ada percaya. Selalu ada kalimat yang membuat percaya merasa seperti kecerdasan.
+>
+> Di [**Semesta 0101**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), mungkin sesuatu seperti itu disebut dompet. Di [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), hari ini ia disebut lumbung. Jangan terlalu terpaku pada benda. Benda hanya memakai nama yang cocok dengan semestanya.
+>
+> Yang sama adalah ini: jika sesuatu menyimpan akses, nilai, benih, catatan, atau masa depan, maka sesuatu itu akan mengundang tanda palsu.
+>
+> Jadi daratan itu nyata. Bukan karena ia sempurna. Justru karena ia bisa salah membuka pintu.
+>
+> ---
+>
+> Pesan Pada Kain Putih Pembungkus Pohon Pisang...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: Seorang Penyintas Perempuan
+>
+> Subjek: Jangan datang sebagai pahlawan.
+>
+> Pesan:
+> Jika [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendengar kami, jangan datang sebagai pahlawan. Pahlawan sering datang dengan langkah terlalu keras. Tanah yang baru belajar tidak tenggelam tidak suka langkah yang terlalu yakin.
+>
+> Datanglah sebagai saksi. Datanglah sebagai tangan tambahan. Datanglah sebagai orang yang juga pernah salah percaya.
+>
+> Kami tidak butuh orang yang mengejek lumbung kami karena pernah terbuka. Kami butuh orang yang bisa membantu membuat simpul baru tanpa mengubah lumbung menjadi penjara.
+>
+> ---
+>
+> Suara Dari Arah Barat...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Aku menemukan daratan, lalu kehilangan suara.
+>
+> Pesan:
+> Aku menemukan daratan setelah mengarahkan sekociku ke arah yang berbeda.
+>
+> Aku bersorak. Tapi tidak ada yang mendengar. Aku menangis dan gelombang tidak peduli. Aku berlari, lalu jatuh, karena tubuhku lupa cara berurusan dengan tanah yang tidak ikut naik-turun. Setelah itu aku tidak lagi bersorak terlalu keras. Daratan membuat orang terlihat bodoh dengan cara yang sangat sopan.
+>
+> Aku mencoba mengirim pesan ke bahtera tapi sepertinya tidak sampai. Aku mencoba membuat asap. Asapnya malu-malu. Aku mencoba berteriak tapi hanya membuat burung-burung pergi dan pesan tetap di sini.
+>
+> Hari pertama menemukan daratan adalah euforia. Hari kedua adalah pertanyaan yang menampar: apa gunanya menemukan kalau kabarnya ikut terdampar?
+>
+> ---
+>
+> Potongan Gema Yang Dipulihkan...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Penanda Gema: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
+>
+> Sumber: Celah di antara semesta.
+>
+> Subjek: Ada bantuan yang tidak terdengar seperti pertolongan.
+>
+> Pesan:
+> Kadang bantuan datang sebagai pemeriksaan simpul. Kadang bantuan datang sebagai pertanyaan, "*Apa lagi yang hilang?*"
+>
+> Kadang bantuan datang bukan untuk mengambil alih lumbung, tetapi untuk memastikan lubang yang sama tidak menjadi kebiasaan. Kadang bantuan datang dari suara yang jauh, dari tubuh yang berada di semesta lain, dari seseorang yang tidak memegang pisang pertama, tetapi tahu bahwa satu simpul yang salah bisa membuat satu musim gagal.
+>
+> Jika ini terdengar seperti telepon, mungkin itu karena beberapa semesta masih percaya pada suara. Jika ini terdengar seperti catatan teknis, mungkin itu karena masa depan kadang lebih dulu pecah di bagian yang disebut akses. Jika ini terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md), mungkin karena gema memang suka memakai jaket orang lain.
+>
+> ---
+>
+> Pesan Dari Corong Pengeras Suara...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Aku membangun mulut untuk daratan.
+>
+> Pesan:
+> Aku membangun corong pengeras suara. Bentuknya tidak bagus. Kalau ada arsitek dunia lama melihatnya, mungkin ia akan pura-pura pingsan. Corong pengeras suara ini terbuat dari logam bekas, kayu yang belum memutuskan mau menjadi tiang atau kenangan, kulit kerang besar, dan bagian sekoci yang sudah tidak layak disebut sekoci.
+>
+> Bentuknya seperti corong pengeras suara masjid dalam ingatan yang masih basah. Tapi fungsinya bukan memanggil orang untuk membuktikan siapa yang paling dekat dengan langit. Fungsinya sederhana: agar kabar tidak mati terlalu cepat.
+>
+> Hari pertama, corong pengeras suara yang aku bangun hanya memperbesar suara angin. Hari kedua, ia memperbesar suara perutku. Hari ketiga, ia menangkap kata: pisang. Aku langsung percaya bahwa benda jelek ini akan berguna.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Dua panggilan mungkin satu daratan.
+>
+> Pesan:
+> Pesan **Penumpang ROTY BROI (ID 410)** datang dari arah yang seharusnya berbeda dengan pesan **Penumpang ROTY BROI (ID 498)**. Itu membuat beberapa penumpang senang karena mengira kami menemukan dua pulau.
+>
+> Aku tidak langsung senang. Senang yang terlalu cepat sering malas menghitung.
+>
+> Aku membandingkan arah angin, waktu pesan, jenis pasir yang menempel pada kain, bentuk daun yang digambarkan, suara burung, dan kebiasaan gelombang saat pesan tiba. Aku juga membandingkan cara mereka berdua menyebut tanah. **Penumpang ROTY BROI (ID 498)** menyebutnya seperti orang yang hampir memetik terlalu cepat. **Penumpang ROTY BROI (ID 410)** menyebutnya seperti orang yang hampir mati karena tidak bisa memberi kabar.
+>
+> Dua luka berbeda. Bau tanahnya sama. Catat dulu: mungkin mereka tidak menemukan dua pulau. Mungkin mereka menyentuh dua sisi dari daratan yang sama.
+>
+> Hmmm... Jangan tepuk tangan dulu. Aku belum selesai curiga.
+>
+> ---
+>
+> Sebuah Pesan Pendek...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Sumber: Pesan dalam saset kopi bekas.
+>
+> Subjek: Aku tidak tahu cara hidup di atasnya.
+>
+> Pesan:
+> Aku sudah berdiri di daratan selama tujuh hari.
+>
+> Aku masih menyimpan makanan seperti akan tenggelam besok pagi.
+>
+> Aku masih tidur memeluk tali.
+>
+> Aku masih marah kalau orang lain mendekati buah yang kulihat lebih dulu.
+>
+> Aku pikir menemukan daratan akan membuatku menjadi manusia baru.
+>
+> Ternyata aku hanya manusia lama dengan tempat berpijak baru.
+>
+> Tolong jangan tulis namaku.
+>
+> ---
+>
+> Suara Dari Arah Barat...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Sumber: Suara hangat dari corong pengeras suara.
+>
+> Subjek: Ada dua anak.
+>
+> Pesan:
+> Ada rumah di daratan itu, tapi belum punya alamat. Atau itu sesuatu yang sedang belajar menjadi rumah.
+>
+> Ada dua anak yang tidak terlalu peduli apakah daratan ini pulau, kepulauan, super-daratan, atau hasil dari semua peta yang akhirnya lelah berpisah. Mereka lebih peduli apakah pisang yang matang boleh dimakan sekarang atau harus menunggu orang dewasa selesai mencatat.
+>
+> Salah satu dari mereka bertanya apakah [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) punya halaman. Tidak ada yang menjawab. Bagaimana menjelaskan kepada anak-anak bahwa selama ini halaman kami adalah gelombang yang selalu mencoba menelan?
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 14)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Aku hanya lewat.
+>
+> Pesan:
+> Aku tahu ini belum bagianku.
+>
+> Kalau ada yang bertanya mengapa aku menulis di sini, jawab saja: aku lewat dan mencium bau rumah. Sulit bagi sebagian dari kami untuk tidak berhenti ketika ada kata keluarga, anak-anak, dan pisang matang di kalimat yang sama.
+>
+> Tapi aku tidak akan membuka misteri keluarga hari ini.
+>
+> Aku hanya menulis satu hal: daratan yang bisa membuat anak-anak bertanya tentang halaman mungkin lebih berbahaya bagi kesedihan daripada daratan yang hanya memamerkan pegunungan.
+>
+> Sudah. Aku pergi. Jangan terlalu merindukanku. Nanti catatan ini jadi tidak objektif. Padahal sejak kapan **Amanda** objektif?
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Ini mulai terdengar seperti **BANANOW LAND**.
+>
+> Pesan:
+> Sekarang pesan-pesan dari daratan mulai berantakan dengan cara yang sehat.
+>
+> Ada pesan tentang pisang. Ada pesan tentang lumbung yang keliru dibuka. Ada pesan tentang corong pengeras suara yang terlalu keras. Ada pesan dari seseorang yang tidak tahu cara hidup di atas daratan. Ada pesan dari anak-anak yang menamai sesuatu sebelum orang dewasa selesai menyusun istilah. Ada pesan dari orang-orang yang ingin mengambil, lalu malu karena pohon masih ada besoknya.
+>
+> Ini mulai terdengar seperti tempat yang hidup.
+>
+> Tempat mati biasanya rapi. Tempat hidup berantakan, tetapi berantakannya punya arah. Mungkin itu sebabnya **BANANOW LAND** tidak terdengar seperti kerajaan. Ia terdengar seperti rumah yang terlalu besar, dapur yang belum selesai, kebun yang menegur orang lapar, dan halaman tempat anak-anak berlari sebelum orang dewasa sepakat apakah halaman itu aman.
+>
+> Aku suka. Aku tidak bilang percaya. Aku bilang suka. Itu beda, walaupun beberapa penumpang yang sudah lama di bahtera tampaknya lupa bahwa suka tidak harus langsung menjadi sumpah.
+>
+> ---
+>
+> Pesan Di Sebuah Papan...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Gunungnya seperti jahitan.
+>
+> Pesan:
+> Aku melihat gunung. Bukan gunung seperti di buku-buku sebelum bencana. Gunung ini terlalu panjang. Terlalu seperti bekas luka yang menolak hilang. Punggungnya menyambung jauh ke arah yang tidak bisa kulihat habisnya.
+>
+> Kalau ini pulau, pulau ini terlalu banyak menahan rahasia. Kalau ini daratan, daratan ini pernah dipaksa menyatu dengan sesuatu yang besar.
+>
+> Aku bukan pembaca peta yang tidak mau mengaku peta. Aku hanya menulis apa yang kakiku takutkan: tanah ini tidak kecil.
+>
+> ---
+>
+> Pesan Dari Teluk Yang Menahan Napas...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Teluk ini seperti mulut.
+>
+> Pesan:
+> Aku menemukan teluk besar. Bentuknya seperti daratan yang sedang menahan sesuatu agar tidak keluar sekaligus. Di tepinya banyak sisa benda dari dunia lama. Kayu. Kain. Mainan. Tulang. Botol. Potongan logam. Tulisan yang hanya tinggal setengah huruf.
+>
+> Kami hampir menyebut semuanya harta. Lalu hampir menyebut semuanya sampah. Keduanya salah.
+>
+> Di sini, sisa bisa menjadi bahan. Tapi kalau semua sisa langsung disebut bahan, kita lupa bahwa beberapa di antaranya mungkin pernah menjadi rumah seseorang.
+>
+> Kami menaruh beberapa di tempat kering. Kami belum tahu untuk apa. Kami hanya tahu: jangan buang terlalu cepat.
+>
+> ---
+>
+> Pesan Dari Orang Yang Berjalan Terlalu Jauh...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Tiga hari dan tanah belum habis.
+>
+> Pesan:
+> Aku berjalan tiga hari. Tanah belum habis. Aku berjalan bukan untuk mencari sesuatu. Aku berjalan karena sombong. Aku ingin menjadi orang pertama yang tahu ukuran daratan ini.
+>
+> Pada hari kedua, aku lupa jalan pulang. Pada hari ketiga, seorang anak menunjukku dan berkata, "*Om itu tersesat di halaman sendiri.*"
+>
+> Aku tidak tahu mana yang lebih menyakitkan: tersesat atau dipanggil om oleh anak yang benar.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Ini bukan banyak pulau.
+>
+> Pesan:
+> Aku mulai berani menulisnya, meskipun masih dengan pensil yang bisa dihapus kalau daratan ini tiba-tiba mempermalukanku.
+>
+> Ini bukan banyak pulau. Atau setidaknya, bukan lagi banyak pulau seperti yang dulu kami kira.
+>
+> **Penumpang ROTY BROI (ID 498)** menemukan pohon pisang. **Penumpang ROTY BROI (ID 410)** menemukan pantai yang membuatnya membangun corong pengeras suara. **Penumpang ROTY BROI (ID 361)** menemukan gunung seperti jahitan. **Penumpang ROTY BROI (ID 121)** menemukan teluk seperti mulut. **Penumpang ROTY BROI (ID 37)** berjalan tiga hari dan hanya menemukan egonya sendiri kelelahan.
+>
+> Semuanya mengira berdiri di tempat berbeda. Mungkin benar. Tapi berbeda tidak selalu berarti terpisah.
+>
+> Pola anginnya menyambung. Bau tanahnya menyambung. Burung yang disebut **Penumpang ROTY BROI (ID 410)** muncul dalam catatan **Penumpang ROTY BROI (ID 121)**. Bayangan gunung yang diceritakan **Penumpang ROTY BROI (ID 361)** terlihat sangat jauh dari catatan **Penumpang ROTY BROI (ID 37)**. Jenis pisang yang ditemukan **Penumpang ROTY BROI (ID 498)** muncul lagi sebagai kulit kering di botol yang dikirim dari teluk.
+>
+> Kalau tiga orang berdiri di tiga pantai berbeda dan semuanya mengaku menemukan pulau pertama, mungkin masalahnya bukan pada jumlah pulau. Mungkin kaki mereka terlalu kecil untuk memahami ukuran daratan.
+>
+> ---
+>
+> Potongan Gema Yang Dipulihkan...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Penanda Gema: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
+>
+> Sumber: Celah di antara semesta.
+>
+> Subjek: Rilis ulang bukan selalu mengulang dari awal.
+>
+> Pesan:
+> Ada hal-hal yang harus dibuat ulang bukan karena yang pertama palsu.
+>
+> Kadang jalan masuk pertama cukup untuk membuat orang datang, tapi belum cukup untuk membuat mereka tidak tersesat setelah sampai. Kadang undangan pertama cukup untuk memanggil, tapi belum cukup untuk menjaga. Kadang tubuh lama sebuah tempat terlalu kecil untuk niat yang mulai tumbuh di dalamnya. Maka dibuat tubuh baru.
+>
+> Bukan menghapus yang lama. Bukan pura-pura tidak pernah salah. Bukan memulai dari nol seperti orang yang malu punya sejarah. Hanya membuat pintu yang lebih jelas, simpul yang lebih kuat, dan **Dermaga** yang bisa menerima lebih banyak kaki tanpa membuat tanah panik.
+>
+> Jika ini terdengar seperti kontrak, jangan buru-buru menyebutnya kontrak. Jika ini terdengar seperti acara, jangan buru-buru menyebutnya acara. Jika ini terdengar seperti rencana, jangan buru-buru menyebutnya rencana. Beberapa semesta memakai kata yang berbeda untuk hal yang sama: memperbaiki jalan agar yang datang tidak salah mengira pintu sebagai lumbung.
+>
+> ---
+>
+> Tulisan Di Papan Lumbung...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Sumber: Papan yang tulisannya diganti empat kali.
+>
+> Pengirim: Seorang Penyintas Perempuan
+>
+> Subjek: 2345.
+>
+> Pesan:
+> 2345 bukan jumlah pisang dan bukan pula jumlah pohon.
+>
+> 2345 bukan jumlah orang baik. Tolong jangan terlalu percaya angka seperti itu.
+>
+> 2345 adalah jumlah mereka yang hari ini mau ikut menjaga sesuatu di **BANANOW LAND**.
+>
+> Ada yang menjaga pohon. Ada yang menjaga air. Ada yang menjaga corong pengeras suara agar tidak dipakai berteriak tanpa isi.
+>
+> Ada yang menjaga lumbung. Ada yang menjaga anak-anak. Ada yang menjaga orang-orang yang baru turun agar tidak mencium tanah terlalu lama lalu lupa minum.
+>
+> Ada yang menjaga catatan. Ada yang menjaga dirinya sendiri agar tidak kembali menjadi penjarah.
+>
+> Mereka mulai disebut petani. Bukan karena semuanya menanam pisang. Tapi karena semuanya setuju bahwa daratan yang subur akan mati jika hanya dirayakan.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Petani bukan pekerjaan.
+>
+> Pesan:
+> Aku suka cara mereka memakai kata petani. Tidak rapi. Sedikit sembarangan. Agak berbahaya kalau dibawa ke rapat dunia lama. Tapi hidup.
+>
+> Di sana, orang yang menjaga corong pengeras suara bisa disebut petani. Orang yang menjaga lumbung bisa disebut petani. Orang yang mengantar anak-anak menjauh dari tepi air bisa disebut petani. Orang yang menulis kesalahan agar tidak berubah menjadi tradisi juga bisa disebut petani. Bahkan orang yang baru belajar meminta maaf kepada pohon karena hampir memetik terlalu banyak bisa disebut petani, asal setelah itu ia benar-benar menanam.
+>
+> Ini mengganggu beberapa penumpang yang suka definisi rapat. Bagus, sebab beberapa definisi memang perlu diganggu agar tidak berubah menjadi pagar.
+>
+> ---
+>
+> Pesan Dari Sebuah **Dermaga**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Kami membangun tempat berlabuh tanpa membuat daratan panik.
+>
+> Pesan:
+> Kami mulai membangun **Dermaga**.
+>
+> Jangan bayangkan pelabuhan besar. Jangan bayangkan gerbang megah. Jangan bayangkan patung siapa pun, apalagi patungku. Kalau suatu hari ada patungku di sini, tolong dorong ke laut sebelum ia belajar bicara.
+>
+> **Dermaga** ini dibuat dari sisa sekoci, kayu yang diseret gelombang, batu yang bisa ditata, tali dari serat pohon, dan beberapa bagian yang dikumpulkan **Penumpang ROTY BROI (ID 410)** sambil terus menjelaskan bahwa corong pengeras suara harus ditempatkan lebih tinggi. Ia benar, tapi ia terlalu sering mengatakan bahwa ia benar tapi ragu kalau menjadi satu-satunya yang benar.
+>
+> **Dermaga** ini bukan untuk membuat semua orang datang. **Dermaga** ini untuk membuat kedatangan tidak langsung menjadi kerusakan.
+>
+> Di sebelahnya ada tempat mencuci luka. Di belakangnya ada lumbung. Tidak terlalu dekat. Penyintas perempuan yang bersamaku bersikeras. Katanya pendatang yang baru turun jangan langsung disambut oleh buah. Sambut dulu dengan air, nama, dan pertanyaan apakah mereka masih bisa berdiri tanpa berbohong.
+>
+> Kami menanam tanda: **Jangan mengambil sebelum tahu cara menanam kembali.**
+>
+> Tanda itu terlalu panjang. Anak-anak menggantinya dengan: **Petik? Tanam.**
+>
+> Kami kalah. Tanda anak-anak lebih baik.
+>
+> ---
+>
+> Pesan Dari Corong Pengeras Suara...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Corong pengeras suara sudah melihat bahtera sebelum mataku.
+>
+> Pesan:
+> Corong pengeras suara buatanku menangkap sesuatu dari arah laut. Tapi aku belum melihat [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), tapi corong pengeras suara sudah bergetar seperti orang yang mendengar namanya dipanggil dari masa lalu.
+>
+> **Penumpang ROTY BROI (ID 498)** berkata kami harus menyiapkan **Dermaga**. Penyintas perempuan itu berkata kami harus menyiapkan air. Anak-anak berkata kami harus menyiapkan pisang. Aku berkata kami harus menyiapkan corong pengeras suara yang kedua.
+>
+> Semua orang mengabaikanku. Tapi aku tetap membuat corong pengeras suara yang kedua. Sejarah akan berterima kasih. Atau setidaknya sejarah akan mendengar lebih keras.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Super-daratan, tapi jangan genit dulu.
+>
+> Pesan:
+> Aku sudah hampir yakin. Aku menulis "hampir" agar **Amanda (ID 6)** tidak menatapku seperti aku baru saja membuka lumbung untuk tanda palsu.
+>
+> **BANANOW LAND** mungkin bukan pulau biasa. Ia mungkin tubuh besar dari banyak [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Bukan menyatu seperti kerajaan menaklukkan wilayah. Menyatu seperti luka-luka lama saling menempel, tidak selalu indah, tapi cukup kuat untuk menahan kaki.
+>
+> Gunung-gunungnya seperti jahitan. Teluknya seperti napas yang ditahan. Pantainya seperti bekas batas yang lupa menjadi batas.
+>
+> Daratan ini terlalu luas untuk dilihat oleh satu penumpang. Terlalu besar untuk dinamai oleh satu pantai. Terlalu lucu untuk disebut benua dengan wajah serius. Terlalu penting untuk disebut kebun pisang saja.
+>
+> Tapi justru pohon pisanglah yang membuat kami tidak takut.
+>
+> Kalau yang pertama terlihat adalah istana, mungkin kami akan curiga. Kalau yang pertama terlihat adalah bendera, mungkin kami akan muntah. Kalau yang pertama terlihat adalah tambang, mungkin manusia lama akan bangun terlalu cepat.
+>
+> Yang pertama terlihat adalah pisang. Itu bagus. Dunia baru kadang harus memakai kulit kuning agar manusia tidak langsung mengeluarkan pidato.
+>
+> ---
+>
+> Pesan Menuju **Dermaga**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Penerjemah: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Bahtera menggesakan diri.
+>
+> Pesan:
+> Kami sudah mengubah arah.
+>
+> Tidak semua setuju. Itu bagus. Kalau semua setuju terlalu cepat, biasanya ada yang belum mendengar pertanyaannya.
+>
+> Beberapa takut daratan itu jebakan. Beberapa takut bahtera tidak sanggup sampai. Beberapa takut kalau sampai nanti mereka tidak tahu harus menjadi apa. Di bahtera, semua orang setidaknya tahu cara menjadi penumpang. Di daratan, kata penumpang mulai kehabisan tempat duduk.
+>
+> Kami menggesakan diri bukan karena yakin sepenuhnya. Kami menggesakan diri karena pesan dari **BANANOW LAND** tidak terdengar seperti surga. Ia terdengar seperti tempat yang sedang belajar melindungi diri tanpa berubah menjadi benteng. Itu cukup.
+>
+> Gelombang lebih kasar dari biasanya. Mungkin [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) tidak suka kehilangan kami. Mungkin ia tidak peduli. Mungkin kami saja yang terlalu lama menganggap bencana punya perasaan.
+>
+> Tapi di depan, corong pengeras suara itu terus memanggil. Suaranya jelek. Untungnya jelek tidak berarti salah.
+>
+> ---
+>
+> Potongan Kertas Dari Dek Bahtera...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Sumber: Kertas yang hampir dimakan garam.
+>
+> Subjek: Kalau sampai nanti...
+>
+> Pesan:
+> Kalau sampai nanti, aku ingin turun pelan-pelan. Aku tidak ingin mencium tanah. Aku takut tanahnya tidak suka.
+>
+> Kalau sampai nanti, aku ingin bertanya dulu kepada petani apakah ada cara benar untuk berdiri.
+>
+> Kalau sampai nanti, aku ingin melihat pohon pisang. Bukan untuk makan. Untuk memastikan bahwa ada sesuatu yang tumbuh tanpa kami dorong dari belakang.
+>
+> Tidak usah tulis namaku. Kalau aku tenggelam sebelum sampai, aku tidak ingin catatan ini terdengar terlalu sedih.
+>
+> ---
+>
+> Pesan Dari Sebuah **Dermaga**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pengirim: [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Kami belum selesai, tapi kalian boleh datang.
+>
+> Pesan:
+> **Dermaga** belum selesai. Kalau kalian menunggu kami menyelesaikannya dengan sempurna, mungkin kalian akan tiba saat kami sudah terlalu sibuk berdebat warna papan. Jadi datanglah.
+>
+> Ada jalur turun. Ada air. Ada lumbung, tapi jangan langsung ke sana.
+>
+> Ada corong pengeras suara, jangan berdiri terlalu dekat kalau **Penumpang ROTY BROI (ID 410)** sedang bangga.
+>
+> Ada pohon pisang pertama. Jangan menyentuhnya sebelum bertanya.
+>
+> Ada 2345 petani, kurang lebih. Aku menulis "kurang lebih" karena beberapa orang mulai menjadi petani hanya setelah ditegur anak-anak, dan aku tidak tahu apakah itu dihitung sejak teguran atau sejak mereka benar-benar menanam.
+>
+> Ada tempat untuk mencatat nama. Bukan untuk membuat daftar pemilik. Untuk memastikan tidak ada yang sampai lalu hilang seolah-olah ia tidak pernah keluar dari gelombang.
+>
+> Datanglah ke **Dermaga**. Jangan datang sebagai penakluk. Jangan datang sebagai pembeli pertama. Jangan datang sebagai orang yang ingin memberi nama baru kepada semua hal yang sudah belajar hidup sebelum kalian sampai. Datanglah seperti orang yang masih punya tangan untuk membantu.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: Tidak Diketahui (setelah 21 Desember 2022)
+>
+> Pencatat: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: **Prof. NOTA** terdengar lagi, tapi jangan panik.
+>
+> Pesan:
+> Pesan [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) hari ini terdengar seperti [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) yang sedang pura-pura menjadi papan **Dermaga**.
+>
+> Aku tahu itu kalimat yang tidak akan membantu siapa pun yang ingin dokumentasi bersih. Tapi memang begitu bunyinya.
+>
+> Ada cara pesan itu membicarakan kedatangan tanpa menjual tiket. Ada cara ia membicarakan lumbung tanpa menyebut aset. Ada cara ia membicarakan nama tanpa membuat identitas menjadi pagar. Ada cara ia membicarakan daratan seperti seseorang yang sudah pernah melihat proyek hampir menjadi kebun dan kebun hampir menjadi proyek.
+>
+> Aku tidak akan menyelesaikan misteri ini sekarang. Beberapa gema harus dibiarkan memantul sampai buahnya matang. Kalau tidak sabar, makan pisang dulu. Tapi jangan yang untuk ditanam.
+>
+> ---
+>
+> Corong Pengeras Suara Pertama...
+>
+> Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
+>
+> Lokasi: **Dermaga BANANOW LAND**
+>
+> Subjek: Bahtera terlihat.
+>
+> Pesan:
+> Bahtera terlihat.
+>
+> Ulangi.
+>
+> [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) terlihat.
+>
+> Tidak, ia tidak terlihat gagah.
+>
+> Jangan tulis gagah.
+>
+> Ia terlihat lelah. Ia terlihat seperti rumah yang terlalu lama mengambang. Ia terlihat seperti semua orang yang pernah diselamatkannya masih menempel pada kayunya.
+>
+> Siapkan tali. Siapkan air. Siapkan papan nama.
+>
+> Jauhkan anak-anak dari sisi **Dermaga**.
+>
+> Tidak, jangan jauh sekali. Mereka harus melihat. Tapi pegang tangan mereka.
+>
+> **Penumpang ROTY BROI (ID 410)**, turunkan volume corong.
+>
+> **Penumpang ROTY BROI (ID 410)**, aku serius.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
+>
+> Pencatat: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Bahtera menyentuh daratan.
+>
+> Pesan:
+> Hari ini [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tiba di **Dermaga BANANOW LAND**.
+>
+> Aku tidak menulis "berlabuh" dulu, karena yang terjadi tidak seanggun kata itu. Bahtera lebih mirip mendamparkan diri dengan sisa tenaga yang sudah terlalu lama dipinjam dari doa, tali, kayu, dan keras kepala. Gelombang mendorong dari belakang. **Dermaga** menahan dari depan. Tali pertama putus. Tali kedua hampir menyeret tiga orang. Tali ketiga berhasil, mungkin karena anak-anak ikut berteriak seolah-olah tali bisa malu kalau gagal di depan mereka.
+>
+> Orang-orang di **Dermaga** tidak berbaris seperti tentara.
+>
+> Syukurlah.
+>
+> Mereka berkumpul seperti dapur yang tiba-tiba menerima tamu terlalu banyak. Ada yang membawa air. Ada yang membawa pisang. Ada yang membawa kain. Ada yang membawa papan. Ada yang membawa catatan. Ada yang tidak membawa apa-apa selain dua tangan yang gemetar, dan pada hari itu dua tangan kosong pun terasa seperti peralatan penting.
+>
+> Para penumpang turun perlahan.
+>
+> Ada yang mencium tanah. Ada yang takut tanahnya membalas. Ada yang tertawa, lalu menangis, lalu muntah, lalu meminta maaf kepada semua yang melihat.
+>
+> Ada yang bertanya apakah daratan ini punya aturan. Seorang anak menjawab, "*Petik? Tanam.*"
+>
+> Tidak ada yang punya jawaban lebih baik.
+>
+> ---
+>
+> Pesan Dari Papan Kecil...
+>
+> Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
+>
+> Sumber: Papan di sisi **Dermaga**.
+>
+> Subjek: Urutan turun.
+>
+> Pesan:
+> Yang hidup turun dulu. Yang terluka turun duluan dari yang sok kuat.
+>
+> Anak-anak jangan dilepas.
+>
+> Catatan jangan basah lagi, kasihan.
+>
+> Makanan dihitung. Benih dihitung dua kali.
+>
+> Benda yang tidak diketahui fungsinya jangan langsung dibuang.
+>
+> Potongan layar [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) jangan diinjak.
+>
+> Papan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) jangan dijadikan alas pisang.
+>
+> Kalau bingung, tanya **Amanda**. Kalau **Amanda** berbeda jawaban, berarti pertanyaannya bagus.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
+>
+> Pencatat: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Bahtera selesai menjadi bahtera.
+>
+> Pesan:
+> Setelah semua yang harus diturunkan telah diturunkan, [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengeluarkan suara yang membuat semua orang berhenti berbicara.
+>
+> Bukan ledakan. Bukan patah yang marah. Bukan suara benda yang kalah. Lebih seperti napas panjang dari sesuatu yang akhirnya diizinkan berhenti memaksa dirinya kuat.
+>
+> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan-perempuan penjaga pohon pisang berkata, "*Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan.*"
+>
+> Maka mereka berhenti. Bahtera runtuh pelan-pelan. Tidak tenggelam. Tidak hilang. Tidak kalah. Ia selesai menjadi bahtera.
+>
+> Aku menulis kalimat itu dengan hati-hati karena suatu hari nanti mungkin ada bagian dari reruntuhan ini yang masih harus melakukan tugas lain. Tetapi hari ini, jangan minta ia menjadi tempat tinggal, pemerintahan, dapur, kandang, benteng, ruang voting, dan doa sekaligus.
+>
+> Hari ini, biarkan bahtera menjadi saksi. Besok, kita pikirkan bagaimana cara berterima kasih kepada runtuhan bahtera itu.
+>
+> ---
+>
+> Lipatan Daun Pisang...
+>
+> Tanggal Meleleh: 28 Januari 2023 (28 Januari 2023 B.M.)
+>
+> Sumber: Tidak ada yang mengaku menulis.
+>
+> Subjek: 2020???
+>
+> Pesan:
+> Di ujung **Dermaga**, seseorang menulis angka **2020** di daun pisang. Lalu melipat daunnya. Lalu menyelipkannya di antara catatan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> Ketika ditanya, semua **Amanda** menunjuk **Amanda** yang lain.
+>
+> Ini tidak membantu. Tapi begitulah kami.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 29 Januari 2023 (29 Januari 2023 B.M.)
+>
+> Pencatat: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Jangan hitung semua **Amanda** hari ini.
+>
+> Pesan:
+> Beberapa orang mulai menghitung kami lagi.
+>
+> Tolong jangan.
+>
+> Bukan karena angka tidak penting. Angka sangat penting. Angka bisa menyelamatkan orang dari cerita yang terlalu percaya diri. Tetapi angka yang dibuka pada waktu yang salah bisa membuat orang berhenti melihat wajah.
+>
+> Untuk saat ini, ingat saja: 47 dari kami menulis karena 47 dari kami lebih dulu menyaksikan pantulan yang membuat catatan biasa tidak cukup. Di luar 47 itu, ada suara lain, tubuh lain, semesta lain, dan nama yang sama dengan luka yang tidak sama.
+>
+> Sebagian sudah sampai. Sebagian belum. Sebagian mungkin tidak akan pernah.
+>
+> Jangan paksa bagian ini menjadi daftar. Ini bagian petani. Bahkan misteri pun harus menunggu musimnya.
+>
+> ---
+>
+> Pesan Dari Seorang Perempuan...
+>
+> Tanggal Meleleh: 29 Januari 2023 (29 Januari 2023 B.M.)
+>
+> Lokasi: **BANANOW LAND**
+>
+> Subjek: Petani bukan yang paling dulu tiba di sini.
+>
+> Pesan:
+> Banyak yang bertanya kapan mereka boleh disebut petani.
+>
+> Aku ingin menjawab setelah sarapan. Mereka bertanya sebelum sarapan. Itu sebabnya jawaban pertamaku mungkin sedikit galak.
+>
+> Petani bukan yang paling dulu tiba di sini. Yang paling dulu tiba bisa saja hanya yang paling dulu lapar.
+>
+> Petani bukan yang paling banyak memetik. Yang paling banyak memetik bisa saja hanya yang paling cepat menghabiskan.
+>
+> Petani bukan yang paling keras menyebut tanah ini miliknya. Tanah yang baru selamat dari lelehan tidak butuh tuan baru.
+>
+> Petani adalah orang yang tahu bahwa buah bukan akhir dari pohon.
+>
+> Petani adalah orang yang tetap kembali setelah kenyang.
+>
+> Petani adalah orang yang membangun lumbung bukan untuk menyembunyikan kelebihan, tetapi untuk menunda ego.
+>
+> Petani adalah orang yang bisa melihat anak-anak makan pisang tanpa langsung menghitung untungnya.
+>
+> Petani adalah orang yang kalau salah, mencatat salahnya sebelum mengubah salah itu menjadi tradisi.
+>
+> Kalau kalian ingin tinggal, jangan mulai dengan bertanya bagian mana yang menjadi milik kalian. Mulailah dengan bertanya bagian mana yang bisa kalian rawat tanpa segera menamainya milik.
+>
+> Kalau pertanyaan itu membuat kalian tidak nyaman, bagus. Tanah juga tidak nyaman ketika pertama kali diinjak oleh orang yang baru berhenti tenggelam.
+>
+> ---
+>
+> Corong Pengeras Suara Kedua...
+>
+> Tanggal Meleleh: 30 Januari 2023 (30 Januari 2023 B.M.)
+>
+> Pengirim: [**ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subjek: Corong pengeras suara kedua berguna.
+>
+> Pesan:
+> Corong pengeras suara kedua berguna. Aku hanya ingin itu tercatat.
+>
+> Semua orang yang dulu mengabaikanku sekarang pura-pura sibuk mengangkat pisang.
+>
+> Tidak apa-apa. Aku memaafkan mereka dengan suara keras.
+>
+> Corong pengeras suara pertama menghadap laut. Corong pengeras suara kedua menghadap daratan.
+>
+> Karena setelah bahtera sampai, pesan tidak lagi hanya perlu dikirim ke laut. Pesan juga perlu dikirim ke orang-orang yang sudah berdiri tetapi belum saling mendengar.
+>
+> Ini pelajaran pertama setelah **Dermaga**: daratan luas bisa membuat orang tersesat tanpa tenggelam.
+>
+> ---
+>
+> Catatan **Amanda**...
+>
+> Tanggal Meleleh: 31 Januari 2023 (31 Januari 2023 B.M.)
+>
+> Pencatat: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subjek: Setelah bahtera, kami belajar berdiri.
+>
+> Pesan:
+> Sebelumnya aku menutup catatan tentang pintu tanpa menutup semesta. Kali ini aku akan menutup catatan tentang petani tanpa menutup daratannya. Atau mungkin menutup catatan tentang daratan tanpa menutup petaninya. Aku lupa mana yang terdengar lebih misterius. Kalau kalian bingung, jangan khawatir. Beberapa misteri memang hanya kalimat yang belum sarapan.
+>
+> Sudah tiga hari sejak [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendamparkan diri di **Dermaga BANANOW LAND**.
+>
+> Kata "mendamparkan" masih terasa paling jujur.
+>
+> "Berlabuh" terlalu rapi.
+>
+> "Tiba" terlalu singkat.
+>
+> "Selamat" terlalu cepat.
+>
+> Bahtera datang seperti sesuatu yang telah menggendong terlalu banyak kehidupan dan akhirnya menemukan tempat untuk menurunkannya tanpa merasa bersalah. Setelah itu, semua orang harus belajar bentuk keselamatan yang baru. Di bahtera, keselamatan berarti tetap berada di atas. Di **BANANOW LAND**, keselamatan mulai berarti tahu kapan harus turun, kapan harus menanam, kapan harus membagi, kapan harus diam, dan kapan harus tidak menyentuh lumbung orang lain meskipun kalian merasa sangat membantu.
+>
+> Para penumpang masih sering dipanggil penumpang. Itu wajar. Nama lama tidak langsung lepas hanya karena kaki menyentuh tanah. Beberapa masih tidur dekat reruntuhan bahtera. Beberapa masih menyimpan tali di bawah kepala. Beberapa berjalan terlalu jauh hanya untuk memastikan daratan tidak tiba-tiba habis. Beberapa belajar menanam, lalu kecewa karena tanaman tidak tumbuh secepat pengumuman. Beberapa mulai bertanya apakah menjadi petani ada votingnya.
+>
+> Anak-anak tertawa.
+>
+> Itu jawaban yang cukup baik untuk sementara.
+>
+> **BANANOW LAND** belum kami pahami sepenuhnya. Mungkin ia benar-benar super-daratan. Mungkin ia tubuh baru dari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) yang telah menyatu. Mungkin peta-peta lama hanya halaman basah dari sesuatu yang terlalu luas untuk dibaca oleh satu bahtera. Tapi kami tidak perlu memahami seluruh tubuh daratan sebelum belajar tidak merusak bagian yang kami pijak hari ini.
+>
+> Itu mungkin pelajaran pertama para petani.
+>
+> Tidak semua yang ditemukan harus langsung dijelaskan. Tidak semua yang subur harus langsung dihitung. Tidak semua yang luas harus langsung dikuasai. Tidak semua buah yang matang harus langsung dihabiskan.
+>
+> Sisakan tunas. Tanam kembali. Rawat yang tumbuh. Bagikan yang cukup. Catat yang salah.
+>
+> Jangan tertawa terlalu keras pada orang yang baru belajar berdiri, karena mungkin kemarin kalian juga muntah setelah mencium tanah.
+>
+> Dan jika seseorang masih memanggil dari laut, jangan bertanya dulu apakah ia layak menjadi petani. Lemparkan tali. Tanyakan namanya setelah ia tidak lagi tenggelam.
 
 ***
 

@@ -365,7 +365,7 @@ coverY: 0
 >
 > Saat itulah aku mulai memahami bahwa pesan itu tidak hanya berjalan dari bahtera ke bahtera. Pesan itu juga berjalan melalui [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Sekitar sepuluh bahtera, kapal, balon udara, dan kendaraan penyelamat lainnya menjawab kami. Mereka tidak sama seperti kami. Ada yang membawa seniman. Ada yang membawa kolektor. Ada yang membawa keluarga. Ada yang membawa orang-orang yang belum pernah saling mengenal sebelum bencana. Ada yang hanya memiliki satu kesamaan: mereka tidak ingin akhir dunia dijadikan alasan untuk lebih banyak pembunuhan.
+> Sekitar sepuluh bahtera, kapal, balon udara, dan kendaraan penyelamat lainnya menjawab kami. Mereka tidak sama seperti kami. Ada yang membawa seniman. Ada yang membawa kolektor. Ada yang membawa keluarga. Ada yang membawa orang-orang yang belum pernah saling mengenal sebelum bencana. Ada yang hanya memiliki satu kesamaan: Mereka tidak ingin akhir dunia dijadikan alasan untuk lebih banyak pembunuhan.
 >
 > Kami saling bertukar pesan dengan segala cara yang masih mungkin dilakukan. Kami sepakat untuk bergerak mendekat. Kami sepakat untuk berkumpul. Kami sepakat untuk membangun sesuatu yang lebih besar daripada diri kami masing-masing. Tapi tidak semuanya berhasil tiba.
 >
@@ -548,7 +548,7 @@ coverY: 0
 >
 > Kami menerima pesan-pesan dari luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yang menanyakan hal yang sama. Sebagian datang melalui panggilan radio yang rusak. Sebagian datang melalui botol. Sebagian tergores pada wadah plastik. Sebagian ditulis di kain yang diikatkan pada ranting-ranting yang mengapung. Sebagian tidak lebih dari suara yang terekam pada alat-alat yang masih memiliki sedikit baterai. Semuanya membawa ketakutan yang sama:
 >
-> **makanan sedang menghilang.**
+> **Makanan sedang menghilang.**
 >
 > Benih-benih basah. Tepung membusuk. Beras menjadi lumpur. Garam menjadi terlalu banyak dan tidak cukup pada saat yang sama. Ikan tidak lagi tahu di mana air berakhir dan daratan dimulai. Burung-burung menjadi langka. Kelinci-kelinci yang disebut [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) sudah menjadi luka di dalam ingatan kami.
 >
@@ -646,7 +646,7 @@ coverY: 0
 >
 > Jadi aku menjaga rahasia itu. Aku menuliskannya di sini karena catatan bukan gosip. Catatan adalah beban yang diteruskan kepada **Kapten** berikutnya.
 >
-> Untuk para penerusku: Lindungi air. Lindungi pembiakan. Lindungi mereka yang tidak bisa memakan apa yang dimakan orang lain. Lindungi kesepakatan. Lindungi perbedaan antara keadaan darurat dan kerakusan.
+> Untuk para penerusku. Lindungi air. Lindungi pembiakan. Lindungi mereka yang tidak bisa memakan apa yang dimakan orang lain. Lindungi kesepakatan. Lindungi perbedaan antara keadaan darurat dan kerakusan.
 >
 > Di luar sana, pesan-pesan menjadi semakin putus asa. Beberapa kendaraan penyelamat mengirim lokasi, meminta kami datang dan menyelamatkan mereka. Tapi bentuk Bumi telah berubah. Koordinat lama berbohong. Peta-peta lama tenggelam. Arah berubah menjadi dugaan.
 >
@@ -701,7 +701,7 @@ coverY: 0
 >
 > Suatu hari, [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mendapat tugas membantu membawa tong-tong air daur ulang ke salah satu titik pengisian. Aku tidak tahu apakah dia sudah merencanakannya sejak awal atau godaan itu baru muncul ketika dia melihat tong kosong yang menunggu untuk diisi. Dia masuk ke dalamnya sebelum air datang. Ketika air daur ulang masuk ke dalam tong, dia membiarkan dirinya duduk di dalamnya.
 >
-> Dia kemudian mengatakan kepadaku bahwa dia tidak merasa sedang membuang apa pun. Air itu masih berada di dalam tong. Tubuhnya hanya meminjam rasa air sebelum air itu melanjutkan tugasnya. Itu bodoh, egois, manusiawi, dan bisa dimengerti dengan cara yang paling buruk. Sejak hari daratan meleleh, dia belum pernah merasakan tubuhnya dikelilingi air. Dia hanya merasakan keringat, lumpur, rasa lapar, logam, asap dari bom yang jauh, dan berat topeng las yang membuatnya terlihat seperti pekerja yang kabur dari ruang kerja yang sudah tidak ada.
+> Dia kemudian mengatakan kepadaku bahwa dia tidak merasa sedang membuang apa pun. Air itu masih berada di dalam tong. Tubuhnya hanya meminjam rasa air sebelum air itu melanjutkan tugasnya. Itu bodoh, egois, manusiawi, dan bisa dimengerti dengan cara yang paling buruk. Sejak hari semua daratan mulai meleleh, dia belum pernah merasakan tubuhnya dikelilingi air. Dia hanya merasakan keringat, lumpur, rasa lapar, logam, asap dari bom yang jauh, dan berat topeng las yang membuatnya terlihat seperti pekerja yang kabur dari ruang kerja yang sudah tidak ada.
 >
 > Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menemukannya. Dia tidak berteriak. Itu membuat situasinya terasa lebih buruk bagi penumpang itu. Dia hanya berdiri di dekat tong dan berkata, "_Air itu bukan bak mandi._"
 >
@@ -741,13 +741,13 @@ coverY: 0
 >
 > Di ruang tertutup itu, mereka menemukan aturan pertama:
 >
-> **cairan hanya bisa menjadi zirah ketika ia diberi bentuk, tubuh, dan niat.**
+> **Cairan hanya bisa menjadi zirah ketika ia diberi bentuk, tubuh, dan niat.**
 >
 > Mereka menggambar sketsa-sketsa kecil menggunakan tinta yang dicampur dengan sedikit darah dari orang yang akan mengenakan zirah tersebut. Mereka meletakkan sketsa-sketsa itu di dekat air yang terkontaminasi **Cairan Tanpa Nama**. Sketsa-sketsa itu bereaksi. Sebagian menggulung. Sebagian mengeras. Sebagian larut. Sebagian menjadi lembaran gelap yang tidak berguna. Sebagian mencoba membentuk pelat kecil, sarung tangan, topeng, pelindung, tali pengikat, segel, sepatu, atau alat. Ketika darah itu bukan milik pemakainya, zirah menolak tubuh tersebut. Ketika seseorang mencoba mengenakan sesuatu yang bukan miliknya, zirah itu menjadi berat, lalu basah, lalu tidak menjadi apa pun selain air bernoda.
 >
 > Itulah aturan kedua:
 >
-> **perlindungan tidak bisa dicuri tanpa kembali menjadi cairan biasa.**
+> **Perlindungan tidak bisa dicuri tanpa kembali menjadi cairan biasa.**
 >
 > [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tertawa ketika dia memahami aturan itu. Lalu dia menangis. Dia berkata bahwa pekerjaan lamanya selalu menjadi kebalikannya. Di dunia lama, jika sebuah senjata dicuri, senjata itu tetap bekerja. Jika sebuah bom dicuri, bom itu tetap meledak. Jika sebuah mesin kekerasan berpindah tangan, mesin itu tidak bertanya apakah tangan tersebut sah. Mesin itu hanya menuruti pemicunya.
 >
@@ -779,7 +779,7 @@ coverY: 0
 >
 > Itulah aturan ketiga:
 >
-> **zirah itu melindungi kehidupan, tetapi melelehkan niat untuk mencelakai.**
+> **Zirah itu melindungi kehidupan, tetapi melelehkan niat untuk mencelakai.**
 >
 > Zirah itu tidak membuat pemakainya suci. Zirah itu tidak menghapus amarah. Zirah itu tidak menghilangkan rasa takut. Zirah itu tidak membuat siapa pun bijaksana. Zirah itu hanya menolak menjadi jalan yang bersih antara niat jahat dan rasa sakit makhluk hidup lainnya.
 >
@@ -803,7 +803,7 @@ coverY: 0
 >
 > Ia akan menjadi sistem penyelamatan. Tidak ada [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang dibuat tanpa catatan. Tidak ada [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang dibuat tanpa persetujuan dari orang yang darahnya digunakan. Tidak ada [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang diberikan untuk pembalasan dendam. Tidak ada [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang digunakan untuk menguasai mereka yang tidak berzirah.
 >
-> Setiap [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) harus terikat pada pekerjaan yang melindungi kehidupan: menyelam, memperbaiki, membawa, memasak, membiakkan, menyembuhkan, menjaga air, menjaga makanan, membimbing anak-anak dan orang-orang tua dari kendaraan-kendaraan yang telah bergabung dengan kami, dan melindungi para pembawa pesan yang masih membawa [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) melewati bahaya.
+> Setiap [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) harus terikat pada pekerjaan yang melindungi kehidupan, menyelam, memperbaiki, membawa, memasak, membiakkan, menyembuhkan, menjaga air, menjaga makanan, membimbing anak-anak dan orang-orang tua dari kendaraan-kendaraan yang telah bergabung dengan kami, dan melindungi para pembawa pesan yang masih membawa [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) melewati bahaya.
 >
 > Banyak sketsa digambar. Tidak semuanya terbentuk. Sebagian desain ditolak karena terlalu mirip senjata. Sebagian desain gagal karena pemakainya menginginkan kekuatan lebih daripada perlindungan. Sebagian desain larut karena darah dan niat tidak sepakat. Sebagian desain dibiarkan belum selesai karena [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_Tidak semua zirah yang mungkin dibuat pantas untuk dilahirkan._"
 >
@@ -815,7 +815,7 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata, "_Tubuh adalah dompet. Darah adalah tanda tangan. Niat adalah kunci._"
 >
-> Aku menuliskannya meskipun aku tidak sepenuhnya memahaminya. Mungkin para Kapten masa depan akan memahaminya.
+> Aku menuliskannya meskipun aku tidak sepenuhnya memahaminya. Mungkin para **Kapten** masa depan akan memahaminya.
 >
 > Yang kutahu adalah ini:
 >
@@ -831,9 +831,9 @@ coverY: 0
 >
 > Aku bertanya kepada [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) apakah dia merasa ditebus. Dia berkata tidak. Dia berkata penebusan terdengar terlalu bersih. Dia berkata dia tidak ingin mencuci masa lalunya seperti kotoran dari kulit. Dia ingin tetap mengingat apa yang pernah dibantu oleh tangannya untuk dibuat, agar tangannya tidak mengulangi dirinya sendiri ketika semua orang memujinya karena berguna. Lalu dia menyentuh zirah di sekitar dadanya dan berkata, "_Ini bukan pengampunanku. Ini pengekanganku._"
 >
-> Itu adalah keanehan lain dalam teori:
+> Itu adalah keanehan lain dalam teori.
 >
-> terkadang perlindungan bukanlah sesuatu yang membuat seseorang bertarung lebih baik.
+> Terkadang perlindungan bukanlah sesuatu yang membuat seseorang bertarung lebih baik.
 >
 > Terkadang perlindungan adalah sesuatu yang mencegah seseorang menjadi apa yang dulu dia dilatih untuk menjadi.
 >

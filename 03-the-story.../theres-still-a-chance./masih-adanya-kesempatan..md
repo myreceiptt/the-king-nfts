@@ -2246,7 +2246,7 @@ coverY: 0
 >
 > Ternyata aku hanya manusia lama dengan tempat berpijak baru.
 >
-> Tolong jangan tulis namaku, Kainde.
+> Tolong jangan tulis namaku, **Kainde**.
 >
 > ***
 >

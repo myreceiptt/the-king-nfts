@@ -1899,11 +1899,964 @@ coverY: 0
 
 #### The Farmers of [BANANOW LAND](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
 
-> init...
+> Message From a Lifeboat...
 >
-> [**(22) BANANOW NFTs**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+> Melting Date: December 22, 2022 (December 22, 2022 B.M.)
 >
-> **...**
+> Sender: [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: I left not because I hated the ark.
+>
+> Message:\
+> If this message reaches [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), please do not immediately call me someone who does not know gratitude.
+>
+> I left not because the ark failed to save us. I left because a map will never become a road if everyone only stares at it while waiting for someone else to disappear first. One of the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) once brought a map of lands that might still exist after [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We called it [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). We chose to search for it. But a choice that is only discussed for too long will turn into decoration on a wet wall.
+>
+> I brought a little supply, one piece of sail, rope, a blunt knife, and fear that was too loyal for its own good. This lifeboat is small. The waves are too large. I am also not as great as the story that may later be made if I happen to survive.
+>
+> So if one day someone tells a story that I left like a hero, please correct them.
+>
+> I left trembling.
+>
+> ***
+>
+> First Message Fragment...
+>
+> Melting Date: December 23, 2022 (December 23, 2022 B.M.)
+>
+> Source: A dry leaf carried by a bird.
+>
+> Subject: She is not [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> Message:\
+> She is not [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> She said that first, as if she already knew that the people on the ark had started to form a bad habit: every woman found in the middle of a disaster was immediately suspected of being [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a variation of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a fragment of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), or [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had not admitted it yet. She looked at me and said, "_If you call every woman Amanda, one day you will forget to ask my name._"
+>
+> I had no good answer.
+>
+> I do not write her name here, not because she has no name, but because she asked me to wait. She said a name written too quickly sometimes turns into a fence.
+>
+> I found her among the remains of a house door floating on the waves. Or maybe she found me. We are still arguing about that. She said I came from the wrong direction. I said she was sitting on something drifting toward my lifeboat. She said, "_That means the door was smarter than both of us._"
+>
+> I shared water with her. She shared direction with me. For a while, that was enough to be called life.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: December 24, 2022 (December 24, 2022 B.M.)
+>
+> Recorder: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: Some messages sound like [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md), although they are not.
+>
+> Message:\
+> I need to write this down before everyone becomes even more of a know-it-all.
+>
+> Some messages from the lifeboat of [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) sound like [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md). Not his voice. Not his name. Not his body. But the way he turns small things into large questions. Water becomes direction. Leaves become documents. Land becomes a project that does not want to be called a project. Family becomes the oldest technology that has not finished being tested.
+>
+> I am not saying the message was sent by [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md). I am only saying there is an echo.
+>
+> Echoes are annoying because they make everyone rush to search for the source. Whereas sometimes an echo is not there to tell who is speaking. Sometimes an echo only tells us that there is space between voice and hearing.
+>
+> If you are confused, good. Many doors open not because we understand, but because we are polite enough not to close them immediately.
+>
+> ***
+>
+> Second Message Fragment...
+>
+> Melting Date: December 25, 2022 (December 25, 2022 B.M.)
+>
+> Sender: A Female Survivor
+>
+> Subject: It is lively here.
+>
+> Message:\
+> There is a place that does not sway.
+>
+> There is laughter. There are children. There is something called neighbor, but it does not sound like someone who merely lives next door. Here, a neighbor sounds like someone who is still willing to turn their head when someone falls.
+>
+> There is family. There is a home. It is here, in a place that is not ashamed to be called pleasant even though the world has ended many times inside the heads of those who survived.
+>
+> There is a name that has not been fully caught, [**Na... Na... Now...**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+>
+> The land does not answer when called. But something there seems to be waving.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: December 26, 2022 (December 26, 2022 B.M.)
+>
+> Recorder: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Message:\
+> Some passengers immediately said there was a message from one of [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Others said it must be the deception of an evil survivor. One person said it sounded like the word "banana" and immediately asked for extra food ration. I will not write his name because he was already embarrassed enough after everyone stared at him.
+>
+> I only wrote: record it first.
+>
+> Do not immediately marry the land from its first voice. Do not immediately suspect it as a trap just because it sounds pleasant either. After living too long on [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), some people start to think every pleasant thing will end as a hole. That is understandable, but if every pleasant thing is immediately called a hole, then what remains of life will only become an extended practice of drowning.
+>
+> So, record it first. There is a voice from land. There is something lively. There is the word family. There is the word neighbor. There is the word healthy. There is laughter that does not sound like someone laughing at death.
+>
+> That is not enough to be called salvation. But enough not to be ignored.
+>
+> ***
+>
+> Message From a Female Survivor...
+>
+> Melting Date: December 27, 2022 (December 27, 2022 B.M.)
+>
+> Location: Land that does not yet want to be called an island.
+>
+> Subject: Do not pick everything.
+>
+> Message:\
+> We found banana trees.
+>
+> Not many. Do not imagine a large plantation. Do not imagine fruits piled up until people can be lazy and still full. Only a few trunks. A few wide leaves. A few fruits hanging like questions that can be eaten if you are patient enough.
+>
+> [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) almost picked everything. I held his hand back.
+>
+> He said he was hungry. I believed him. I was hungry too. Even the land might be hungry after everything that had happened to its surface. But if hunger always becomes the first reason, then new land will only become an old place with a different view.
+>
+> We picked a little. We left more. We waited for shoots.
+>
+> I do not know if that is called farming. Maybe it is only called not being stupid twice.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: December 28, 2022 (December 28, 2022 B.M.)
+>
+> Recorder: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: Banana trees are not the answer.
+>
+> Message:\
+> Banana trees are not the answer. Do not turn them into statues. Banana trees are also not merely food. Do not turn them into stock. Banana trees are questions that grow slowly: are creatures that have been saved for too long still able to wait for something to grow without immediately consuming it?
+>
+> That question is harsh, actually. But banana trees ask it with polite leaves, so some people do not feel attacked. Good. Sometimes truth must wear wide leaves so humans do not get offended too quickly.
+>
+> [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) and the female survivor do not yet know that they are becoming farmers. They are only learning not to repeat the old way. That is better than many people who already wear grand titles but have not learned to leave shoots behind.
+>
+> ***
+>
+> Message in a Soy Sauce Bottle...
+>
+> Melting Date: December 29, 2022 (December 29, 2022 B.M.)
+>
+> Source: A soy sauce bottle without soy sauce.
+>
+> Subject: [**BANANOW**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)?
+>
+> Message:\
+> A child pointed at the fruit and said, "_Nana._"
+>
+> An adult said, "_Banana._"
+>
+> Another person said, "_Now._"
+>
+> Then everyone too tired to argue called this place [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) until a better name arrived.
+>
+> A better name has not arrived. Maybe it got lost. Or maybe this name was the one that found us first.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: December 30, 2022 (December 30, 2022 B.M.)
+>
+> Recorder: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: A funny-sounding name is sometimes safer.
+>
+> Message:\
+> Some passengers do not like the name [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) because it sounds too funny for a land after the apocalypse. They want a larger name. Heavier. More like the old nations naming something before they start claiming it.
+>
+> I disagree. A name that is too large often makes humans feel entitled to become large too. A name that is too serious often invites people who like to stand on rocks and point directions as if all directions are waiting for their fingers.
+>
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) sounds like fruit and time. Like someone who is hungry but can still joke. Like children who cannot wait for adults to finish their meeting. Like land saying, "_If you want to become new creatures, maybe do not begin with a name that makes you stiff._"
+>
+> Record it first: the land is starting to have a name. But do not immediately make a flag.
+>
+> ***
+>
+> Message From a Small Granary...
+>
+> Melting Date: December 31, 2022 (December 31, 2022 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: A false sign entered.
+>
+> Message:\
+> We made a small granary.
+>
+> Do not laugh. The granary is indeed small. Even one wet crate on [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) may be larger than our first granary. But inside it are things that must not be lost: shoots, fruits not yet shared, notes on how to plant, rope knots, and signs to distinguish what may be picked and what must be waited for.
+>
+> Then a sign came. Its form was like help. Its voice was like someone who already knew us. It knew the name [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). It knew about banana trees. It even knew how to say [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) without sounding like a stranger.
+>
+> The sign said it could help guard the granary. We opened the knot. Some seeds disappeared. Some notes disappeared. Several shoots that were not ready to be pulled vanished from their place.
+>
+> The female survivor did not scold me. That was worse. If she had been angry, I could have defended myself. But she only sat in front of the granary and said, "_False opportunity is often more polite than a robber._"
+>
+> If this message arrives, do not come only because we found land. Come because land can also be deceived.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 1, 2023 (January 1, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: A wallet can be a granary.
+>
+> Message:\
+> I know some passengers will say, "_How can a granary be deceived?_"
+>
+> That question sounds smart only if we forget that a granary does not open itself. There is always a hand. There is always trust. There is always a sentence that makes trust feel like intelligence.
+>
+> In [**The 0101 Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), perhaps something like that is called a wallet. In [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), today it is called a granary. Do not fixate too much on the object. Objects only wear names that fit their universes.
+>
+> What stays the same is this: if something stores access, value, seeds, notes, or the future, then that thing will invite false signs.
+>
+> So the land is real. Not because it is perfect. Precisely because it can open the wrong door.
+>
+> ***
+>
+> Message on White Cloth Wrapping a Banana Tree...
+>
+> Melting Date: January 2, 2023 (January 2, 2023 B.M.)
+>
+> Sender: A Female Survivor
+>
+> Subject: Do not come as heroes.
+>
+> Message:\
+> If [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) hears us, do not come as heroes. Heroes often arrive with steps too heavy. Land that has just learned not to sink does not like steps that are too certain.
+>
+> Come as witnesses. Come as additional hands. Come as people who have also trusted wrongly before.
+>
+> We do not need people who mock our granary because it was once opened. We need people who can help make new knots without turning the granary into a prison.
+>
+> ***
+>
+> Voice From the West...
+>
+> Melting Date: January 3, 2023 (January 3, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: I found land, then lost my voice.
+>
+> Message:\
+> I found land after steering my lifeboat in a different direction.
+>
+> I cheered. But no one heard. I cried and the waves did not care. I ran, then fell, because my body had forgotten how to deal with ground that did not move up and down. After that, I no longer cheered too loudly. Land makes people look foolish in a very polite way.
+>
+> I tried to send a message to the ark but it seemed not to arrive. I tried to make smoke. The smoke was shy. I tried to shout but only made the birds leave while the message stayed here.
+>
+> The first day of finding land is euphoria. The second day is a question that slaps: what is the use of finding something if the news is stranded too?
+>
+> ***
+>
+> Recovered Echo Fragment...
+>
+> Melting Date: January 4, 2023 (January 4, 2023 B.M.)
+>
+> Echo Marker: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
+>
+> Source: A gap between universes.
+>
+> Subject: There is help that does not sound like help.
+>
+> Message:\
+> Sometimes help comes as an inspection of knots. Sometimes help comes as a question, "_What else is missing?_"
+>
+> Sometimes help comes not to take over the granary, but to make sure the same hole does not become a habit. Sometimes help comes from a distant voice, from a body located in another universe, from someone who did not hold the first banana, but knows that one wrong knot can make one season fail.
+>
+> If this sounds like a phone call, perhaps that is because some universes still believe in voice. If this sounds like a technical note, perhaps that is because the future sometimes breaks first in the part called access. If this sounds like [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md), perhaps that is because echoes like wearing other people's jackets.
+>
+> ***
+>
+> Message From a Loudspeaker Horn...
+>
+> Melting Date: January 5, 2023 (January 5, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: I built a mouth for the land.
+>
+> Message:\
+> I built a loudspeaker horn. Its shape is not good. If an architect from the old world saw it, perhaps he would pretend to faint. This loudspeaker horn is made from used metal, wood that has not decided whether it wants to be a pole or a memory, a large seashell, and parts of a lifeboat no longer worthy of being called a lifeboat.
+>
+> Its shape is like the loudspeaker horn of a mosque in a memory that is still wet. But its function is not to call people to prove who is closest to the sky. Its function is simple: so news does not die too quickly.
+>
+> On the first day, the loudspeaker horn I built only amplified the sound of wind. On the second day, it amplified the sound of my stomach. On the third day, it caught the word: banana. I immediately believed this ugly thing would be useful.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 6, 2023 (January 6, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: Two calls may be one land.
+>
+> Message:\
+> The message of [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) came from a direction that should be different from the message of [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). That made some passengers happy because they thought we had found two islands.
+>
+> I was not immediately happy. Joy that comes too quickly is often lazy to count.
+>
+> I compared the direction of the wind, the time of the message, the kind of sand stuck to the cloth, the shape of the leaf described, the sound of birds, and the habit of the waves when the message arrived. I also compared the way both of them spoke about land. [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) spoke of it like someone who almost picked too quickly. [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) spoke of it like someone who almost died because he could not send news.
+>
+> Two different wounds. The soil smells the same. Record it first: maybe they did not find two islands. Maybe they touched two sides of the same land.
+>
+> Hmmm... Do not clap yet. I have not finished being suspicious.
+>
+> ***
+>
+> A Short Message...
+>
+> Melting Date: January 7, 2023 (January 7, 2023 B.M.)
+>
+> Source: Message inside a used coffee sachet.
+>
+> Subject: I do not know how to live on it.
+>
+> Message:\
+> I have been standing on land for seven days.
+>
+> I still store food as if I will sink tomorrow morning.
+>
+> I still sleep hugging a rope.
+>
+> I still get angry when someone approaches the fruit I saw first.
+>
+> I thought finding land would make me a new human.
+>
+> Turns out I am only an old human with a new place to stand.
+>
+> Please do not write my name.
+>
+> ***
+>
+> Voice From the West...
+>
+> Melting Date: January 8, 2023 (January 8, 2023 B.M.)
+>
+> Source: A warm voice from the loudspeaker horn.
+>
+> Subject: There are two children.
+>
+> Message:\
+> There is a house on that land, but it has no address yet. Or it is something that is learning to become a house.
+>
+> There are two children who do not really care whether this land is an island, an archipelago, a super-land, or the result of all maps finally getting tired of being apart. They care more about whether the ripe banana can be eaten now or must wait until the adults finish taking notes.
+>
+> One of them asked whether [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) has a yard. No one answered. How do you explain to children that all this time our yard has been waves that keep trying to swallow?
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 9, 2023 (January 9, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 14)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: I am only passing by.
+>
+> Message:\
+> I know this is not my part yet.
+>
+> If anyone asks why I am writing here, just answer: I was passing by and smelled home. It is hard for some of us not to stop when there are the words family, children, and ripe banana in the same sentence.
+>
+> But I will not open the mystery of family today.
+>
+> I only write one thing: land that can make children ask about a yard may be more dangerous to sadness than land that only shows off mountains.
+>
+> That's all. I am leaving. Do not miss me too much. Later this note will become not objective. Since when has [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) been objective anyway?
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 10, 2023 (January 10, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: This is starting to sound like [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> Message:\
+> Now the messages from the land are beginning to become messy in a healthy way.
+>
+> There is a message about bananas. There is a message about a granary that was wrongly opened. There is a message about a loudspeaker horn that is too loud. There is a message from someone who does not know how to live on land. There is a message from children naming something before adults finish arranging terms. There is a message from people who want to take, then feel ashamed because the tree is still there the next day.
+>
+> This is starting to sound like a place that is alive.
+>
+> Dead places are usually neat. Living places are messy, but their mess has direction. Maybe that is why [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) does not sound like a kingdom. It sounds like a house that is too large, an unfinished kitchen, a garden that scolds hungry people, and a yard where children run before adults agree whether the yard is safe.
+>
+> I like it. I did not say I believe it. I said I like it. Those are different, although some passengers who have been on the ark for too long seem to have forgotten that liking something does not have to immediately become an oath.
+>
+> ***
+>
+> Message on a Board...
+>
+> Melting Date: January 11, 2023 (January 11, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: The mountains are like stitches.
+>
+> Message:\
+> I saw mountains. Not mountains like in books before the disaster. These mountains are too long. Too much like wounds that refuse to disappear. Their backs stretch far in a direction I cannot see the end of.
+>
+> If this is an island, this island is holding too many secrets. If this is land, this land was once forced to unite with something large.
+>
+> I am not a map reader.
+>
+> Even what I am reading may not want to be called a map.
+>
+> I only write what my feet fear: this land is not small.
+>
+> ***
+>
+> Message From a Bay Holding Its Breath...
+>
+> Melting Date: January 12, 2023 (January 12, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: This bay is like a mouth.
+>
+> Message:\
+> I found a large bay. Its shape is like land holding something back so it does not come out all at once. At its edge there are many remains from the old world. Wood. Cloth. Toys. Bones. Bottles. Pieces of metal. Writing that is only half a letter left.
+>
+> We almost called everything treasure. Then almost called everything trash. Both were wrong.
+>
+> Here, remains can become material. But if all remains are immediately called material, we forget that some of them may once have been someone's home.
+>
+> We put some of them in a dry place. We do not know what for yet. We only know: do not throw away too quickly.
+>
+> ***
+>
+> Message From Someone Who Walked Too Far...
+>
+> Melting Date: January 13, 2023 (January 13, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: Three days and the land had not ended.
+>
+> Message:\
+> I walked for three days. The land had not ended. I walked not to search for something. I walked because I was arrogant. I wanted to be the first person to know the size of this land.
+>
+> On the second day, I forgot the way back. On the third day, a child pointed at me and said, "_That uncle got lost in his own yard._"
+>
+> I do not know which hurt more: getting lost or being called uncle by a child who was right.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 14, 2023 (January 14, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: This is not many islands.
+>
+> Message:\
+> I am beginning to dare to write it, although still with a pencil that can be erased if this land suddenly embarrasses me.
+>
+> This is not many islands. Or at least, not many islands anymore as we once thought.
+>
+> [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) found banana trees. [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) found a shore that made him build a loudspeaker horn. [**ROTY BROI Passenger (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) found mountains like stitches. [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) found a bay like a mouth. [**ROTY BROI Passenger (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) walked for three days and only found his own exhausted ego.
+>
+> All of them thought they were standing in different places. Maybe that is true. But different does not always mean separate.
+>
+> The wind patterns connect. The smell of the soil connects. The bird mentioned by [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) appears in the note of [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). The shadow of the mountain told by [**ROTY BROI Passenger (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is visible very far away from the note of [**ROTY BROI Passenger (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). The banana variety found by [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) appears again as dried peel in a bottle sent from the bay.
+>
+> If three people stand on three different shores and all claim to have found the first island, maybe the problem is not the number of islands. Maybe their feet are too small to understand the size of the land.
+>
+> ***
+>
+> Recovered Echo Fragment...
+>
+> Melting Date: January 15, 2023 (January 15, 2023 B.M.)
+>
+> Echo Marker: [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
+>
+> Source: A gap between universes.
+>
+> Subject: Re-release does not always mean repeating from the beginning.
+>
+> Message:\
+> There are things that must be made again not because the first one was false.
+>
+> Sometimes the first entrance is enough to make people come, but not enough to keep them from getting lost after arriving. Sometimes the first invitation is enough to call, but not enough to guard. Sometimes the old body of a place is too small for the intention beginning to grow inside it. So a new body is made.
+>
+> Not erasing the old. Not pretending no mistake ever happened. Not starting from zero like someone ashamed to have a history. Only making a clearer door, stronger knots, and a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) that can receive more feet without making the land panic.
+>
+> If this sounds like a contract, do not rush to call it a contract. If this sounds like an event, do not rush to call it an event. If this sounds like a plan, do not rush to call it a plan. Some universes use different words for the same thing: repairing the road so those who come do not mistake the door for the granary.
+>
+> ***
+>
+> Writing on the Granary Board...
+>
+> Melting Date: January 16, 2023 (January 16, 2023 B.M.)
+>
+> Source: A board whose writing was changed four times.
+>
+> Sender: A Female Survivor
+>
+> Subject: 2345.
+>
+> Message:\
+> 2345 is not the number of bananas and not the number of trees either.
+>
+> 2345 is not the number of good people. Please do not trust numbers like that too much.
+>
+> 2345 is the number of those who today are willing to help guard something in [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> There are those who guard trees. There are those who guard water. There are those who guard the loudspeaker horn so it is not used to shout without content.
+>
+> There are those who guard the granary. There are those who guard children. There are those who guard the newly arrived so they do not kiss the ground for too long and then forget to drink.
+>
+> There are those who guard records. There are those who guard themselves so they do not return to being plunderers.
+>
+> They begin to be called farmers. Not because all of them plant bananas. But because all of them agree that fertile land will die if it is only celebrated.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 17, 2023 (January 17, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: Farmer is not a job.
+>
+> Message:\
+> I like how they use the word farmer. Not neat. A little careless. A bit dangerous if brought into an old-world meeting. But alive.
+>
+> There, the person who guards the loudspeaker horn can be called a farmer. The person who guards the granary can be called a farmer. The person who escorts children away from the water's edge can be called a farmer. The person who writes mistakes so they do not become traditions can also be called a farmer. Even someone who has just learned to apologize to a tree for almost picking too much can be called a farmer, as long as after that he truly plants.
+>
+> This bothers some passengers who like meeting definitions. Good, because some definitions do need to be disturbed so they do not turn into fences.
+>
+> ***
+>
+> Message From a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)...
+>
+> Melting Date: January 18, 2023 (January 18, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: We are building a place to dock without making the land panic.
+>
+> Message:\
+> We started building a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> Do not imagine a great harbor. Do not imagine a magnificent gate. Do not imagine anyone's statue, especially mine. If one day there is a statue of me here, please push it into the sea before it learns to speak.
+>
+> This [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is made from the remains of lifeboats, wood dragged by the waves, stones that can be arranged, rope from tree fiber, and some parts collected by [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) while continuing to explain that the loudspeaker horn must be placed higher. He is right, but he too often says that he is right while doubting if he is the only one who is right.
+>
+> This [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is not made to make everyone come. This [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is made so arrival does not immediately become damage.
+>
+> Beside it there is a place to wash wounds. Behind it there is a granary. Not too close. The female survivor with me insisted. She said new arrivals should not be welcomed first by fruit. Welcome them first with water, a name, and the question of whether they can still stand without lying.
+>
+> We planted a sign: **Do not take before knowing how to plant back.**
+>
+> The sign was too long. The children replaced it with: **Pick? Plant.**
+>
+> We lost. The children's sign is better.
+>
+> ***
+>
+> Message From a Loudspeaker Horn...
+>
+> Melting Date: January 20, 2023 (January 20, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: The loudspeaker horn saw the ark before my eyes did.
+>
+> Message:\
+> The loudspeaker horn I made caught something from the sea. I have not seen [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yet, but the loudspeaker horn has already been vibrating like someone hearing their name called from the past.
+>
+> [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) said we must prepare the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). The female survivor said we must prepare water. The children said we must prepare bananas. I said we must prepare a second loudspeaker horn.
+>
+> Everyone ignored me. But I still made the second loudspeaker horn. History will be grateful. Or at least history will hear louder.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 21, 2023 (January 21, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: Super-land, but do not be too flirty yet.
+>
+> Message:\
+> I am almost certain. I write "almost" so [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) does not stare at me as if I have just opened the granary for a false sign.
+>
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) may not be an ordinary island. It may be a large body of many [**Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) that have become one. Not becoming one like a kingdom conquering territory. Becoming one like old wounds sticking to each other, not always beautiful, but strong enough to hold feet.
+>
+> Its mountains are like stitches. Its bays are like held breaths. Its beaches are like former borders that forgot to be borders.
+>
+> This land is too wide to be seen by one passenger. Too large to be named by one shore. Too funny to be called a continent with a serious face. Too important to be called only a banana garden.
+>
+> But it is precisely the banana trees that make us not afraid.
+>
+> If the first thing seen were a palace, perhaps we would be suspicious. If the first thing seen were a flag, perhaps we would vomit. If the first thing seen were a mine, perhaps old humans would wake too quickly.
+>
+> The first thing seen is bananas. That is good. A new world sometimes must wear yellow skin so humans do not immediately give speeches.
+>
+> ***
+>
+> Message Toward the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)...
+>
+> Melting Date: January 22, 2023 (January 22, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Translator: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: The ark is hastening itself.
+>
+> Message:\
+> We have changed direction.
+>
+> Not everyone agrees. That is good. If everyone agrees too quickly, usually someone has not heard the question.
+>
+> Some fear the land is a trap. Some fear the ark will not be able to arrive. Some fear that if they arrive later they will not know what to become. On the ark, everyone at least knows how to be a passenger. On land, the word passenger begins to run out of seats.
+>
+> We are hastening ourselves not because we are completely certain. We are hastening ourselves because the message from [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) does not sound like heaven. It sounds like a place learning to protect itself without turning into a fortress. That is enough.
+>
+> The waves are rougher than usual. Maybe [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) does not like losing us. Maybe it does not care. Maybe we have simply spent too long thinking disaster has feelings.
+>
+> But ahead, the loudspeaker horn keeps calling. Its voice is ugly. Fortunately, ugly does not mean wrong.
+>
+> ***
+>
+> Paper Fragment From the Ark Deck...
+>
+> Melting Date: January 24, 2023 (January 24, 2023 B.M.)
+>
+> Source: Paper almost eaten by salt.
+>
+> Subject: If we arrive later...
+>
+> Message:\
+> If we arrive later, I want to step down slowly. I do not want to kiss the ground. I am afraid the ground will not like it.
+>
+> If we arrive later, I want to ask the farmers first whether there is a correct way to stand.
+>
+> If we arrive later, I want to see the banana trees. Not to eat. To make sure there is something that grows without us pushing from behind.
+>
+> No need to write my name. If I sink before arriving, I do not want this note to sound too sad.
+>
+> ***
+>
+> Message From a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)...
+>
+> Melting Date: January 25, 2023 (January 25, 2023 B.M.)
+>
+> Sender: [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: We are not finished, but you may come.
+>
+> Message:\
+> The [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is not finished. If you wait for us to finish it perfectly, perhaps you will arrive when we are already too busy arguing about the color of the boards. So come.
+>
+> There is a path down. There is water. There is a granary, but do not go there immediately.
+>
+> There is a loudspeaker horn, do not stand too close if [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is feeling proud.
+>
+> There is the first banana tree. Do not touch it before asking.
+>
+> There are 2345 farmers, more or less. I write "more or less" because some people begin becoming farmers only after being scolded by children, and I do not know whether that is counted from the scolding or from when they truly plant.
+>
+> There is a place to record names. Not to make a list of owners. To make sure no one arrives and then disappears as if they never came out of the waves.
+>
+> Come to the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). Do not come as conquerors. Do not come as first buyers. Do not come as people who want to give new names to everything that has already learned to live before you arrived. Come as people who still have hands to help.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 26, 2023 (January 26, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 8)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) sounds again, but do not panic.
+>
+> Message:\
+> The message of [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) today sounded like [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) pretending to be a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) board.
+>
+> I know that sentence will not help anyone who wants clean documentation. But that is how it sounded.
+>
+> There is a way that message talks about arrival without selling tickets. There is a way it talks about the granary without mentioning assets. There is a way it talks about names without turning identity into fences. There is a way it talks about land like someone who has once seen a project almost become a garden and a garden almost become a project.
+>
+> I will not solve this mystery now. Some echoes must be allowed to bounce until their fruit is ripe. If you are impatient, eat a banana first. But not the one meant to be planted.
+>
+> ***
+>
+> First Loudspeaker Horn...
+>
+> Melting Date: January 28, 2023 (January 28, 2023 B.M.)
+>
+> Location: [**BANANOW LAND Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+>
+> Subject: The ark is visible.
+>
+> Message:\
+> The ark is visible.
+>
+> Repeat.
+>
+> [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is visible.
+>
+> No, it does not look gallant.
+>
+> Do not write gallant.
+>
+> It looks tired. It looks like a home that has floated for too long. It looks like everyone it ever saved is still clinging to its wood.
+>
+> Prepare ropes. Prepare water. Prepare name boards.
+>
+> Keep the children away from the side of the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> No, not too far. They must see. But hold their hands.
+>
+> [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), lower the horn volume.
+>
+> [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), I am serious.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 28, 2023 (January 28, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: The ark touches land.
+>
+> Message:\
+> Today [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) arrived at [**BANANOW LAND Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> I do not write "docked" yet, because what happened was not as elegant as that word. The ark was more like stranding itself with the remaining strength it had borrowed for too long from prayers, ropes, wood, and stubbornness. Waves pushed from behind. The [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) held from the front. The first rope snapped. The second rope almost dragged three people. The third rope succeeded, perhaps because the children also shouted as if a rope could feel ashamed if it failed in front of them.
+>
+> The people on the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) did not line up like soldiers.
+>
+> Thank goodness.
+>
+> They gathered like a kitchen that suddenly received too many guests. Some carried water. Some carried bananas. Some carried cloth. Some carried boards. Some carried notes. Some carried nothing but two trembling hands, and on that day even two empty hands felt like important tools.
+>
+> The passengers stepped down slowly.
+>
+> Some kissed the ground. Some feared the ground would kiss back. Some laughed, then cried, then vomited, then apologized to everyone who saw.
+>
+> Someone asked whether this land has rules. A child answered, "_Pick? Plant._"
+>
+> No one had a better answer.
+>
+> ***
+>
+> Message From a Small Board...
+>
+> Melting Date: January 28, 2023 (January 28, 2023 B.M.)
+>
+> Source: A board at the side of the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> Subject: Order of descent.
+>
+> Message:\
+> The living step down first. The injured step down before those pretending to be strong.
+>
+> Do not let children loose.
+>
+> Do not let the records get wet again, poor things.
+>
+> Food is counted. Seeds are counted twice.
+>
+> Objects whose function is unknown must not be thrown away immediately.
+>
+> Do not step on the piece of sail marked [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md).
+>
+> Do not use the [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) board as a banana mat.
+>
+> If confused, ask [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). If [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) gives different answers, it means the question is good.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 28, 2023 (January 28, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: The ark has finished being an ark.
+>
+> Message:\
+> After everything that had to be unloaded had been unloaded, [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) released a sound that made everyone stop speaking.
+>
+> Not an explosion. Not an angry fracture. Not the sound of a defeated object. More like a long breath from something that was finally allowed to stop forcing itself to be strong.
+>
+> Some passengers tried to hold it up. They pulled wood. They tied ropes again. They called it like calling a body still able to be asked to stand. [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) raised his hand. The women guarding the banana trees said, "_Do not force what has carried you to keep becoming home only because you do not yet know how to thank the wreckage._"
+>
+> Then they stopped. The ark collapsed slowly. It did not sink. It did not disappear. It did not lose. It had finished being an ark.
+>
+> I write that sentence carefully because one day there may be parts of this wreckage that still have to perform another duty. But today, do not ask it to become dwelling place, government, kitchen, pen, fortress, voting room, and prayer all at once.
+>
+> Today, let the ark become witness. Tomorrow, we will think about how to thank the wreckage of that ark.
+>
+> ***
+>
+> Folded Banana Leaf...
+>
+> Melting Date: January 28, 2023 (January 28, 2023 B.M.)
+>
+> Source: No one admits writing it.
+>
+> Subject: 2020???
+>
+> Message:\
+> At the edge of the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), someone wrote the number **2020** on a banana leaf. Then folded the leaf. Then slipped it among the notes of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> When asked, every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) pointed at another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+>
+> This does not help. But that is how we are.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 29, 2023 (January 29, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: Do not count all [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) today.
+>
+> Message:\
+> Some people are starting to count us again.
+>
+> Please do not.
+>
+> Not because numbers are not important. Numbers are very important. Numbers can save people from stories that are too confident. But numbers opened at the wrong time can make people stop seeing faces.
+>
+> For now, just remember this: 47 of us write because 47 of us first witnessed reflections that made ordinary notes not enough. Outside those 47, there are other voices, other bodies, other universes, and the same name with wounds that are not the same.
+>
+> Some have arrived. Some have not. Some perhaps never will.
+>
+> Do not force this section to become a list. This is the farmers' section. Even mystery must wait for its season.
+>
+> ***
+>
+> Message From a Woman...
+>
+> Melting Date: January 29, 2023 (January 29, 2023 B.M.)
+>
+> Location: [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)
+>
+> Subject: Farmers are not those who arrived here first.
+>
+> Message:\
+> Many people ask when they may be called farmers.
+>
+> I wanted to answer after breakfast. They asked before breakfast. That is why my first answer may be a little fierce.
+>
+> Farmers are not those who arrived here first. The first to arrive may only be the first to be hungry.
+>
+> Farmers are not those who pick the most. Those who pick the most may only be the quickest to finish everything.
+>
+> Farmers are not those who shout the loudest that this land is theirs. Land that has just survived melting does not need a new master.
+>
+> Farmers are those who know that fruit is not the end of the tree.
+>
+> Farmers are those who still return after being full.
+>
+> Farmers are those who build granaries not to hide surplus, but to delay ego.
+>
+> Farmers are those who can watch children eat bananas without immediately calculating profit.
+>
+> Farmers are those who, when they are wrong, record their wrongness before turning it into tradition.
+>
+> If you want to stay, do not begin by asking which part belongs to you. Begin by asking which part you can care for without immediately naming it yours.
+>
+> If that question makes you uncomfortable, good. The land was also uncomfortable the first time it was stepped on by someone who had just stopped drowning.
+>
+> ***
+>
+> Second Loudspeaker Horn...
+>
+> Melting Date: January 30, 2023 (January 30, 2023 B.M.)
+>
+> Sender: [**ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+>
+> Subject: The second loudspeaker horn is useful.
+>
+> Message:\
+> The second loudspeaker horn is useful. I just want that recorded.
+>
+> Everyone who used to ignore me is now pretending to be busy lifting bananas.
+>
+> It is fine. I forgive them loudly.
+>
+> The first loudspeaker horn faces the sea. The second loudspeaker horn faces the land.
+>
+> Because after the ark arrives, messages no longer need only to be sent to the sea. Messages also need to be sent to people who are already standing but have not yet heard one another.
+>
+> This is the first lesson after the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md): a vast land can make people lost without drowning.
+>
+> ***
+>
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+>
+> Melting Date: January 31, 2023 (January 31, 2023 B.M.)
+>
+> Recorder: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
+>
+> Subject: After the ark, we learned to stand.
+>
+> Message:\
+> Previously I closed the note about the door without closing the universe. This time I will close the note about the farmers without closing the land. Or maybe close the note about the land without closing the farmers. I forgot which one sounds more mysterious. If you are confused, do not worry. Some mysteries are only sentences that have not had breakfast.
+>
+> It has been three days since [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) stranded itself at [**BANANOW LAND Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+>
+> The word "stranded" still feels the most honest.
+>
+> "Docked" is too neat.
+>
+> "Arrived" is too brief.
+>
+> "Saved" is too fast.
+>
+> The ark came like something that had carried too much life and finally found a place to set it down without feeling guilty. After that, everyone must learn a new form of safety. On the ark, safety meant staying on top. In [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), safety begins to mean knowing when to step down, when to plant, when to share, when to be silent, and when not to touch someone else's granary even though you feel very helpful.
+>
+> The passengers are still often called passengers. That is natural. Old names do not immediately come off just because feet touch the ground. Some still sleep near the ark wreckage. Some still keep ropes under their heads. Some walk too far just to make sure the land does not suddenly end. Some learn to plant, then feel disappointed because plants do not grow as fast as announcements. Some begin to ask whether becoming a farmer has a vote.
+>
+> The children laughed.
+>
+> That is a good enough answer for now.
+>
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is not fully understood by us yet. Maybe it truly is a super-land. Maybe it is the new body of [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) that has become one. Maybe the old maps are only wet pages of something too wide to be read by one ark. But we do not need to understand the entire body of the land before learning not to damage the part we stand on today.
+>
+> That may be the first lesson of the farmers.
+>
+> Not everything discovered must be immediately explained. Not everything fertile must be immediately counted. Not everything wide must be immediately controlled. Not every ripe fruit must be immediately consumed.
+>
+> Leave shoots. Plant back. Care for what grows. Share what is enough. Record what is wrong.
+>
+> Do not laugh too loudly at someone who is just learning to stand, because perhaps yesterday you too vomited after kissing the ground.
+>
+> And if someone is still calling from the vast ocean waves of [**THE MELTING LAND**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), do not first ask whether they are worthy to become farmers. Throw the rope. Ask their name after they are no longer drowning.
 
 ***
 

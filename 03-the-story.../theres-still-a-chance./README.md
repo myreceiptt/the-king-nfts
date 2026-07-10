@@ -875,7 +875,7 @@ coverY: 0
 >
 > One transmission called it:
 >
-> when humans no longer need [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) to do evil, [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to feel almost like humans. Or humans begin to feel almost like [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)!?!?
+> When humans no longer need [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) to do evil, [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to feel almost like humans. Or humans begin to feel almost like [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)!?!?
 >
 > ***
 >
@@ -994,7 +994,7 @@ coverY: 0
 >
 > This is another fringe in theory:
 >
-> maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) do not become good because they are forgiven. Maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to retire when evil no longer needs them.
+> Maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) do not become good because they are forgiven. Maybe [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) begin to retire when evil no longer needs them.
 >
 > We debated whether the [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) could be near [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
@@ -1018,7 +1018,7 @@ coverY: 0
 >
 > I do not know whether allowing the [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) near the ark was wisdom or madness. But I know this:
 >
-> rejecting all broken beings does not automatically create a clean world. Sometimes it only hides the corruption outside the wall until it learns how to return as a cleaner flag.
+> Rejecting all broken beings does not automatically create a clean world. Sometimes it only hides the corruption outside the wall until it learns how to return as a cleaner flag.
 >
 > The first [**Retired Satan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) we allowed to stay near the ark was [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Not in the sleeping area. Not near food. Not near water. Not near maps. Not near [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Not near [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) without witnesses.
 >
@@ -1026,25 +1026,25 @@ coverY: 0
 >
 > Its first work was not to tempt us. Its first work was to name the shape of danger before danger found a respectable name.
 >
-> When someone said, "_We must control the food for safety,_"
+> When someone said, "_We must control the food for safety._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered, "_Listen. Control is wearing safety's mask._"
 >
-> When someone said, "_We must silence panic for unity,_"
+> When someone said, "_We must silence panic for unity._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered, "_Listen. Unity is asking for a mouth gag._"
 >
-> When someone said, "_We must protect the ark by becoming something feared,_"
+> When someone said, "_We must protect the ark by becoming something feared._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered, "_Listen. Fear is trying to become government._"
 >
-> And when someone said, "_We are the good side because we survived,_"
+> And when someone said, "_We are the good side because we survived._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered nothing. It only laughed once. Then it cried.
 >
 > I still do not know which part was more frightening. This is what I learned:
 >
-> good and bad may not be as solid as the old land pretended to be. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), even morality can lose its ground.
+> Good and bad may not be as solid as the old land pretended to be. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), even morality can lose its ground.
 >
 > I do not write this as physics. I write this as a metaphor borrowed from matter. Atoms do not know virtue or sin. Electrons carry negative charge. Protons carry positive charge. Neutrons carry no electric charge. Stability does not emerge because one side declares itself holy. Stability emerges from configuration, relation, distance, energy, exchange, sharing, and strange rules that allow particles to continue existing without collapsing into one another.
 >
@@ -1058,7 +1058,7 @@ coverY: 0
 >
 > This is another fringe in theory:
 >
-> when everything melts, even hell may send refugees. And if those refugees can no longer work as [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), perhaps they must be recorded as something else: [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
+> Khen everything melts, even hell may send refugees. And if those refugees can no longer work as [**Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), perhaps they must be recorded as something else: [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md).
 
 ***
 

@@ -2335,13 +2335,13 @@ coverY: 0
 > Subjek: Teluk ini seperti mulut.
 >
 > Pesan:\
-> Aku menemukan teluk besar. Bentuknya seperti daratan yang sedang menahan sesuatu agar tidak keluar sekaligus. Di tepinya banyak sisa benda dari dunia lama. Kayu. Kain. Mainan. Tulang. Botol. Potongan logam. Tulisan yang hanya tinggal setengah huruf.
+> Aku menemukan teluk besar. Bentuknya seperti daratan yang sedang menahan sesuatu agar tidak keluar sekaligus. Di tepinya banyak sisa benda dari dunia lama. Kayu. Kain. Guci. Laras senapan. Mainan. Tulang. Panci. Wajan. Botol. Potongan logam. Tulisan "laras slendro" yang hanya tinggal setengah huruf.
 >
 > Kami hampir menyebut semuanya harta. Lalu hampir menyebut semuanya sampah. Keduanya salah.
 >
 > Di sini, sisa bisa menjadi bahan. Tapi kalau semua sisa langsung disebut bahan, kita lupa bahwa beberapa di antaranya mungkin pernah menjadi rumah seseorang.
 >
-> Kami menaruh beberapa di tempat kering. Kami belum tahu untuk apa. Kami hanya tahu: jangan buang terlalu cepat.
+> Kami menaruh beberapa di tempat kering. Kami belum tahu untuk apa. Kami hanya tahu: jangan buang terlalu cepat, mungkin kami hanya belum selaras.
 >
 > ***
 >
@@ -2355,6 +2355,8 @@ coverY: 0
 >
 > Pesan:\
 > Aku berjalan tiga hari. Tanah belum habis. Aku berjalan bukan untuk mencari sesuatu. Aku berjalan karena sombong. Aku ingin menjadi orang pertama yang tahu ukuran daratan ini.
+>
+> Andai saja sekociku adalah kapalnya suwar, maksudku kapal suar yang berfungsi layaknya mercusuar, yang memandu agar tidak tersesat dan tetap di jalur aman.
 >
 > Pada hari kedua, aku lupa jalan pulang. Pada hari ketiga, seorang anak menunjukku dan berkata, "*Om itu tersesat di halaman sendiri.*"
 >

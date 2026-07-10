@@ -399,7 +399,7 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> Some vessels answered it. Some followed it. Some only watched it from far away. Some may have rejected it. But the message had already become part of the wind. Once a message enters the wind, no Captain can fully command where it goes.
+> Some vessels answered it. Some followed it. Some only watched it from far away. Some may have rejected it. But the message had already become part of the wind. Once a message enters the wind, no **Captain** can fully command where it goes.
 >
 > Then the rabbits appeared. At first, I thought I saw a small creature jumping between broken boards. Then another one appeared on a floating tire. Then another one leaped from the remains of a roof to a drifting door. Then one landed on the outer side of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), shook some mud from its feet, looked at us, and jumped away again as if the disaster was only a game it had not yet lost.
 >

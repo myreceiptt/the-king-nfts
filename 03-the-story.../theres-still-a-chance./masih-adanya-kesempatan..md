@@ -400,7 +400,7 @@ coverY: 0
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
-> Beberapa kendaraan penyelamat menjawabnya. Beberapa mengikutinya. Beberapa hanya memperhatikannya dari jauh. Beberapa mungkin menolaknya. Tapi pesan itu sudah menjadi bagian dari angin. Setelah sebuah pesan masuk ke dalam angin, tidak ada Kapten yang bisa sepenuhnya memerintah ke mana ia harus pergi.
+> Beberapa kendaraan penyelamat menjawabnya. Beberapa mengikutinya. Beberapa hanya memperhatikannya dari jauh. Beberapa mungkin menolaknya. Tapi pesan itu sudah menjadi bagian dari angin. Setelah sebuah pesan masuk ke dalam angin, tidak ada **Kapten** yang bisa sepenuhnya memerintah ke mana ia harus pergi.
 >
 > Lalu kelinci-kelinci itu muncul. Awalnya, aku mengira melihat makhluk kecil melompat di antara papan-papan yang patah. Lalu muncul yang lain di atas ban yang mengapung. Lalu yang lain melompat dari sisa atap menuju pintu yang hanyut. Lalu satu di antaranya mendarat di sisi luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), mengibaskan lumpur dari kakinya, menatap kami, lalu melompat pergi lagi seolah-olah bencana ini hanyalah sebuah permainan yang belum berhasil mengalahkannya.
 >

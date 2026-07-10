@@ -876,7 +876,7 @@ coverY: 0
 >
 > Salah satu transmisi menyebutnya:
 >
-> ketika manusia tidak lagi membutuhkan [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) untuk berbuat jahat, [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai terasa hampir seperti manusia. Atau manusia yang mulai terasa hampir seperti [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)!?!?
+> Ketika manusia tidak lagi membutuhkan [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) untuk berbuat jahat, [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai terasa hampir seperti manusia. Atau manusia yang mulai terasa hampir seperti [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)!?!?
 >
 > ***
 >
@@ -995,7 +995,7 @@ coverY: 0
 >
 > Ini adalah keanehan lain dalam teori:
 >
-> mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak menjadi baik karena mereka diampuni. Mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai pensiun ketika kejahatan tidak lagi membutuhkan mereka.
+> Mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak menjadi baik karena mereka diampuni. Mungkin [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mulai pensiun ketika kejahatan tidak lagi membutuhkan mereka.
 >
 > Kami berdebat apakah para [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) boleh berada di dekat [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
@@ -1019,7 +1019,7 @@ coverY: 0
 >
 > Aku tidak tahu apakah mengizinkan para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) di dekat bahtera adalah kebijaksanaan atau kegilaan. Tapi aku tahu ini:
 >
-> menolak semua makhluk yang rusak tidak otomatis menciptakan dunia yang bersih. Kadang itu hanya menyembunyikan kerusakan di luar dinding sampai ia belajar kembali sebagai bendera yang lebih bersih.
+> Menolak semua makhluk yang rusak tidak otomatis menciptakan dunia yang bersih. Kadang itu hanya menyembunyikan kerusakan di luar dinding sampai ia belajar kembali sebagai bendera yang lebih bersih.
 >
 > [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang kami izinkan tinggal di dekat bahtera adalah [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan di area tidur. Bukan di dekat makanan. Bukan di dekat air. Bukan di dekat peta. Bukan di dekat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Bukan di dekat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) tanpa saksi.
 >
@@ -1027,25 +1027,25 @@ coverY: 0
 >
 > Pekerjaan pertamanya bukan menggoda kami. Pekerjaan pertamanya adalah menamai bentuk bahaya sebelum bahaya menemukan nama yang terhormat.
 >
-> Ketika seseorang berkata, "_Kita harus mengendalikan makanan demi keselamatan,_"
+> Ketika seseorang berkata, "_Kita harus mengendalikan makanan demi keselamatan._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berbisik, "_Dengar. Kendali sedang memakai topeng keselamatan._"
 >
-> Ketika seseorang berkata, "_Kita harus membungkam kepanikan demi persatuan,_"
+> Ketika seseorang berkata, "_Kita harus membungkam kepanikan demi persatuan._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berbisik, "_Dengar. Persatuan sedang meminta penyumpal mulut._"
 >
-> Ketika seseorang berkata, "_Kita harus melindungi bahtera dengan menjadi sesuatu yang ditakuti,_"
+> Ketika seseorang berkata, "_Kita harus melindungi bahtera dengan menjadi sesuatu yang ditakuti._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berbisik, "_Dengar. Rasa takut sedang mencoba menjadi pemerintahan._"
 >
-> Dan ketika seseorang berkata, "_Kita adalah pihak yang baik karena kita selamat,_"
+> Dan ketika seseorang berkata, "_Kita adalah pihak yang baik karena kita selamat._"
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak berbisik apa pun. Ia hanya tertawa sekali. Lalu ia menangis.
 >
 > Aku masih tidak tahu bagian mana yang lebih menakutkan. Inilah yang kupelajari:
 >
-> baik dan buruk mungkin tidak sekokoh daratan lama berpura-pura menjadi. Di [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), bahkan moralitas dapat kehilangan pijakannya.
+> Baik dan buruk mungkin tidak sekokoh daratan lama berpura-pura menjadi. Di [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), bahkan moralitas dapat kehilangan pijakannya.
 >
 > Aku tidak menulis ini sebagai fisika. Aku menulis ini sebagai metafora yang dipinjam dari materi. Atom tidak mengenal kebajikan atau dosa. Elektron membawa muatan negatif. Proton membawa muatan positif. Neutron tidak membawa muatan listrik. Kestabilan tidak muncul karena satu sisi menyatakan dirinya suci. Kestabilan muncul dari konfigurasi, relasi, jarak, energi, pertukaran, berbagi, dan aturan-aturan aneh yang memungkinkan partikel-partikel tetap ada tanpa saling runtuh.
 >
@@ -1059,7 +1059,7 @@ coverY: 0
 >
 > Ini adalah keanehan lain dalam teori:
 >
-> ketika semuanya meleleh, bahkan neraka mungkin mengirim pengungsi. Dan jika para pengungsi itu tidak lagi dapat bekerja sebagai [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), mungkin mereka harus dicatat sebagai sesuatu yang lain. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)
+> Ketika semuanya meleleh, bahkan neraka mungkin mengirim pengungsi. Dan jika para pengungsi itu tidak lagi dapat bekerja sebagai [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md), mungkin mereka harus dicatat sebagai sesuatu yang lain. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)
 
 ***
 

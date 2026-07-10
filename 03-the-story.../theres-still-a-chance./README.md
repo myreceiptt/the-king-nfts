@@ -92,7 +92,7 @@ coverY: 0
 >
 > **Mr. BROY** found himself unable to find peace even though he had drunk liters of **Nameless Liquid**. So, **Mr. BROY** decided to build an ark that could survive when a unique phenomenon of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) on Earth occurred.
 >
-> **Mr. BROY** named the ark [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) because it was inspired by the shape of [**BREAD (ROTI)**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti/) in a [**LOGO PABRIK ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti/) that resembles an ark for an emergency, a condition that seriously trapped, stuck, squeezed until pinched.
+> **Mr. BROY** named the ark [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) because it was inspired by the shape of [**BREAD (ROTI)**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti/) in a [**BREADS FACTORY LOGO**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti/) that resembles an ark for an emergency, a condition that seriously trapped, stuck, squeezed until pinched.
 >
 > #### PSEUDONYMOUS INVITATION
 >

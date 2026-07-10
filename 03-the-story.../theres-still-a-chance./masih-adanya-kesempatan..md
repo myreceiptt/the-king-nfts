@@ -2124,7 +2124,7 @@ coverY: 0
 >
 > Pertanyaan itu terdengar pintar hanya jika kita lupa bahwa lumbung tidak membuka dirinya sendiri. Selalu ada tangan. Selalu ada percaya. Selalu ada kalimat yang membuat percaya merasa seperti kecerdasan.
 >
-> Di [**Semesta 0101**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), mungkin sesuatu seperti itu disebut dompet. Di [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), hari ini ia disebut lumbung. Jangan terlalu terpaku pada benda. Benda hanya memakai nama yang cocok dengan semestanya.
+> Di **Semesta 0101**, mungkin sesuatu seperti itu disebut dompet. Di [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), hari ini ia disebut lumbung. Jangan terlalu terpaku pada benda. Benda hanya memakai nama yang cocok dengan semestanya.
 >
 > Yang sama adalah ini: jika sesuatu menyimpan akses, nilai, benih, catatan, atau masa depan, maka sesuatu itu akan mengundang tanda palsu.
 >

@@ -364,7 +364,7 @@ coverY: 0
 >
 > That was when I began to understand that the message was not only traveling from ark to ark. It was also traveling through [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Around ten arks, ships, balloons, and other survival vessels answered us. They were not the same as us. Some carried artists. Some carried collectors. Some carried families. Some carried people who had never met each other before the disaster. Some carried those who had only one thing in common: they did not want the end of the world to become an excuse for more killing.
+> Around ten arks, ships, balloons, and other survival vessels answered us. They were not the same as us. Some carried artists. Some carried collectors. Some carried families. Some carried people who had never met each other before the disaster. Some carried those who had only one thing in common: They did not want the end of the world to become an excuse for more killing.
 >
 > We exchanged messages in every possible way. We agreed to move closer. We agreed to gather. We agreed to build something larger than each of us. But not all of them arrived.
 >
@@ -547,7 +547,7 @@ coverY: 0
 >
 > We received messages from outside [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) asking the same thing. Some came through broken radio calls. Some came through bottles. Some came scratched into plastic containers. Some were written on cloth tied to floating branches. Some were nothing but voices recorded on devices that still had a little battery left. All of them carried the same fear:
 >
-> **food was disappearing.**
+> **Food was disappearing.**
 >
 > Seeds were wet. Flour had spoiled. Rice had become mud. Salt had become too much and not enough at the same time. Fish no longer knew where water ended and land began. Birds became rare. The rabbits called [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) had already become a wound in our memory.
 >
@@ -645,7 +645,7 @@ coverY: 0
 >
 > So I kept the secret. I write it here because a log is not gossip. A log is a burden passed to the next **Captain**.
 >
-> To my successors: Protect the water. Protect the breeding. Protect those who cannot eat what others eat. Protect the agreement. Protect the difference between emergency and greed.
+> To my successors. Protect the water. Protect the breeding. Protect those who cannot eat what others eat. Protect the agreement. Protect the difference between emergency and greed.
 >
 > Outside, the messages became more desperate. Some vessels sent locations, asking us to come and save them. But the shape of Earth had changed. The old coordinates lied. The old maps drowned. Directions turned into guesses.
 >
@@ -740,13 +740,13 @@ coverY: 0
 >
 > In that closed room, they discovered the first rule:
 >
-> **liquid can become armor only when it is given shape, body, and intention.**
+> **Liquid can become armor only when it is given shape, body, and intention.**
 >
 > They drew small sketches using ink mixed with a trace of blood from the person who would wear the armor. They placed the sketches near water contaminated by **Nameless Liquid**. The sketches reacted. Some curled. Some hardened. Some dissolved. Some became useless dark sheets. Some tried to form small plates, gloves, masks, guards, straps, seals, boots, or tools. When the blood did not belong to the wearer, the armor refused the body. When someone tried to wear what was not theirs, it became heavy, then wet, then nothing but stained water.
 >
 > That was the second rule:
 >
-> **protection cannot be stolen without becoming only liquid again.**
+> **Protection cannot be stolen without becoming only liquid again.**
 >
 > [**ROTY BROI Passenger (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) laughed when he understood that rule. Then he cried. He said his old work had always been the opposite. In the old world, if a weapon was stolen, it still worked. If a bomb was stolen, it still exploded. If a machine of violence changed hands, it did not ask whether the hand was rightful. It only obeyed the trigger.
 >
@@ -778,7 +778,7 @@ coverY: 0
 >
 > That was the third rule:
 >
-> **the armor protects life, but it melts the intention to harm.**
+> **The armor protects life, but it melts the intention to harm.**
 >
 > It did not make the wearer holy. It did not erase anger. It did not remove fear. It did not make anyone wise. It only refused to become a clean path between evil intention and another living being's pain.
 >
@@ -802,7 +802,7 @@ coverY: 0
 >
 > It would become a rescue system. No [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) would be made without record. No [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) would be made without consent from the person whose blood was used. No [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) would be given for revenge. No [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) would be used to rule over the unarmored.
 >
-> Every [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) had to be tied to work that protected life: diving, repairing, carrying, cooking, breeding, healing, guarding water, guarding food, guiding children and old people from the vessels that had joined us, and protecting messengers who still carried [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) across danger.
+> Every [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) had to be tied to work that protected life, diving, repairing, carrying, cooking, breeding, healing, guarding water, guarding food, guiding children and old people from the vessels that had joined us, and protecting messengers who still carried [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md) across danger.
 >
 > Many sketches were drawn. Not all were formed. Some designs were rejected because they looked too much like weapons. Some designs failed because the wearer wanted power more than protection. Some designs dissolved because the blood and intention did not agree. Some designs were kept unfinished because [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_Not every possible armor deserves to be born._"
 >
@@ -814,7 +814,7 @@ coverY: 0
 >
 > Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_The body is the wallet. The blood is the signature. The intention is the key._"
 >
-> I wrote that down even though I did not fully understand it. Perhaps future Captains will.
+> I wrote that down even though I did not fully understand it. Perhaps future **Captains** will.
 >
 > What I know is this:
 >
@@ -830,9 +830,9 @@ coverY: 0
 >
 > I asked [**ROTY BROI Passenger (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) whether he felt redeemed. He said no. He said redemption sounded too clean. He said he did not want to wash his past away like dirt from skin. He wanted to keep remembering what his hands had once helped make, so his hands would not repeat themselves while everyone praised him for being useful. Then he touched the armor around his chest and said, "_This is not my forgiveness. This is my restraint._"
 >
-> That is another fringe in theory:
+> That is another fringe in theory.
 >
-> sometimes protection is not what allows a person to fight better.
+> Sometimes protection is not what allows a person to fight better.
 >
 > Sometimes protection is what prevents a person from becoming what they were trained to become.
 >

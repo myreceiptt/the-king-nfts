@@ -1931,7 +1931,7 @@ coverY: 0
 > Message:\
 > She is not [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> She said that first, as if she already knew that the people on the ark had started to form a bad habit: every woman found in the middle of a disaster was immediately suspected of being [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a variation of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a fragment of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), or [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had not admitted it yet. She looked at me and said, "_If you call every woman Amanda, one day you will forget to ask my name._"
+> She said that first, as if she already knew that the people on the ark had started to form a bad habit: every woman found in the middle of a disaster was immediately suspected of being [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a variation of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a fragment of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), or [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had not admitted it yet. She looked at me and said, "_If you call every woman [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), one day you will forget to ask my name._"
 >
 > I had no good answer.
 >
@@ -1943,7 +1943,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: December 24, 2022 (December 24, 2022 B.M.)
 >
@@ -1985,7 +1985,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: December 26, 2022 (December 26, 2022 B.M.)
 >
@@ -2027,7 +2027,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: December 28, 2022 (December 28, 2022 B.M.)
 >
@@ -2065,7 +2065,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: December 30, 2022 (December 30, 2022 B.M.)
 >
@@ -2107,7 +2107,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 1, 2023 (January 1, 2023 B.M.)
 >
@@ -2120,7 +2120,7 @@ coverY: 0
 >
 > That question sounds smart only if we forget that a granary does not open itself. There is always a hand. There is always trust. There is always a sentence that makes trust feel like intelligence.
 >
-> In [**The 0101 Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), perhaps something like that is called a wallet. In [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), today it is called a granary. Do not fixate too much on the object. Objects only wear names that fit their universes.
+> In the **0101 Universe**, perhaps something like that is called a wallet. In [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), today it is called a granary. Do not fixate too much on the object. Objects only wear names that fit their universes.
 >
 > What stays the same is this: if something stores access, value, seeds, notes, or the future, then that thing will invite false signs.
 >
@@ -2200,7 +2200,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 6, 2023 (January 6, 2023 B.M.)
 >
@@ -2242,11 +2242,11 @@ coverY: 0
 >
 > Turns out I am only an old human with a new place to stand.
 >
-> Please do not write my name.
+> Please do not write my name, **Kainde**.
 >
 > ***
 >
-> Voice From the West...
+> Voice From the House Without an Address...
 >
 > Melting Date: January 8, 2023 (January 8, 2023 B.M.)
 >
@@ -2263,7 +2263,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 9, 2023 (January 9, 2023 B.M.)
 >
@@ -2280,11 +2280,11 @@ coverY: 0
 >
 > I only write one thing: land that can make children ask about a yard may be more dangerous to sadness than land that only shows off mountains.
 >
-> That's all. I am leaving. Do not miss me too much. Later this note will become not objective. Since when has [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) been objective anyway?
+> That's all. I am leaving. Do not miss me too much. Later this log will become not objective. Since when has [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) been objective anyway?
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 10, 2023 (January 10, 2023 B.M.)
 >
@@ -2335,7 +2335,7 @@ coverY: 0
 > Subject: This bay is like a mouth.
 >
 > Message:\
-> I found a large bay. Its shape is like land holding something back so it does not come out all at once. At its edge there are many remains from the old world. Wood. Cloth. Toys. Bones. Bottles. Pieces of metal. Writing that is only half a letter left.
+> I found a large bay. Its shape is like land holding something back so it does not come out all at once. At its edge there are many remains from the old world. Wood. Cloth. Jars. Gun barrels. Toys. Bones. Pots. Pans. Bottles. Pieces of metal. The writing "laras slendro" with only half the letters left.
 >
 > We almost called everything treasure. Then almost called everything trash. Both were wrong.
 >
@@ -2362,7 +2362,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 14, 2023 (January 14, 2023 B.M.)
 >
@@ -2379,7 +2379,7 @@ coverY: 0
 >
 > All of them thought they were standing in different places. Maybe that is true. But different does not always mean separate.
 >
-> The wind patterns connect. The smell of the soil connects. The bird mentioned by [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) appears in the note of [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). The shadow of the mountain told by [**ROTY BROI Passenger (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is visible very far away from the note of [**ROTY BROI Passenger (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). The banana variety found by [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) appears again as dried peel in a bottle sent from the bay.
+> The wind patterns connect. The smell of the soil connects. The bird mentioned by [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) appears in the log of [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). The shadow of the mountain told by [**ROTY BROI Passenger (ID 361)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is visible very far away from the log of [**ROTY BROI Passenger (ID 37)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). The banana variety found by [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) appears again as dried peel in a bottle sent from the bay.
 >
 > If three people stand on three different shores and all claim to have found the first island, maybe the problem is not the number of islands. Maybe their feet are too small to understand the size of the land.
 >
@@ -2400,7 +2400,7 @@ coverY: 0
 >
 > Sometimes the first entrance is enough to make people come, but not enough to keep them from getting lost after arriving. Sometimes the first invitation is enough to call, but not enough to guard. Sometimes the old body of a place is too small for the intention beginning to grow inside it. So a new body is made.
 >
-> Not erasing the old. Not pretending no mistake ever happened. Not starting from zero like someone ashamed to have a history. Only making a clearer door, stronger knots, and a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) that can receive more feet without making the land panic.
+> Not erasing the old. Not pretending no mistake ever happened. Not starting from zero like someone ashamed to have a history. Only making a clearer door, stronger knots, and a **Pier** that can receive more feet without making the land panic.
 >
 > If this sounds like a contract, do not rush to call it a contract. If this sounds like an event, do not rush to call it an event. If this sounds like a plan, do not rush to call it a plan. Some universes use different words for the same thing: repairing the road so those who come do not mistake the door for the granary.
 >
@@ -2433,7 +2433,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 17, 2023 (January 17, 2023 B.M.)
 >
@@ -2450,7 +2450,7 @@ coverY: 0
 >
 > ***
 >
-> Message From a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)...
+> Message From a **Pier**...
 >
 > Melting Date: January 18, 2023 (January 18, 2023 B.M.)
 >
@@ -2459,13 +2459,13 @@ coverY: 0
 > Subject: We are building a place to dock without making the land panic.
 >
 > Message:\
-> We started building a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+> We started building a **Pier**.
 >
 > Do not imagine a great harbor. Do not imagine a magnificent gate. Do not imagine anyone's statue, especially mine. If one day there is a statue of me here, please push it into the sea before it learns to speak.
 >
-> This [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is made from the remains of lifeboats, wood dragged by the waves, stones that can be arranged, rope from tree fiber, and some parts collected by [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) while continuing to explain that the loudspeaker horn must be placed higher. He is right, but he too often says that he is right while doubting if he is the only one who is right.
+> This **Pier** is made from the remains of lifeboats, wood dragged by the waves, stones that can be arranged, rope from tree fiber, and some parts collected by [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) while continuing to explain that the loudspeaker horn must be placed higher. He is right, but he too often says that he is right while doubting if he is the only one who is right.
 >
-> This [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is not made to make everyone come. This [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is made so arrival does not immediately become damage.
+> This **Pier** is not made to make everyone come. This **Pier** is made so arrival does not immediately become damage.
 >
 > Beside it there is a place to wash wounds. Behind it there is a granary. Not too close. The female survivor with me insisted. She said new arrivals should not be welcomed first by fruit. Welcome them first with water, a name, and the question of whether they can still stand without lying.
 >
@@ -2488,13 +2488,13 @@ coverY: 0
 > Message:\
 > The loudspeaker horn I made caught something from the sea. I have not seen [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) yet, but the loudspeaker horn has already been vibrating like someone hearing their name called from the past.
 >
-> [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) said we must prepare the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). The female survivor said we must prepare water. The children said we must prepare bananas. I said we must prepare a second loudspeaker horn.
+> [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) said we must prepare the **Pier**. The female survivor said we must prepare water. The children said we must prepare bananas. I said we must prepare a second loudspeaker horn.
 >
 > Everyone ignored me. But I still made the second loudspeaker horn. History will be grateful. Or at least history will hear louder.
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 21, 2023 (January 21, 2023 B.M.)
 >
@@ -2505,7 +2505,7 @@ coverY: 0
 > Message:\
 > I am almost certain. I write "almost" so [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) does not stare at me as if I have just opened the granary for a false sign.
 >
-> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) may not be an ordinary island. It may be a large body of many [**Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) that have become one. Not becoming one like a kingdom conquering territory. Becoming one like old wounds sticking to each other, not always beautiful, but strong enough to hold feet.
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) may not be an ordinary island. It may be a large body of many fragments of [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md) that have become one. Not becoming one like a kingdom conquering territory. Becoming one like old wounds sticking to each other, not always beautiful, but strong enough to hold feet.
 >
 > Its mountains are like stitches. Its bays are like held breaths. Its beaches are like former borders that forgot to be borders.
 >
@@ -2519,11 +2519,11 @@ coverY: 0
 >
 > ***
 >
-> Message Toward the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)...
+> Message Toward the **Pier**...
 >
 > Melting Date: January 22, 2023 (January 22, 2023 B.M.)
 >
-> Sender: [**ROTY BROI Passenger (ID 121)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> Sender: [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Translator: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
@@ -2563,7 +2563,7 @@ coverY: 0
 >
 > ***
 >
-> Message From a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)...
+> Message From a **Pier**...
 >
 > Melting Date: January 25, 2023 (January 25, 2023 B.M.)
 >
@@ -2572,7 +2572,7 @@ coverY: 0
 > Subject: We are not finished, but you may come.
 >
 > Message:\
-> The [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) is not finished. If you wait for us to finish it perfectly, perhaps you will arrive when we are already too busy arguing about the color of the boards. So come.
+> The **Pier** is not finished. If you wait for us to finish it perfectly, perhaps you will arrive when we are already too busy arguing about the color of the boards. So come.
 >
 > There is a path down. There is water. There is a granary, but do not go there immediately.
 >
@@ -2584,11 +2584,11 @@ coverY: 0
 >
 > There is a place to record names. Not to make a list of owners. To make sure no one arrives and then disappears as if they never came out of the waves.
 >
-> Come to the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). Do not come as conquerors. Do not come as first buyers. Do not come as people who want to give new names to everything that has already learned to live before you arrived. Come as people who still have hands to help.
+> Come to the **Pier**. Do not come as conquerors. Do not come as first buyers. Do not come as people who want to give new names to everything that has already learned to live before you arrived. Come as people who still have hands to help.
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 26, 2023 (January 26, 2023 B.M.)
 >
@@ -2597,7 +2597,7 @@ coverY: 0
 > Subject: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) sounds again, but do not panic.
 >
 > Message:\
-> The message of [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) today sounded like [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) pretending to be a [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) board.
+> The message of [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) today sounded like [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) pretending to be a **Pier** board.
 >
 > I know that sentence will not help anyone who wants clean documentation. But that is how it sounded.
 >
@@ -2630,7 +2630,7 @@ coverY: 0
 >
 > Prepare ropes. Prepare water. Prepare name boards.
 >
-> Keep the children away from the side of the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+> Keep the children away from the side of the **Pier**.
 >
 > No, not too far. They must see. But hold their hands.
 >
@@ -2640,7 +2640,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 28, 2023 (January 28, 2023 B.M.)
 >
@@ -2651,13 +2651,13 @@ coverY: 0
 > Message:\
 > Today [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) arrived at [**BANANOW LAND Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >
-> I do not write "docked" yet, because what happened was not as elegant as that word. The ark was more like stranding itself with the remaining strength it had borrowed for too long from prayers, ropes, wood, and stubbornness. Waves pushed from behind. The [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) held from the front. The first rope snapped. The second rope almost dragged three people. The third rope succeeded, perhaps because the children also shouted as if a rope could feel ashamed if it failed in front of them.
+> I do not write "docked" yet, because what happened was not as elegant as that word. The ark was more like stranding itself with the remaining strength it had borrowed for too long from prayers, ropes, wood, and stubbornness. Waves pushed from behind. The **Pier** held from the front. The first rope snapped. The second rope almost dragged three people. The third rope succeeded, perhaps because the children also shouted as if a rope could feel ashamed if it failed in front of them.
 >
-> The people on the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) did not line up like soldiers.
+> The people on the **Pier** did not line up like soldiers.
 >
 > Thank goodness.
 >
-> They gathered like a kitchen that suddenly received too many guests. Some carried water. Some carried bananas. Some carried cloth. Some carried boards. Some carried notes. Some carried nothing but two trembling hands, and on that day even two empty hands felt like important tools.
+> They gathered like a kitchen that suddenly received too many guests. Some carried water. Some carried bananas. Some carried cloth. Some carried boards. Some carried records. Some carried nothing but two trembling hands, and on that day even two empty hands felt like important tools.
 >
 > The passengers stepped down slowly.
 >
@@ -2673,7 +2673,7 @@ coverY: 0
 >
 > Melting Date: January 28, 2023 (January 28, 2023 B.M.)
 >
-> Source: A board at the side of the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
+> Source: A board at the side of the **Pier**.
 >
 > Subject: Order of descent.
 >
@@ -2688,7 +2688,7 @@ coverY: 0
 >
 > Objects whose function is unknown must not be thrown away immediately.
 >
-> Do not step on the piece of sail marked [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md).
+> Do not step on the sail fragment marked [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md).
 >
 > Do not use the [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) board as a banana mat.
 >
@@ -2696,7 +2696,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 28, 2023 (January 28, 2023 B.M.)
 >
@@ -2705,7 +2705,7 @@ coverY: 0
 > Subject: The ark has finished being an ark.
 >
 > Message:\
-> After everything that had to be unloaded had been unloaded, [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) released a sound that made everyone stop speaking.
+> After everything that had to be unloaded had finished being unloaded, [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) released a sound that made everyone stop speaking.
 >
 > Not an explosion. Not an angry fracture. Not the sound of a defeated object. More like a long breath from something that was finally allowed to stop forcing itself to be strong.
 >
@@ -2728,7 +2728,7 @@ coverY: 0
 > Subject: 2020???
 >
 > Message:\
-> At the edge of the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), someone wrote the number **2020** on a banana leaf. Then folded the leaf. Then slipped it among the notes of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
+> At the edge of the **Pier**, someone wrote the number **2020** on a banana leaf. Then folded the leaf. Then slipped it among the records of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
 > When asked, every [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) pointed at another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
@@ -2736,7 +2736,7 @@ coverY: 0
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 29, 2023 (January 29, 2023 B.M.)
 >
@@ -2751,7 +2751,7 @@ coverY: 0
 >
 > Not because numbers are not important. Numbers are very important. Numbers can save people from stories that are too confident. But numbers opened at the wrong time can make people stop seeing faces.
 >
-> For now, just remember this: 47 of us write because 47 of us first witnessed reflections that made ordinary notes not enough. Outside those 47, there are other voices, other bodies, other universes, and the same name with wounds that are not the same.
+> For now, just remember this: 47 of us write because 47 of us first witnessed reflections that made ordinary records not enough. Outside those 47, there are other voices, other bodies, other universes, and the same name with wounds that are not the same.
 >
 > Some have arrived. Some have not. Some perhaps never will.
 >
@@ -2805,7 +2805,7 @@ coverY: 0
 > Message:\
 > The second loudspeaker horn is useful. I just want that recorded.
 >
-> Everyone who used to ignore me is now pretending to be busy lifting bananas.
+> Everyone who once ignored me is now busy lifting bananas.
 >
 > It is fine. I forgive them loudly.
 >
@@ -2813,11 +2813,11 @@ coverY: 0
 >
 > Because after the ark arrives, messages no longer need only to be sent to the sea. Messages also need to be sent to people who are already standing but have not yet heard one another.
 >
-> This is the first lesson after the [**Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md): a vast land can make people lost without drowning.
+> This is the first lesson after the **Pier**: a vast land can make people lost without drowning.
 >
 > ***
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Note...
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
 > Melting Date: January 31, 2023 (January 31, 2023 B.M.)
 >
@@ -2826,7 +2826,7 @@ coverY: 0
 > Subject: After the ark, we learned to stand.
 >
 > Message:\
-> Previously I closed the note about the door without closing the universe. This time I will close the note about the farmers without closing the land. Or maybe close the note about the land without closing the farmers. I forgot which one sounds more mysterious. If you are confused, do not worry. Some mysteries are only sentences that have not had breakfast.
+> Previously I closed the log about the door without closing the universe. This time I will close the log about the farmers without closing the land. Or maybe close the log about the land without closing the farmers. I forgot which one sounds more mysterious. If you are confused, do not worry. Some mysteries are only sentences that have not had breakfast.
 >
 > It has been three days since [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) stranded itself at [**BANANOW LAND Pier**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md).
 >

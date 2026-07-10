@@ -564,9 +564,7 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata, "_Dapur bukan ruangan. Dapur adalah peradaban yang sedang berusaha untuk tidak memakan dirinya sendiri._"
 >
-> Kapsul-kapsul mereka semakin menipis. Diskusi mereka menjadi semakin panjang. Mereka menghancurkan apa yang tersisa. Mereka mengeringkan apa yang masih bisa dikeringkan. Mereka mencampur bubuk-bubuk. Mereka menguji hal-hal pahit. Mereka berdebat tentang bau, racun, garam, busuk, dan ingatan. Mereka mencoba membuat sesuatu yang bisa menggantikan makanan, tetapi semakin mereka mencoba, semakin jelas jadinya, "Kami tidak hanya membutuhkan sesuatu untuk ditelan."
->
-> Kami membutuhkan sesuatu yang bisa terus berlanjut.
+> Kapsul-kapsul mereka semakin menipis. Diskusi mereka menjadi semakin panjang. Mereka menghancurkan apa yang tersisa. Mereka mengeringkan apa yang masih bisa dikeringkan. Mereka mencampur bubuk-bubuk. Mereka menguji hal-hal pahit. Mereka berdebat tentang bau, racun, garam, busuk, dan ingatan. Mereka mencoba membuat sesuatu yang bisa menggantikan makanan, tetapi semakin mereka mencoba, semakin jelas jadinya. Kami tidak hanya membutuhkan sesuatu untuk ditelan. Kami membutuhkan sesuatu yang bisa terus berlanjut.
 >
 > Lalu pesan-pesan mulai berubah. Awalnya, pesan itu datang sebagai rumor. Lalu sebagai sinyal yang berulang. Lalu sebagai serpihan-serpihan yang terkonfirmasi dari berbagai arah.
 >
@@ -590,7 +588,7 @@ coverY: 0
 >
 > Bukan sekadar babi. Bukan hanya daging. Bukan hanya hewan yang terperangkap di bawah lumpur. Mereka menjadi panggilan dan jawaban. Tanda bahwa sesuatu yang hidup masih tersembunyi di bawah kematian permukaan.
 >
-> Tapi menemukan mereka tidak langsung menyelamatkan kami. Menemukan mereka hampir memecah kami. Perdebatannya menjadi lebih berat daripada penyelamannya. Sebagian penumpang berkata babi adalah sesuatu yang dilarang. Sebagian berkata bencana telah mengubah hukum bertahan hidup. Sebagian berkata keadaan darurat memperbolehkan apa yang ditolak hari-hari biasa. Sebagian berkata keyakinan tidak boleh ditulis ulang oleh rasa lapar. Sebagian berkata menolak satu-satunya sumber makanan yang dapat diperbarui akan mengubah ketaatan menjadi kematian massal. Sebagian berkata kami masih tidak berhak memutuskan selama mungkin masih ada satu [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang tersisa. Sebagian berkata justru itulah kesalahannya, "Kami sudah mengubah [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) menjadi makanan sebelum mengubahnya menjadi masa depan."
+> Tapi menemukan mereka tidak langsung menyelamatkan kami. Menemukan mereka hampir memecah kami. Perdebatannya menjadi lebih berat daripada penyelamannya. Sebagian penumpang berkata babi adalah sesuatu yang dilarang. Sebagian berkata bencana telah mengubah hukum bertahan hidup. Sebagian berkata keadaan darurat memperbolehkan apa yang ditolak hari-hari biasa. Sebagian berkata keyakinan tidak boleh ditulis ulang oleh rasa lapar. Sebagian berkata menolak satu-satunya sumber makanan yang dapat diperbarui akan mengubah ketaatan menjadi kematian massal. Sebagian berkata kami masih tidak berhak memutuskan selama mungkin masih ada satu [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang tersisa. Sebagian berkata justru itulah kesalahannya. Kami sudah mengubah [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) menjadi makanan sebelum mengubahnya menjadi masa depan.
 >
 > Selama berjam-jam, bahtera penuh dengan suara. Halal. Haram. Darurat. Keyakinan. Rasa lapar. Pembiakan. Rasa malu. Bertahan hidup. Kematian.
 >
@@ -600,13 +598,11 @@ coverY: 0
 >
 > Jadi kami berdiskusi. Kami berdebat. Kami mendengarkan. Kami gagal mendengarkan. Kami kembali ke diskusi.
 >
-> Kami bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Mereka tidak menjawab sebagai satu suara.
->
-> Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_Jangan meminta rasa lapar menjadi bermoral. Bangun sistem sebelum rasa lapar menjadi raja._"
+> Kami bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Mereka tidak menjawab sebagai satu suara. Satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_Jangan meminta rasa lapar menjadi bermoral. Bangun sistem sebelum rasa lapar menjadi raja._"
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata, "_Keadaan darurat tidak menghapus keyakinan. Keadaan darurat menguji apakah keyakinan bisa melindungi kehidupan tanpa berubah menjadi kekejaman._"
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain berkata, "_Jika kalian memakan semuanya, kalian mengakhiri cerita. Jika kalian membiakkan apa yang bisa hidup, kalian menulis halaman berikutnya._"
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain lagi berkata, "_Jika kalian memakan semuanya, kalian mengakhiri cerita. Jika kalian membiakkan apa yang bisa hidup, kalian menulis halaman berikutnya._"
 >
 > Lalu satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), yang sama dengan yang dulu pernah bertanya tentang [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang menggigit wortel dan memakai topi hot dog, berkata, "_Kalian sudah tahu apa yang terjadi ketika kalian tidak berpikir melewati makanan pertama._"
 >
@@ -636,7 +632,7 @@ coverY: 0
 >
 > Aku bertanya kepada mereka. Awalnya, mereka diam. Lalu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek berkata, "_Bahteramu tidak hanya membawa penyintas._"
 >
-> Aku bertanya apa lagi yang dibawanya. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain menjawab, "_Entah Air Apa._"
+> Aku bertanya apa lagi yang dibawanya. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain menjawab, "_**Entah Air Apa.**_"
 >
 > Aku paham sebelum dia mengatakan sisanya. Air daur ulang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) telah terkontaminasi jejak **Cairan Tanpa Nama**. Cairan dari negeri **Entah Air Apa**. Cairan yang dulu membawa kedamaian bagi mereka yang meminumnya. Cairan yang tidak bisa menyelamatkan **Pak BROY** dari ketakutan, tetapi mungkin bisa membantu bahtera menjaga sesuatu tetap hidup.
 >
@@ -646,9 +642,9 @@ coverY: 0
 >
 > Yang lain berkata, "_Air kedamaian harus menjadi infrastruktur, bukan kepanikan._"
 >
-> Yang lain berkata, "_Jaga ini antara Kapten dan para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sampai bahtera belajar melindungi sesuatu yang sedang melindunginya._"
+> Yang lain lagi berkata, "_Jaga ini antara **Kapten** dan para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sampai bahtera belajar melindungi sesuatu yang sedang melindunginya._"
 >
-> Jadi aku menjaga rahasia itu. Aku menuliskannya di sini karena catatan bukan gosip. Catatan adalah beban yang diteruskan kepada Kapten berikutnya.
+> Jadi aku menjaga rahasia itu. Aku menuliskannya di sini karena catatan bukan gosip. Catatan adalah beban yang diteruskan kepada **Kapten** berikutnya.
 >
 > Untuk para penerusku: Lindungi air. Lindungi pembiakan. Lindungi mereka yang tidak bisa memakan apa yang dimakan orang lain. Lindungi kesepakatan. Lindungi perbedaan antara keadaan darurat dan kerakusan.
 >
@@ -662,7 +658,7 @@ coverY: 0
 >
 > Kantong-kantong udara semakin kosong. Para pemburu semakin lelah. Para peternak gagal. Rasa lapar kembali ke mata.
 >
-> Inilah yang kupelajari: Makanan bukan hanya makanan. Makanan adalah hukum. Makanan adalah keyakinan. Makanan adalah perdebatan. Makanan adalah teknologi. Makanan adalah ingatan. Makanan adalah infrastruktur. Makanan adalah ekonomi pertama setelah berakhirnya daratan.
+> Inilah yang kupelajari. Makanan bukan hanya makanan. Makanan adalah hukum. Makanan adalah keyakinan. Makanan adalah perdebatan. Makanan adalah teknologi. Makanan adalah ingatan. Makanan adalah infrastruktur. Makanan adalah ekonomi pertama setelah berakhirnya daratan.
 >
 > Jika kami tidak bisa memproduksi makanan, kami akan mengonsumsi satu sama lain. Jika kami tidak bisa sepakat tentang makanan, suara kami akan berubah menjadi pisau. Jika kami tidak bisa melindungi sesuatu yang mampu terus hidup, keselamatan akan berakhir setelah satu kali makan.
 >
@@ -672,7 +668,7 @@ coverY: 0
 >
 > Dari bawah, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
-> Untuk semua penerusku, dan untuk semua yang membaca catatan ini. Jangan menunggu sampai rasa lapar menjadi Kapten kalian. Bangun sistem sebelum perut menulis hukum. Beri makan yang hidup tanpa membunuh masa depan.
+> Untuk semua penerusku, dan untuk semua yang membaca catatan ini. Jangan menunggu sampai rasa lapar menjadi **Kapten** kalian. Bangun sistem sebelum perut menulis hukum. Beri makan yang hidup tanpa membunuh masa depan.
 
 ***
 

@@ -563,9 +563,7 @@ coverY: 0
 >
 > Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_A kitchen is not a room. A kitchen is a civilization trying not to eat itself._"
 >
-> Their capsules ran low. Their discussions became longer. They crushed what remained. They dried what could still be dried. They mixed powders. They tested bitter things. They argued over smell, poison, salt, rot, and memory. They tried to make something that could replace food, but the more they tried, the clearer it became, "We did not only need something to swallow."
->
-> We needed something that could continue.
+> Their capsules ran low. Their discussions became longer. They crushed what remained. They dried what could still be dried. They mixed powders. They tested bitter things. They argued over smell, poison, salt, rot, and memory. They tried to make something that could replace food, but the more they tried, the clearer it became. We did not only need something to swallow. We needed something that could continue.
 >
 > Then the messages changed. At first, they came as rumor. Then as repeated signal. Then as confirmed fragments from many directions.
 >
@@ -575,9 +573,7 @@ coverY: 0
 >
 > Inside some of those air pockets, pigs had survived. Some were alone. Some were in groups. Some looked like farm pigs. Some looked like wild pigs. Some looked as if they had become something between memory and mud.
 >
-> The first discovery did not come from a formal search. It came from a shout. Those who stayed above the surface shouted to those who dived below:
->
-> "_BOII! BOII!_"
+> The first discovery did not come from a formal search. It came from a shout. Those who stayed above the surface shouted to those who dived below, "_BOII! BOII!_"
 >
 > The divers disappeared into the thick surface of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We waited. The ropes shook. The mud bubbled. Some came back coughing with nothing. Some came back crying after finding only empty air pockets. Then, from below, a reply came, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
@@ -591,7 +587,7 @@ coverY: 0
 >
 > Not just pigs. Not only meat. Not only animals trapped under mud. They became a call and response. A sign that something living was still hidden below the death of the surface.
 >
-> But finding them did not immediately save us. Finding them almost split us apart. The debate became harder than the dive. Some passengers said pigs were forbidden. Some said disaster had changed the law of survival. Some said emergency allowed what ordinary days refused. Some said faith should not be rewritten by hunger. Some said refusing the only renewable food source would turn piety into mass death. Some said we still had no right to decide while even one [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) might remain. Some said that was exactly the mistake, "We had already turned [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) into food before turning it into a future."
+> But finding them did not immediately save us. Finding them almost split us apart. The debate became harder than the dive. Some passengers said pigs were forbidden. Some said disaster had changed the law of survival. Some said emergency allowed what ordinary days refused. Some said faith should not be rewritten by hunger. Some said refusing the only renewable food source would turn piety into mass death. Some said we still had no right to decide while even one [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) might remain. Some said that was exactly the mistake. We had already turned [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) into food before turning it into a future.
 >
 > For hours, the ark was full of voices. Halal. Haram. Emergency. Faith. Hunger. Breeding. Shame. Survival. Death.
 >
@@ -605,7 +601,7 @@ coverY: 0
 >
 > Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_Emergency does not erase belief. Emergency tests whether belief can protect life without becoming cruelty._"
 >
-> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said, "_If you eat everything, you end the story. If you breed what can live, you write the next page._"
+> Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) also said, "_If you eat everything, you end the story. If you breed what can live, you write the next page._"
 >
 > Then one [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), the same one who had once asked about the [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) biting a carrot and wearing a hot dog hat, said, "_You already know what happens when you do not think beyond the first meal._"
 >
@@ -635,7 +631,7 @@ coverY: 0
 >
 > I asked them. At first, they were silent. Then the [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) with the torn communication officer uniform said, "_Your ark does not only carry survivors._"
 >
-> I asked what else it carried. Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered, "_Dunno What Water._"
+> I asked what else it carried. Another [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) answered, "_**Dunno What Water.**_"
 >
 > I understood before she said the rest. The recycled water of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) had been contaminated by traces of **Nameless Liquid**. The liquid from the land of **Dunno What Water**. The liquid that once brought peace to those who drank it. The liquid that could not save **Mr. BROY** from fear, but perhaps could help the ark keep something alive.
 >
@@ -645,9 +641,9 @@ coverY: 0
 >
 > Another said, "_Peace water must become infrastructure, not panic._"
 >
-> Another said, "_Keep it between the Captain and the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) until the ark learns how to protect what protects it._"
+> Another also said, "_Keep it between the **Captain** and the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) until the ark learns how to protect what protects it._"
 >
-> So I kept the secret. I write it here because a log is not gossip. A log is a burden passed to the next Captain.
+> So I kept the secret. I write it here because a log is not gossip. A log is a burden passed to the next **Captain**.
 >
 > To my successors: Protect the water. Protect the breeding. Protect those who cannot eat what others eat. Protect the agreement. Protect the difference between emergency and greed.
 >
@@ -661,7 +657,7 @@ coverY: 0
 >
 > The air pockets are emptying. The hunters are growing tired. The breeders are failing. Hunger is returning to the eyes.
 >
-> This is what I learned: Food is not only food. Food is law. Food is faith. Food is argument. Food is technology. Food is memory. Food is infrastructure. Food is the first economy after the end of land.
+> This is what I learned. Food is not only food. Food is law. Food is faith. Food is argument. Food is technology. Food is memory. Food is infrastructure. Food is the first economy after the end of land.
 >
 > If we cannot produce food, we will consume each other. If we cannot agree on food, our votes will become knives. If we cannot protect what can keep living, survival will end after one meal.
 >
@@ -671,7 +667,7 @@ coverY: 0
 >
 > From below, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
 >
-> To all my successors, and to all who read this log. Do not wait until hunger becomes your Captain. Build the system before the stomach writes the law. Feed the living without killing the future.
+> To all my successors, and to all who read this log. Do not wait until hunger becomes your **Captain**. Build the system before the stomach writes the law. Feed the living without killing the future.
 
 ***
 

@@ -309,9 +309,9 @@ coverY: 0
 >
 > Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sedang berdiri di dekat tepian [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) ketika ledakan itu terjadi. Dia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang membawa peta. Atau mungkin dia adalah [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang sama. Aku tidak lagi bisa memastikan, karena setiap [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memiliki wajah yang sama, nama yang sama, namun masing-masing membawa cara bertahan hidup yang berbeda.
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang satu ini mengenakan sesuatu yang tampak seperti seragam petugas komunikasi yang sudah robek. Dia tidak berteriak ketika ledakan itu mengguncang udara. Dia hanya memejamkan mata, mendengarkan gemanya, lalu berkata, "Itu bukan suara daratan runtuh."
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang satu ini mengenakan sesuatu yang tampak seperti seragam petugas komunikasi yang sudah robek. Dia tidak berteriak ketika ledakan itu mengguncang udara. Dia hanya memejamkan mata, mendengarkan gemanya, lalu berkata, "*Itu bukan suara daratan runtuh.*"
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain, yang masih memegang bundel peta, menjawab dari belakangnya, "Tidak. Itu adalah kiriman."
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain, yang masih memegang bundel peta, menjawab dari belakangnya, "*Tidak. Itu adalah kiriman.*"
 >
 > Tidak ada yang bertanya bagaimana dia tahu. Atau mungkin semua orang ingin bertanya, tapi tidak ada yang punya cukup keberanian untuk mendengar jawabannya. Bagiku, itu adalah sesuatu yang aneh dalam teori yang lainnya. Daratan sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama.
 > 
@@ -319,7 +319,7 @@ coverY: 0
 >
 > Aku mengulanginya karena amarahku masih membutuhkan bentuk. Di tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ketika setiap makhluk hidup sudah berjuang agar tidak tenggelam, masih ada yang memilih untuk menjatuhkan bom. Ini adalah keanehan dalam teori yang lain lagi. Ketika dunia masih utuh, mereka bilang perang terjadi karena manusia berebut tanah. Sekarang tidak ada lagi tanah, dan perang tetap menemukan cara untuk mengapung.
 >
-> [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengumpulkan kami dan berbicara dengan jujur. Dia berkata bahwa dia mampu memimpin dalam keadaan darurat. Dia mampu bertahan. Dia mampu berpikir di tengah kepanikan. Dia mampu melanjutkan perjalanan untuk mencari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Tapi dia tidak siap memimpin kami melewati perang yang lahir di dalam bencana. Dia seorang petarung, bukan ahli strategi perang. Dia seorang Kapten untuk bertahan hidup, bukan untuk menghadapi kegilaan geopolitik.
+> [**Kapten ROTY BROI (ID 547)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengumpulkan kami dan berbicara dengan jujur. Dia berkata bahwa dia mampu memimpin dalam keadaan darurat. Dia mampu bertahan. Dia mampu berpikir di tengah kepanikan. Dia mampu melanjutkan perjalanan untuk mencari [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Tapi dia tidak siap memimpin kami melewati perang yang lahir di dalam bencana. Dia seorang petarung, bukan ahli strategi perang. Dia seorang **Kapten** untuk bertahan hidup, bukan untuk menghadapi kegilaan geopolitik.
 >
 > Dalam diskusi panjang itu, para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tidak berbicara sebagai satu suara. Itu membuatku semakin takut. Sampai hari itu, misteri mereka selalu terasa dari kesamaan mereka. Nama yang sama. Tubuh yang sama. Wajah yang sama. Kemunculan mendadak yang sama di antara gelombang [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
@@ -345,7 +345,7 @@ coverY: 0
 >
 > Kami tidak tahu apakah pesan itu akan sampai kepada siapa pun. Tapi ternyata sampai. Balasan pertama tidak datang dari sebuah bendera. Balasan itu datang melalui transmisi yang rusak. Suaranya tidak jelas pada awalnya, ditelan statik, angin, dan suara [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus mendorong segala sesuatu yang masih mengapung. Lalu kami mendengarnya.
 >
-> "Ini [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)."
+> "*Ini [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).*"
 >
 > Semua orang di bahtera membeku. Karena suara itu tidak datang dari [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mana pun yang ada di atas bahtera kami. Transmisi itu datang dari bahtera lain.
 >
@@ -353,13 +353,13 @@ coverY: 0
 >
 > Aku bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) di atas bahtera apakah mereka mengenal [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dari bahtera lain itu. Mereka menjawab berbeda.
 >
-> Satu berkata, "Belum."
+> Satu berkata, "*Belum.*"
 >
-> Satu berkata, "Mungkin."
+> Satu berkata, "*Mungkin.*"
 >
-> Satu berkata, "Dia mendengar hal yang sama."
+> Satu berkata, "*Dia mendengar hal yang sama.*"
 >
-> Aku bertanya apa yang dia dengar. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek menunjuk ke arah layar dan berkata, "Itu."
+> Aku bertanya apa yang dia dengar. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek menunjuk ke arah layar dan berkata, "*Itu.*"
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >

@@ -1209,7 +1209,7 @@ coverY: 0
 >
 > We almost dismantled the counting board. But one passenger who had rarely spoken stood up. He said, "_Do not destroy the record only because we are afraid the record will be worshiped._"
 >
-> Another said, "_If it is not recorded, the strong will claim they worked the most. Those close to the Captain will be heard most often. The silent will disappear._"
+> Another said, "_If it is not recorded, the strong will claim they worked the most. Those close to the **Captain** will be heard most often. The silent will disappear._"
 >
 > Another one said, "_If it is recorded, those who are skilled at chasing records will control the board._"
 >
@@ -1221,7 +1221,7 @@ coverY: 0
 >
 > After voting, we did not throw [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) away. We lowered it.
 >
-> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of a body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of hunger. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of silence. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not buy someone's protection away from their own body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not make someone feel more alive than others. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace food. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace water. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace witnesses. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace responsibility. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become Captain. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become master.
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of a body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of hunger. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become the price of silence. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not buy someone's protection away from their own body. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not make someone feel more alive than others. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace food. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace water. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace witnesses. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not replace responsibility. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become **Captain**. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may not become master.
 >
 > [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) may only become a sign of answer. Answer to a call. Answer to work. Answer to presence. Answer to an invitation that remains tethered. Answer to life that has not stopped answering.
 >
@@ -1285,13 +1285,11 @@ coverY: 0
 >
 > This is what I learned, old money melted because it pretended to be land for too long. New money can also melt if it believes too quickly that it is different.
 >
-> Numbers are not evil. Records are not evil. Rewards are not evil. Tokens are not evil. But all of them can become a way home for the old disease if humans stop asking, what was answered? Who was called? Who worked? Who witnessed? Who was too weak to answer but still must not disappear? Who began pretending to be present? Who began to be hungry for the sake of records? Who began to be naked for numbers? Who began turning a call of life into a dead market?
+> Numbers are not evil. Records are not evil. Rewards are not evil. Tokens are not evil. But all of them can become a way home for the old disease if humans stop asking: What was answered? Who was called? Who worked? Who witnessed? Who was too weak to answer but still must not disappear? Who began pretending to be present? Who began to be hungry for the sake of records? Who began to be naked for numbers? Who began turning a call of life into a dead market?
 >
 > If those questions are no longer asked, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) will become old money. If those questions continue to be asked, perhaps [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) can still become something lower than money, and because of that more useful than money. Because what we need is not an object standing above life. What we need is a small sign that helps life keep answering one another, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
 >
-> P.S.:
->
-> There is one more thing I still do not understand. After the new board stood, some records began to appear with light that did not come from the ark's lamps. As if light appeared from inside the new board itself. There were even some marks that looked as if they were written from inside the board.
+> P.S. There is one more thing I still do not understand. After the new board stood, some records began to appear with light that did not come from the ark's lamps. As if light appeared from inside the new board itself. There were even some marks that looked as if they were written from inside the board.
 >
 > There was the shadow of an island. There was sunlight that was not the same as the heat of hell. There was the smell of salt, cloth, white walls, faces looking at artworks, and bodies standing inside a room that did not sway like an ark.
 >

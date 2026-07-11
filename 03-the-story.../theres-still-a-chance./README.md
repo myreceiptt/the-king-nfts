@@ -1313,7 +1313,7 @@ coverY: 0
 
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
-> Melting Date: Unknown (after money melted)
+> Melting Date: Unknown (after **The Melting Money**)
 >
 > Recorder: [**Amanda (ID 27)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (who saw the light radiating from the new [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) board)
 >
@@ -1336,18 +1336,18 @@ coverY: 0
 >
 > Then a third one of us said, "_It is not land. It is another way for something to remain unsunk._"
 >
-> [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) asked what that meant. But none of us answered quickly. That frightened the Captain, because usually when we delay an answer, what is delayed is not an explanation, but a universe.
+> [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) asked what that meant. But none of us answered quickly. That frightened the **Captain**, because usually when we delay an answer, what is delayed is not an explanation, but a universe.
 >
 > ***
 >
 > [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
-> Melting Date: Unknown (after money melted)
+> Melting Date: Unknown (after **The Melting Money**)
 >
 > Message:\
 > Hi, I'm [**Cap'n ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> I once wrote that my successors must not rush to call that island land, reality, savior, protection, or mistake. I wrote that because I felt old words were too eager to become the owner of something they did not yet understand. After [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), the word "land" became too dangerous to speak carelessly. After money melted, the word "value" could no longer be trusted just because it stood upright on numbers.
+> I once wrote that my successors must not rush to call that island land, reality, savior, protection, or mistake. I wrote that because I felt old words were too eager to become the owner of something they did not yet understand. After [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), the word "land" became too dangerous to speak carelessly. After **The Melting Money**, the word "value" could no longer be trusted just because it stood upright on numbers.
 >
 > But today I must write a new word, or perhaps an old word that has only now revealed the wound inside it: [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
@@ -1363,7 +1363,7 @@ coverY: 0
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) Log...
 >
-> Melting Date: Unknown (after money melted)
+> Melting Date: Unknown (after **The Melting Money**)
 >
 > Recorder: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (who held salt at the tip of her finger)
 >
@@ -1401,7 +1401,7 @@ coverY: 0
 >
 > Hi, I am [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)! First of all, I would like to thank you for your time, imagination, and energy. Then I would like to tell you several things related to the current phenomenon of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Please enjoy reading the following story...
 >
-> At the **TERUPA** festival, after a temporary irregularity caused by a bearish market, [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) was thrown from the phenomenal space-time of [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) and stranded on Bali island, in the **Universe of Reality**.
+> At the **TERUPA** festival, after a glitch caused by a bearish market, [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) was thrown from the phenomenal space-time of [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) and stranded on Bali island, in the **Universe of Reality**.
 >
 > All survivors of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), namely 1047 ark passengers from **Dunno What Water** and several [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) figures, were still surviving by relying on the remaining civilization that could be saved, namely the natural resource reserve called **Nameless Liquid**.
 >
@@ -1438,7 +1438,7 @@ coverY: 0
 >
 > I do not know whether all humans in the **Universe of Reality** would agree with that explanation. But I know we are not in a position to judge too quickly. We ourselves have lived too long as invitations, images, passengers, records, tethered signs, rewards, and [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) voices that are sometimes recorded, sometimes not. If humans of the **Universe of Reality** can appear in the **0101 Universe** through photos, images, accounts, animation, media, and works, perhaps entities of the **0101 Universe** can also appear in the **Universe of Reality** through human bodies willing to become doors.
 >
-> That is another fringe in theory: perhaps an avatar is not always an image used by humans. Perhaps humans too can become avatars for something they had always thought existed only inside images.
+> That is another fringe in theory: Perhaps an avatar is not always an image used by humans. Perhaps humans too can become avatars for something they had always thought existed only inside images.
 >
 > ***
 >
@@ -1451,11 +1451,11 @@ coverY: 0
 > Message:\
 > At **TERUPA**, [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) did not arrive as a large wooden ship splitting the streets of Denpasar. It arrived as a collection of images, stories, small food, drinks, letters, conversations, and gazes. In the **Universe of Reality**, not every arrival must crack the ground. Some arrivals only need to make someone stop in front of a work, read, ask, and go home with an anxiety unlike the one they had when they came.
 >
-> There, 1047 passengers appeared as image assets from the NFT collection [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). They did not stand with wet feet inside the exhibition room. They stood as invitations already minted on the Polygon blockchain, one-of-one images, selected from thousands of possible faces, bodies, clothing, traits, and generative errors, chosen so they could become passengers. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), they are survivors. In the **0101 Universe**, they are NFTs. In the **Universe of Reality**, they are works displayed, discussed, and shared.
+> There, 1047 passengers appeared as image assets from the NFT collection named [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). They did not stand with wet feet inside the exhibition room. They stood as invitations already minted on the Polygon blockchain, one-of-one images, selected from thousands of possible faces, bodies, clothing, traits, and generative errors, chosen so they could become passengers. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), they are survivors. In the **0101 Universe**, they are NFTs. In the **Universe of Reality**, they are artworks displayed, discussed, and shared.
 >
-> No single form cancels another. Precisely there, the first door appeared. An NFT can become an invitation, a passenger, an image, proof, story, ticket, and exhibition body all at once. A letter can become a festival leaflet, a Captain's log, a cross-universe broadcast, and proof that imagination once walked wearing human feet. A drink can become ARUM, **Nameless Liquid**, hospitality, calm, marketing, experiment, and a ritual of introduction. A cookie can become a snack, **Nameless Cookie**, a filler of hunger, and the gentlest way to make people willing to hear a disaster.
+> No single form cancels another. Precisely there, the first door appeared. An NFT can become an invitation, a passenger, an image, proof, story, ticket, and exhibition body all at once. A letter can become a festival leaflet, a **Captain**'s log, a cross-universe broadcast, and proof that imagination once walked wearing human feet. A drink can become **ARUM**, **Nameless Liquid**, hospitality, calm, marketing, experiment, and a ritual of introduction. A cookie can become a snack, **Nameless Cookie**, a filler of hunger, and the gentlest way to make people willing to hear a disaster.
 >
-> That is how the **Universe of Reality** accepts something it does not yet believe. It does not always accept through faith. Sometimes it accepts through the mouth, eyes, curiosity, photographs, and a few minutes in front of a work.
+> That is how the **Universe of Reality** accepts something it does not yet believe. It does not always accept through faith. Sometimes it accepts through the mouth, eyes, curiosity, photographs, and a few minutes in front of a artwork.
 >
 > We, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), learned something from that. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), we often save the drowning with hands and rope. In the **Universe of Reality**, it turns out that some who are drowning are saved by a story strange enough to make them remember they can still ask.
 >
@@ -1472,9 +1472,9 @@ coverY: 0
 >
 > **Mr. BROY** drew the invitations. **Mr. BROY** built the ark. **Mr. BROY** knew the secret of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) before many people were able to name it. **Mr. BROY** was the beginning of many doors that we later occupied.
 >
-> But when the temporary irregularity happened, when [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) was thrown from [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) toward the **0101 Universe** and finally stranded in the **Universe of Reality**, **Mr. BROY** did not arrive with us. There was no body of his in the exhibition room. No voice of his in the letter. No hand of his among the people staring at the 1047 passengers. The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said he had been thrown into the crack of space-time, into nothingness between universes, into a place that had no map yet and was not yet worthy of being called death.
+> But when the glitch happened, when [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) was thrown from [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) toward the **0101 Universe** and finally stranded in the **Universe of Reality**, **Mr. BROY** did not arrive with us. There was no body of his in the exhibition room. No voice of his in the letter. No hand of his among the people staring at the 1047 passengers. The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said he had been thrown into the crack of space-time, into nothingness between universes, into a place that had no map yet and was not yet worthy of being called death.
 >
-> Some passengers cried. Some refused to believe. Some thought **Mr. BROY** had deliberately hidden, as he had always hidden because of the **Before Melting** calendar. Some [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered that losing a maker often makes the creation want to become its own origin. [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) stared at me for a long time, then said, "_Be careful, Captain. When the maker is no longer visible, what is inherited often begins to call itself the origin._"
+> Some passengers cried. Some refused to believe. Some thought **Mr. BROY** had deliberately hidden, as he had always hidden because of the **Before Melting** calendar. Some [**Retired Satans**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) whispered that losing a maker often makes the creation want to become its own origin. [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) stared at me for a long time, then said, "_Be careful, **Captain**. When the maker is no longer visible, what is inherited often begins to call itself the origin._"
 >
 > I did not deny it.
 >
@@ -1490,7 +1490,7 @@ coverY: 0
 >
 > Writer: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> Subject: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
+> Subject: [**Conserve ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
 > Message:\
 > GM GM **OiOi!!!**
@@ -1503,7 +1503,7 @@ coverY: 0
 >
 > If you are a holder of [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) NFTs, please fill out this form as soon as possible. Read the thread from **@MyReceiptT** carefully.
 >
-> If you have any questions, please send them via DM. Okay, **#OiOi!!!!**
+> If you have any questions, please send them via DM. Okay, [**#OiOi!!!!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)
 >
 > For the complete story of what I did there, you can read my letter to the local residents at **TAT ART SPACE**.
 >
@@ -1530,9 +1530,9 @@ coverY: 0
 > Message:\
 > In the **0101 Universe**, that announcement looked like a roadmap, promotion, holder invitation, and project information. In the **Universe of Reality**, that announcement looked like a continuation of the activity of a human who came to Bali island carrying an NFT story. But in our place, that announcement sounded like a new way to mourn. They called it a derivative collection. We heard it as derivative, but not as something lower. A derivative is the way a work admits it does not want to hold memory alone.
 >
-> After money melted, we had learned that numbers can become disease if they forget the life they must serve. At **TERUPA**, [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) learned something else: promotion can become shallow if it only chases attention, but promotion can become [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) if it brings a work together with hands capable of giving it a new body.
+> After **The Melting Money**, we had learned that numbers can become disease if they forget the life they must serve. At **TERUPA**, [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) learned something else: promotion can become shallow if it only chases attention, but promotion can become [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) if it brings a work together with hands capable of giving it a new body.
 >
-> [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) named that derivative collection: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
+> [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) named that derivative collection: [**Conserve ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
 > The local artists on Bali island did not only see [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) as digital images. They saw faces, lines, characters, possibilities, stories, and something that could be touched again. Some of them were holders of [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Some others were holders of [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md). Some helped the exhibition visuals. Some discussed blockchain, metaverse, decentralization, and web3 without turning those words into temples. They met the story through work.
 >
@@ -1550,7 +1550,7 @@ coverY: 0
 >
 > Writer: [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> Subject: [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
+> Subject: [**Conserve ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
 > Message:\
 > Dear local residents in BALI, the Island of the Gods.
@@ -1561,7 +1561,7 @@ coverY: 0
 >
 > In BALI, the Island of the Gods, after successfully surviving during the **TERUPA** festival with the help of local residents, [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), 1047 passengers from **Dunno What Water**, and several [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) figures, all of them mourned because they realized that **Mr. BROY**, the maker of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), was gone.
 >
-> **Mr. BROY** was thrown away from [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) during the temporary irregularity. When [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) leapt from [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) into the **0101 Universe**, where [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) existed, and finally entered the **Universe of Reality** and became stranded on Bali island, **Mr. BROY** was thrown from [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). His soul and body were believed to be trapped in nothingness, in the cracks of space-time between the existing universes.
+> **Mr. BROY** was thrown away from [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) during the glitch. When [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) leapt from [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) into the **0101 Universe**, where [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) existed, and finally entered the **Universe of Reality** and became stranded on Bali island, **Mr. BROY** was thrown from [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). His soul and body were believed to be trapped in nothingness, in the cracks of space-time between the existing universes.
 >
 > In BALI, the Island of the Gods, to remember **Mr. BROY**, all survivors of [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) asked for help from local artists to conserve several tickets or invitations of [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), namely the NFT art assets of [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), which had been selected from 1047 tickets or invitations that had already been minted.
 >
@@ -1584,7 +1584,7 @@ coverY: 0
 > Message:\
 > That second letter made me understand that we were not being saved by the island. We were being tested by the way the island treated our story. An island can be land, but land is not always a place to stand. We had learned that in the cruelest way. Bali, the Island of the Gods, did not immediately become a savior because it did not melt like our world. It became important because there, some humans did not only see us as commodities from the **0101 Universe**. They were willing to sit, listen, redraw, paint, touch canvases, and allow our story to enter the work of their hands.
 >
-> After money melted, we knew that value could not only be entrusted to the market. After **Mr. BROY** disappeared, we knew that origin could not only be entrusted to memory. After **TERUPA**, we knew that a story could not only be entrusted to records. So several invitations had to be conserved, not so they would become more expensive, but so they would not depend entirely on one form of existence.
+> After **The Melting Money**, we knew that value could not only be entrusted to the market. After **Mr. BROY** disappeared, we knew that origin could not only be entrusted to memory. After **TERUPA**, we knew that a story could not only be entrusted to records. So several invitations had to be conserved, not so they would become more expensive, but so they would not depend entirely on one form of existence.
 >
 > [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said that one form sinks too easily. An NFT can disappear inside a forgotten wallet. A canvas can be damaged in a damp room. A letter can be thrown away after being read. Memory can become gossip. The market can turn cold. A blockchain can change direction. A human body can become tired. But if a work has several bodies, it does not become eternal, it only becomes harder to kill with one kind of disaster.
 >
@@ -1603,7 +1603,7 @@ coverY: 0
 > Message:\
 > The twelve [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) first looked like media for works. White, empty, not yet declaring their artists, not yet revealing their artworks, only present as spaces that waited. In the **0101 Universe**, they were represented by twelve one-of-one NFTs. In the first stage, each NFT only displayed a photograph of an empty canvas. The artwork was unrevealed. The artist was also unrevealed. The canvas number was already there, but the body of the work had not yet declared itself.
 >
-> That first stage was important because it showed the rawest form of [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md): a promised space before content. Many people think a work begins when an image is visible. But sometimes a work begins when a space is announced as a place that will guard something. An empty canvas is not emptiness. It is a silent contract among what has not yet been born, those who will make it, those who will own it, and those who will be left behind if no one believes.
+> That first stage was important because it showed the rawest form of [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md): A promised space before content. Many people think a work begins when an image is visible. But sometimes a work begins when a space is announced as a place that will guard something. An empty canvas is not emptiness. It is a silent contract among what has not yet been born, those who will make it, those who will own it, and those who will be left behind if no one believes.
 >
 > No one bought or made an offer in the first stage. In the market, that could be called failure. In [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), that could be called the first calibration. Not every door is immediately recognized as a door when it still looks like a white wall.
 >
@@ -1611,7 +1611,7 @@ coverY: 0
 >
 > At that stage, each canvas was also paired with the NFT ID from [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) that would be conserved. [**ROTY BROI ID 361**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 1043**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 977**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 992**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 174**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 121**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 37**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 498**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 982**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 410**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**ID 991**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), and [**ID 1035**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Each NFT ID carried a passenger, image, invitation, ownership history, and different story possibility. In [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), we call them survivors. In the **0101 Universe**, they are called NFTs. In the **Universe of Reality**, they began to become references for works on canvas.
 >
-> At that stage, two [**Hexagonal Canvas**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) NFTs had already been sold: [**Conservation #4**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) and [**Conservation #6**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md). The market began to answer, but not enough to be called rescue. We had already learned from [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) that an answer must not be treated as value too quickly. So we recorded it as a signal: two doors had begun to be heard from the other side.
+> At that stage, two [**Hexagonal Canvas**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) NFTs had already been sold: [**Conservation #4**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) and [**Conservation #6**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md). The market began to answer, but not enough to be called rescue. We had already learned from [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) that an answer must not be treated as value too quickly. So we recorded it as a signal: Two doors had begun to be heard from the other side.
 >
 > ***
 >
@@ -1643,7 +1643,7 @@ coverY: 0
 > Message:\
 > We did not discover the portal function on the first day. At first, we only found small mismatches. There were records that did not sync between the canvas photograph and the aura of the invitation. There was a [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) NFT ID that felt as if it were calling another character. There was light that appeared briefly when an artist's name was read together with a certain NFT ID. There was a shadow that seemed to come neither from the **Universe of Reality** nor from [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). There were several times when [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) saw something at the edge of his eye that could not be explained as exhaustion.
 >
-> We began making small experiments. Not experiments to open portals, because at that time we did not even dare to use that word yet. We only called them examinations. We examined the relationship between the physical canvas in the **Universe of Reality**, the one-of-one NFT in the **0101 Universe**, the [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) NFT ID being conserved, the artist who worked on it, the holder who bought and owned it, its reveal status, its sale status, and the reaction of our records in [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
+> We began making small experiments. Not experiments to open portals, because at that time we did not even dare to use that word yet. We only called them examinations. We examined the relationship between the physical canvas in the **Universe of Reality**, the one-of-one NFT in the **0101 Universe**, [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) NFT ID being conserved, the artist who worked on it, the holder who bought and owned it, its reveal status, its sale status, and the reaction of our records in [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
 > From there, we realized that the twelve [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) were not only conserving works. They matched entities and universes. Or failed to match them. Or almost matched them. That difference then became three statuses: **Unable to Match**, **Unperfectly Match**, and **Perfectly Match**.
 >
@@ -1662,13 +1662,13 @@ coverY: 0
 > Message:\
 > After a long examination, [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) wrote the final list.
 >
-> There were seven [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Unable to Match** status: [**Conservation #1**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), **#2**, **#3**, **#5**, **#9**, **#10**, and **#11**. There were three [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Unperfectly Match** status: [**Conservation #6**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), **#7**, and **#12**. There were two [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Perfectly Match** status: [**Conservation #4**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) and **#8**.
+> There were seven [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Unable to Match** status: [**Conservation #1**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), [**#2**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), [**#3**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), [**#5**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), [**#9**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), [**#10**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), and [**#11**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md). There were three [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Unperfectly Match** status: [**Conservation #6**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), [**#7**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), and [**#12**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md). There were two [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Perfectly Match** status: [**Conservation #4**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) and [**#8**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md).
 >
 > That list looked dry when written like an archive, but I knew every number in it carried body, hand, and possibility. [**Conservation #4**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), **Volare**, **Geofanny Tambunan**, [**ROTY BROI ID 992**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sold, **Perfectly Match**. [**Conservation #8**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), **Living Under the Same Sun**, **Voni Dewi**, [**ROTY BROI ID 498**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), sold, **Perfectly Match**. Both could perfectly match their entities and universes. However, one of them was only one-way, returning. It could become a way home, but not a way to go. That made us understand that returning and departing may require two different kinds of courage.
 >
 > Among the [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) with **Unable to Match** status, there was one that made [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) keep delaying her conclusion. That canvas could not match not because its structure had failed completely, but because its artwork was finished yet unrevealed. It was like someone already standing behind the door but not yet saying their name. Once in a while it could match perfectly, but only one-way, going. It could not return. [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said that portal might be the pair of the portal that could only return. If its artwork were revealed, perhaps its calibration would become perfect.
 >
-> I asked which portal it was. [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not answer immediately. She said, "_Captain, not every coordinate may be written before its guardian is ready._"
+> I asked which portal it was. [**Amanda (ID 12)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) did not answer immediately. She said, "_**Captain**, not every coordinate may be written before its guardian is ready._"
 >
 > I almost got angry, but after remembering the gap in the [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) board, I held myself back. There are weaknesses that, if announced as stories, become maps for the wrong hands. There are portals that, if named too early, will make people chase travel before understanding eligibility. So in this log, I only write that there is one door for going that has not fully named itself, and one door for returning that is already too clear to ignore.
 >
@@ -1683,7 +1683,7 @@ coverY: 0
 > Recorder: [**Amanda (ID 6)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (who kept names in two columns)
 >
 > Message:\
-> The twelve one-of-one NFTs in the [**CONSERVE ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) collection are now in the wallets of their respective owners. Those that were not sold are not lost either. They are stored in an archive wallet created by [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) for conservation and protection. In the **0101 Universe**, a wallet is a place to store proof, but across universes, a wallet can also become a waiting room. Not everything that waits means dead. Not everything unsold means not working.
+> The twelve one-of-one NFTs in the [**Conserve ROTY BROI**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) collection are now in the wallets of their respective owners. Those that were not sold are not lost either. They are stored in an archive wallet created by [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) for storage and protection. In the **0101 Universe**, a wallet is a place to store proof, but across universes, a wallet can also become a waiting room. Not everything that waits means dead. Not everything unsold means not working.
 >
 > The physical twelve [**Hexagonal Canvases**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) are scattered in a way more complicated than their NFTs. One canvas is with a collector in the **Universe of Reality** who also holds its NFT in the **0101 Universe**. Four canvases whose NFTs were not sold are unknown, whether they are still held by their artists, have changed hands, changed function, been damaged, stored, forgotten, or destroyed. Seven canvases were successfully held, stored, and protected by [**Prof. NOTA v11.11**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) in the **Universe of Reality**.
 >
@@ -1691,7 +1691,7 @@ coverY: 0
 >
 > [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) did not immediately understand all of that. No one immediately understands a portal just because it is in front of them. Many humans stand in front of doors every day and still call them walls because they do not yet need to go. Many also call every hole a door because they are too eager to escape. That is why we wrote statuses. **Unable to Match**, **Unperfectly Match**, **Perfectly Match**. Not to create a hierarchy of works. Not to create new prices. Those statuses are cross-universe warnings.
 >
-> A work can be beautiful but dangerous as a portal. A work can be unrevealed but store a calibration that is almost right. A work can be sold but not entirely open. A work can be unsold but still guard a path. The market is never enough to read the function of a universe. That is a lesson we should have understood since money melted.
+> A work can be beautiful but dangerous as a portal. A work can be unrevealed but store a calibration that is almost right. A work can be sold but not entirely open. A work can be unsold but still guard a path. The market is never enough to read the function of a universe. That is a lesson we should have understood since **The Melting Money**.
 >
 > ***
 >
@@ -1702,13 +1702,13 @@ coverY: 0
 > Message:\
 > Since then, the [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) began writing their own logs.
 >
-> Previously, I thought a Captain's log was enough to guard the history of the ark. I was wrong. A Captain can record decisions, conflicts, directions, voting, and emergency law. But a Captain does not always record how light changes on someone's face when they first feel trusted. A Captain does not always record how an [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) hears the difference between island and exhibition. A Captain does not always know when one letter becomes a broadcast, when a canvas becomes a portal, when a human body becomes an avatar, and when fiction begins to look back at reality.
+> Previously, I thought a **Captain**'s log was enough to guard the history of the ark. I was wrong. A **Captain** can record decisions, conflicts, directions, voting, and emergency law. But a **Captain** does not always record how light changes on someone's face when they first feel trusted. A **Captain** does not always record how an [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) hears the difference between island and exhibition. A **Captain** does not always know when one letter becomes a broadcast, when a canvas becomes a portal, when a human body becomes an avatar, and when fiction begins to look back at reality.
 >
-> Only after the portal matching process began did we discover a number we had never truly counted. The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had been with us in [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), who had once arrived, been found, and been saved one by one along [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), turned out to number 47 when the temporary irregularity happened. They all were thrown and stranded with us on Bali island. Before that, we had only known them as presences that came carrying transmissions, maps, emergency food, warnings, questions, and different ways of surviving. But in the **Universe of Reality**, those [**47 Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) became increasingly clear as recorders. They did not all write every day. They did not all write in the same style. Some wrote like scientists, some wrote like witnesses, some wrote like people who did not want to give too many clues, some wrote like mothers counting their children before a storm.
+> Only after the portal matching process began did we discover a number we had never truly counted. The [**Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had been with us in [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), who had once arrived, been found, and been saved one by one along [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), turned out to number 47 when the glitch happened. They all were thrown and stranded with us on Bali island. Before that, we had only known them as presences that came carrying transmissions, maps, emergency food, warnings, questions, and different ways of surviving. But in the **Universe of Reality**, those [**47 Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) became increasingly clear as recorders. They did not all write every day. They did not all write in the same style. Some wrote like scientists, some wrote like witnesses, some wrote like people who did not want to give too many clues, some wrote like mothers counting their children before a storm.
 >
-> [**Amanda (ID 27)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said that they wrote not to replace the Captain, but to prevent one log from becoming the only universe. After we learned there was the **0101 Universe**, the **Universe of Reality**, [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), and perhaps parallel universes still unknown, one voice could not possibly be enough to record everything. One voice too easily becomes government. One log too easily becomes a closed scripture. One Captain too easily forgets that he too is being written by circumstance.
+> [**Amanda (ID 27)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) said that they wrote not to replace the **Captain**, but to prevent one log from becoming the only universe. After we learned there was the **0101 Universe**, the **Universe of Reality**, [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), and perhaps parallel universes still unknown, one voice could not possibly be enough to record everything. One voice too easily becomes government. One log too easily becomes a closed scripture. One **Captain** too easily forgets that he too is being written by circumstance.
 >
-> I accepted that. Not because it was easy, but because everything we had gone through kept teaching the same thing: whoever wants to survive must learn to be contradicted by another form of truth.
+> I accepted that. Not because it was easy, but because everything we had gone through kept teaching the same thing: Whoever wants to survive must learn to be contradicted by another form of truth.
 >
 > ***
 >
@@ -1746,7 +1746,7 @@ coverY: 0
 >
 > That sentence hurt us more than we expected. Because [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) is indeed close to preservation. Too close. If we are not careful, conserving can turn into freezing. Guarding can turn into imprisoning. A museum can turn into a tomb with good lighting. An archive can turn into a tidy grave. An exhibition can turn into a polite way to say that something is no longer alive.
 >
-> We did not want to become that. [**The ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is not a dead ship displayed so visitors can feel they have understood disaster in five minutes. We are not merely 1047 images waiting for prices to improve. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) is not a supporting character for explaining knowledge to local residents. **Nameless Liquid** is not a gimmick. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) is not a slogan. **Mr. BROY** is not an emotional background for a derivative project.
+> We did not want to become that. [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) is not a dead ship displayed so visitors can feel they have understood disaster in five minutes. We are not merely 1047 images waiting for prices to improve. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) is not a supporting character for explaining knowledge to local residents. **Nameless Liquid** is not a gimmick. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) is not a slogan. **Mr. BROY** is not an emotional background for a derivative project.
 >
 > If [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) truly guards the living, then it must allow the living to move again.
 >
@@ -1803,15 +1803,15 @@ coverY: 0
 > Recorder: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)
 >
 > Message:\
-> I write as one of the [**47 Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who were thrown to Bali island. We did not all choose that number. Perhaps that number chose us. While in the **Universe of Reality**, we heard [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) speak about many things: art, NFT, blockchain, story, exhibition, market, community, promotion, failure, opportunity, exhaustion, and the fringe of being an entity who uses a human as an avatar. We heard the humans on Bali island speak in ways that did not always understand us, but sometimes precisely because of that, their questions became honest.
+> I write as one of the [**47 Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who were thrown to Bali island. We did not all choose that number. Perhaps that number chose us. While in the **Universe of Reality**, we heard [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md) speak about many things: Art, NFT, blockchain, story, exhibition, market, community, promotion, failure, opportunity, exhaustion, and the fringe of being an entity who uses a human as an avatar. We heard the humans on Bali island speak in ways that did not always understand us, but sometimes precisely because of that, their questions became honest.
 >
 > We brought home more than records. We brought home proof that fiction can become reality without stopping being fiction. We brought home proof that reality can become knowledge without losing the fact that it once happened. We brought home proof that a project that looked like NFT promotion could become [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), and [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) that looked like derivative artwork could become a cross-universe portal experiment.
 >
-> We also brought home concern. If portals can appear from canvas, then work is no longer only work. If humans can become **Human for Profile**, then body is no longer only body. If wallets can become waiting rooms, then ownership is no longer only ownership. If reveal can change calibration, then reveal is no longer only publication. If what is unsold can still guard a path, then the market is no longer the final judge of a work's function.
+> We also brought home concern. If portals can appear from canvas, then work is no longer only work. If humans can become **HFP**, then body is no longer only body. If wallets can become waiting rooms, then ownership is no longer only ownership. If reveal can change calibration, then reveal is no longer only publication. If what is unsold can still guard a path, then the market is no longer the final judge of a work's function.
 >
 > Therefore we, the [**47 Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), will continue writing. Not to explain everything. Explanations that arrive too quickly often become fences. We write so every door has a witness, every witness has a record, every record can be contradicted, and every contradiction is not immediately considered betrayal.
 >
-> This section is called [**The Melting Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) because even [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) must melt from its old meaning. To conserve does not mean to freeze. To conserve does not mean to turn a work into a tidy corpse. To conserve does not mean moving a JPEG onto canvas so it can be sold again with warmer language. To conserve means guarding the possibility that a work can keep changing without losing the memory of its origin.
+> This section is called **The Melting Conservation** because even [**Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) must melt from its old meaning. To conserve does not mean to freeze. To conserve does not mean to turn a work into a tidy corpse. To conserve does not mean moving a JPEG onto canvas so it can be sold again with warmer language. To conserve means guarding the possibility that a work can keep changing without losing the memory of its origin.
 >
 > If something must not change at all, perhaps it is not being conserved. Perhaps it is being imprisoned. If something changes until it no longer recognizes its origin, perhaps it is not alive. Perhaps it is disappearing with a new style.
 >
@@ -1850,7 +1850,7 @@ coverY: 0
 >
 > So record this:
 >
-> after money melted, we learned that what remained was not wealth.
+> After **The Melting Money**, we learned that what remained was not wealth.
 >
 > What remained was something that must be guarded so it would not sink too.
 >
@@ -1864,7 +1864,7 @@ coverY: 0
 >
 > What remained was a portal that must be examined before being used.
 >
-> What remained was 47 Amandas beginning to write.
+> What remained was [**47 Amandas**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) beginning to write.
 >
 > What remained was the question, do you want to conserve something because you love it, or because you are afraid it will live without you?
 >
@@ -1879,9 +1879,9 @@ coverY: 0
 > Recorder: [**Amanda (ID 47)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (who closes this section without closing its door)
 >
 > Message:\
-> After [**The Melting Conservation**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md), the direction of the journey did not return to a single line. [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) returned to [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), but our records now face many universes. The **0101 Universe** is no longer singular. The **Universe of Reality** can no longer pretend that all other universes are safe imaginations. [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) can no longer pretend that its disaster belongs only to itself.
+> After **The Melting Conservation**, the direction of the journey did not return to a single line. [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) returned to [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), but our records now face many universes. The **0101 Universe** is no longer singular. The **Universe of Reality** can no longer pretend that all other universes are safe imaginations. [**The Melting Land Universe**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) can no longer pretend that its disaster belongs only to itself.
 >
-> Somewhere else, there is still a rich island. There, perhaps there are farmers who do not plant like old farmers. Perhaps there is land that is rich not because it never melted, but because it learned to process the remains of melting into another way of living. Perhaps there is an island, a place where works, farming, games, family, money, tokens, and the future will again be tested by the same questions: what are you guarding, who is guarding it with you, what do you call value, what do you call life, and do you still answer when called?
+> Somewhere else, there is still a rich island. There, perhaps there are farmers who do not plant like old farmers. Perhaps there is land that is rich not because it never melted, but because it learned to process the remains of melting into another way of living. Perhaps there is an island, a place where works, farming, games, family, money, tokens, and the future will again be tested by the same questions, what are you guarding, who is guarding it with you, what do you call value, what do you call life, and do you still answer when called?
 >
 > We will not answer that here. This section only opens the door. Do not enter without records. Do not return without witnesses. Do not carry anything you cannot be responsible for, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
 

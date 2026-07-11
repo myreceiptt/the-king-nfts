@@ -1929,7 +1929,7 @@ coverY: 0
 > Pesan:\
 > Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), nanti kalian lupa bertanya namaku.*"
+> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: Setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), nanti kalian lupa bertanya namaku.*"
 >
 > Aku tidak punya jawaban bagus.
 >
@@ -1992,7 +1992,7 @@ coverY: 0
 > Pesan:\
 > Beberapa penumpang langsung berkata ada pesan dari salah satu [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Beberapa lainnya berkata itu pasti tipu daya penyintas jahat. Satu orang berkata itu terdengar seperti kata "banana" dan langsung meminta jatah makan ditambah. Aku tidak akan menulis namanya karena ia sudah cukup malu setelah semua orang memandangnya.
 >
-> Aku hanya menulis: catat dulu.
+> Aku hanya menulis: Catat dulu.
 >
 > Jangan langsung menikahi daratan dari suara pertamanya. Jangan juga langsung mencurigainya sebagai jebakan hanya karena ia terdengar menyenangkan. Setelah terlalu lama hidup di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), beberapa orang mulai mengira semua hal yang menyenangkan pasti akan berakhir sebagai lubang. Itu bisa dimengerti, tapi kalau semua hal yang menyenangkan langsung disebut lubang, maka hidup yang tersisa hanya akan menjadi latihan tenggelam yang diperpanjang.
 >
@@ -2034,7 +2034,7 @@ coverY: 0
 > Subjek: Pohon pisang bukan jawaban.
 >
 > Pesan:\
-> Pohon pisang bukan jawaban. Jangan membuatnya menjadi patung. Pohon pisang juga bukan sekadar makanan. Jangan membuatnya menjadi stok. Pohon pisang adalah pertanyaan yang tumbuh pelan-pelan: apakah makhluk yang sudah terlalu lama diselamatkan masih mampu menunggu sesuatu tumbuh tanpa langsung menghabiskannya?
+> Pohon pisang bukan jawaban. Jangan membuatnya menjadi patung. Pohon pisang juga bukan sekadar makanan. Jangan membuatnya menjadi stok. Pohon pisang adalah pertanyaan yang tumbuh pelan-pelan: Apakah makhluk yang sudah terlalu lama diselamatkan masih mampu menunggu sesuatu tumbuh tanpa langsung menghabiskannya?
 >
 > Itu pertanyaan yang kasar, sebenarnya. Tapi pohon pisang menanyakannya dengan daun yang sopan, jadi beberapa orang tidak merasa diserang. Bagus. Kadang kebenaran harus memakai daun lebar agar manusia tidak langsung tersinggung.
 >
@@ -2078,7 +2078,7 @@ coverY: 0
 >
 > [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) terdengar seperti buah dan waktu. Seperti orang yang sedang lapar tapi masih bisa bercanda. Seperti anak-anak yang tidak sabar menunggu orang dewasa selesai rapat. Seperti daratan yang berkata, "*Kalau kalian ingin menjadi makhluk baru, mungkin jangan mulai dengan nama yang membuat kalian kaku.*"
 >
-> Catat dulu: daratan itu mulai punya nama. Tapi jangan langsung membuat bendera.
+> Catat dulu: Daratan itu mulai punya nama. Tapi jangan langsung membuat bendera.
 >
 > ***
 >
@@ -2093,7 +2093,7 @@ coverY: 0
 > Pesan:\
 > Kami membuat lumbung kecil.
 >
-> Jangan tertawa. Lumbungnya memang kecil. Bahkan satu peti basah di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mungkin lebih besar daripada lumbung pertama kami. Tapi di dalamnya ada hal-hal yang tidak boleh hilang: tunas, buah yang belum dibagi, catatan cara menanam, simpul tali, dan tanda untuk membedakan mana yang boleh dipetik, mana yang harus ditunggu.
+> Jangan tertawa. Lumbungnya memang kecil. Bahkan satu peti basah di atas [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mungkin lebih besar daripada lumbung pertama kami. Tapi di dalamnya ada hal-hal yang tidak boleh hilang, tunas, buah yang belum dibagi, catatan cara menanam, simpul tali, dan tanda untuk membedakan mana yang boleh dipetik, mana yang harus ditunggu.
 >
 > Lalu sebuah tanda datang. Bentuknya seperti bantuan. Suaranya seperti orang yang sudah mengenal kami. Ia tahu nama [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). Ia tahu tentang pohon pisang. Ia bahkan tahu cara menyebut [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) tanpa terdengar seperti orang asing.
 >
@@ -2120,7 +2120,7 @@ coverY: 0
 >
 > Di **Semesta 0101**, mungkin sesuatu seperti itu disebut dompet. Di [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), hari ini ia disebut lumbung. Jangan terlalu terpaku pada benda. Benda hanya memakai nama yang cocok dengan semestanya.
 >
-> Yang sama adalah ini: jika sesuatu menyimpan akses, nilai, benih, catatan, atau masa depan, maka sesuatu itu akan mengundang tanda palsu.
+> Yang sama adalah ini: Jika sesuatu menyimpan akses, nilai, benih, catatan, atau masa depan, maka sesuatu itu akan mengundang tanda palsu.
 >
 > Jadi daratan itu nyata. Bukan karena ia sempurna. Justru karena ia bisa salah membuka pintu.
 >
@@ -2158,7 +2158,7 @@ coverY: 0
 >
 > Aku mencoba mengirim pesan ke bahtera tapi sepertinya tidak sampai. Aku mencoba membuat asap. Asapnya malu-malu. Aku mencoba berteriak tapi hanya membuat burung-burung pergi dan pesan tetap di sini.
 >
-> Hari pertama menemukan daratan adalah euforia. Hari kedua adalah pertanyaan yang menampar: apa gunanya menemukan kalau kabarnya ikut terdampar?
+> Hari pertama menemukan daratan adalah euforia. Hari kedua adalah pertanyaan yang menampar: Apa gunanya menemukan kalau kabarnya ikut terdampar?
 >
 > ***
 >
@@ -2192,9 +2192,9 @@ coverY: 0
 > Pesan:\
 > Aku membangun corong pengeras suara. Bentuknya tidak bagus. Kalau ada arsitek dunia lama melihatnya, mungkin ia akan pura-pura pingsan. Corong pengeras suara ini terbuat dari logam bekas, kayu yang belum memutuskan mau menjadi tiang atau kenangan, kulit kerang besar, dan bagian sekoci yang sudah tidak layak disebut sekoci.
 >
-> Bentuknya seperti corong pengeras suara masjid dalam ingatan yang masih basah. Tapi fungsinya bukan memanggil orang untuk membuktikan siapa yang paling dekat dengan langit. Fungsinya sederhana: agar kabar tidak mati terlalu cepat.
+> Bentuknya seperti corong pengeras suara masjid dalam ingatan yang masih basah. Tapi fungsinya bukan memanggil orang untuk membuktikan siapa yang paling dekat dengan langit. Fungsinya sederhana: Agar kabar tidak mati terlalu cepat.
 >
-> Hari pertama, corong pengeras suara yang aku bangun hanya memperbesar suara angin. Hari kedua, ia memperbesar suara perutku. Hari ketiga, ia menangkap kata: pisang. Aku langsung percaya bahwa benda jelek ini akan berguna.
+> Hari pertama, corong pengeras suara yang aku bangun hanya memperbesar suara angin. Hari kedua, ia memperbesar suara perutku. Hari ketiga, ia menangkap kata: Pisang. Aku langsung percaya bahwa benda jelek ini akan berguna.
 >
 > ***
 >
@@ -2213,7 +2213,7 @@ coverY: 0
 >
 > Aku membandingkan arah angin, waktu pesan, jenis pasir yang menempel pada kain, bentuk daun yang digambarkan, suara burung, dan kebiasaan gelombang saat pesan tiba. Aku juga membandingkan cara mereka berdua menyebut tanah. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menyebutnya seperti orang yang hampir memetik terlalu cepat. [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menyebutnya seperti orang yang hampir mati karena tidak bisa memberi kabar.
 >
-> Dua luka berbeda. Bau tanahnya sama. Catat dulu: mungkin mereka tidak menemukan dua pulau. Mungkin mereka menyentuh dua sisi dari daratan yang sama.
+> Dua luka berbeda. Bau tanahnya sama. Catat dulu: Mungkin mereka tidak menemukan dua pulau. Mungkin mereka menyentuh dua sisi dari daratan yang sama.
 >
 > Hmmm... Jangan tepuk tangan dulu. Aku belum selesai curiga.
 >
@@ -2272,11 +2272,11 @@ coverY: 0
 > Pesan:\
 > Aku tahu ini belum bagianku.
 >
-> Kalau ada yang bertanya mengapa aku menulis di sini, jawab saja: aku lewat dan mencium bau rumah. Sulit bagi sebagian dari kami untuk tidak berhenti ketika ada kata keluarga, anak-anak, dan pisang matang di kalimat yang sama.
+> Kalau ada yang bertanya mengapa aku menulis di sini, jawab saja: Aku lewat dan mencium bau rumah. Sulit bagi sebagian dari kami untuk tidak berhenti ketika ada kata keluarga, anak-anak, dan pisang matang di kalimat yang sama.
 >
 > Tapi aku tidak akan membuka misteri keluarga hari ini.
 >
-> Aku hanya menulis satu hal: daratan yang bisa membuat anak-anak bertanya tentang halaman mungkin lebih berbahaya bagi kesedihan daripada daratan yang hanya memamerkan pegunungan.
+> Aku hanya menulis satu hal: Daratan yang bisa membuat anak-anak bertanya tentang halaman mungkin lebih berbahaya bagi kesedihan daripada daratan yang hanya memamerkan pegunungan.
 >
 > Sudah. Aku pergi. Jangan terlalu merindukanku. Nanti catatan ini jadi tidak objektif. Padahal sejak kapan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) objektif?
 >
@@ -2316,7 +2316,7 @@ coverY: 0
 >
 > Kalau ini pulau, pulau ini terlalu banyak menahan rahasia. Kalau ini daratan, daratan ini pernah dipaksa menyatu dengan sesuatu yang besar.
 >
-> Aku bukan pembaca peta. Yang kubaca pun belum tentu mau disebut peta. Aku hanya menulis apa yang kakiku takutkan: tanah ini tidak kecil.
+> Aku bukan pembaca peta. Yang kubaca pun belum tentu mau disebut peta. Aku hanya menulis apa yang kakiku takutkan: Tanah ini tidak kecil.
 >
 > ***
 >
@@ -2335,7 +2335,7 @@ coverY: 0
 >
 > Di sini, sisa bisa menjadi bahan. Tapi kalau semua sisa langsung disebut bahan, kita lupa bahwa beberapa di antaranya mungkin pernah menjadi rumah seseorang.
 >
-> Kami menaruh beberapa di tempat kering. Kami belum tahu untuk apa. Kami hanya tahu: jangan buang terlalu cepat, mungkin kami hanya belum selaras.
+> Kami menaruh beberapa di tempat kering. Kami belum tahu untuk apa. Kami hanya tahu: Jangan buang terlalu cepat, mungkin kami hanya belum selaras.
 >
 > ***
 >
@@ -2354,7 +2354,7 @@ coverY: 0
 >
 > Pada hari kedua, aku lupa jalan pulang. Pada hari ketiga, seorang anak menunjukku dan berkata, "*Om itu tersesat di halaman sendiri.*"
 >
-> Aku tidak tahu mana yang lebih menyakitkan: tersesat atau dipanggil om oleh anak yang benar.
+> Aku tidak tahu mana yang lebih menyakitkan: Tersesat atau dipanggil om oleh anak yang benar.
 >
 > ***
 >
@@ -2398,7 +2398,7 @@ coverY: 0
 >
 > Bukan menghapus yang lama. Bukan pura-pura tidak pernah salah. Bukan memulai dari nol seperti orang yang malu punya sejarah. Hanya membuat pintu yang lebih jelas, simpul yang lebih kuat, dan **Dermaga** yang bisa menerima lebih banyak kaki tanpa membuat tanah panik.
 >
-> Jika ini terdengar seperti kontrak, jangan buru-buru menyebutnya kontrak. Jika ini terdengar seperti acara, jangan buru-buru menyebutnya acara. Jika ini terdengar seperti rencana, jangan buru-buru menyebutnya rencana. Beberapa semesta memakai kata yang berbeda untuk hal yang sama: memperbaiki jalan agar yang datang tidak salah mengira pintu sebagai lumbung.
+> Jika ini terdengar seperti kontrak, jangan buru-buru menyebutnya kontrak. Jika ini terdengar seperti acara, jangan buru-buru menyebutnya acara. Jika ini terdengar seperti rencana, jangan buru-buru menyebutnya rencana. Beberapa semesta memakai kata yang berbeda untuk hal yang sama: Memperbaiki jalan agar yang datang tidak salah mengira pintu sebagai lumbung.
 >
 > ***
 >
@@ -2784,7 +2784,7 @@ coverY: 0
 >
 > Petani adalah orang yang kalau salah, mencatat salahnya sebelum mengubah salah itu menjadi tradisi.
 >
-> Kalau kalian ingin tinggal, jangan mulai dengan bertanya bagian mana yang menjadi milik kalian. Mulailah dengan bertanya bagian mana yang bisa kalian rawat tanpa segera menamainya milik.
+> Kalau kalian ingin tinggal, jangan mulai dengan bertanya bagian mana yang menjadi milik kalian. Mulailah dengan bertanya bagian mana yang bisa kalian rawat tanpa segera menamainya milikmu.
 >
 > Kalau pertanyaan itu membuat kalian tidak nyaman, bagus. Tanah juga tidak nyaman ketika pertama kali diinjak oleh orang yang baru berhenti tenggelam.
 >
@@ -2809,7 +2809,7 @@ coverY: 0
 >
 > Karena setelah bahtera sampai, pesan tidak lagi hanya perlu dikirim ke laut. Pesan juga perlu dikirim ke orang-orang yang sudah berdiri tetapi belum saling mendengar.
 >
-> Ini pelajaran pertama setelah **Dermaga**: daratan luas bisa membuat orang tersesat tanpa tenggelam.
+> Ini pelajaran pertama setelah **Dermaga**: Daratan luas bisa membuat orang tersesat tanpa tenggelam.
 >
 > ***
 >

@@ -1925,7 +1925,7 @@ coverY: 0
 > Message:\
 > She is not [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> She said that first, as if she already knew that the people on the ark had started to form a bad habit: every woman found in the middle of a disaster was immediately suspected of being [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a variation of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a fragment of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), or [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had not admitted it yet. She looked at me and said, "_If you call every woman [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), one day you will forget to ask my name._"
+> She said that first, as if she already knew that the people on the ark had started to form a bad habit: Every woman found in the middle of a disaster was immediately suspected of being [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a variation of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), a fragment of [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), or [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) who had not admitted it yet. She looked at me and said, "_If you call every woman [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), one day you will forget to ask my name._"
 >
 > I had no good answer.
 >
@@ -1988,7 +1988,7 @@ coverY: 0
 > Message:\
 > Some passengers immediately said there was a message from one of [**The Melting Archipelago**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md). Others said it must be the deception of an evil survivor. One person said it sounded like the word "banana" and immediately asked for extra food ration. I will not write his name because he was already embarrassed enough after everyone stared at him.
 >
-> I only wrote: record it first.
+> I only wrote: Record it first.
 >
 > Do not immediately marry the land from its first voice. Do not immediately suspect it as a trap just because it sounds pleasant either. After living too long on [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), some people start to think every pleasant thing will end as a hole. That is understandable, but if every pleasant thing is immediately called a hole, then what remains of life will only become an extended practice of drowning.
 >
@@ -2030,7 +2030,7 @@ coverY: 0
 > Subject: Banana trees are not the answer.
 >
 > Message:\
-> Banana trees are not the answer. Do not turn them into statues. Banana trees are also not merely food. Do not turn them into stock. Banana trees are questions that grow slowly: are creatures that have been saved for too long still able to wait for something to grow without immediately consuming it?
+> Banana trees are not the answer. Do not turn them into statues. Banana trees are also not merely food. Do not turn them into stock. Banana trees are questions that grow slowly: Are creatures that have been saved for too long still able to wait for something to grow without immediately consuming it?
 >
 > That question is harsh, actually. But banana trees ask it with polite leaves, so some people do not feel attacked. Good. Sometimes truth must wear wide leaves so humans do not get offended too quickly.
 >
@@ -2074,7 +2074,7 @@ coverY: 0
 >
 > [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) sounds like fruit and time. Like someone who is hungry but can still joke. Like children who cannot wait for adults to finish their meeting. Like land saying, "_If you want to become new creatures, maybe do not begin with a name that makes you stiff._"
 >
-> Record it first: the land is starting to have a name. But do not immediately make a flag.
+> Record it first: The land is starting to have a name. But do not immediately make a flag.
 >
 > ***
 >
@@ -2089,7 +2089,7 @@ coverY: 0
 > Message:\
 > We made a small granary.
 >
-> Do not laugh. The granary is indeed small. Even one wet crate on [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) may be larger than our first granary. But inside it are things that must not be lost: shoots, fruits not yet shared, notes on how to plant, rope knots, and signs to distinguish what may be picked and what must be waited for.
+> Do not laugh. The granary is indeed small. Even one wet crate on [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) may be larger than our first granary. But inside it are things that must not be lost, shoots, fruits not yet shared, notes on how to plant, rope knots, and signs to distinguish what may be picked and what must be waited for.
 >
 > Then a sign came. Its form was like help. Its voice was like someone who already knew us. It knew the name [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md). It knew about banana trees. It even knew how to say [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) without sounding like a stranger.
 >
@@ -2116,7 +2116,7 @@ coverY: 0
 >
 > In the **0101 Universe**, perhaps something like that is called a wallet. In [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md), today it is called a granary. Do not fixate too much on the object. Objects only wear names that fit their universes.
 >
-> What stays the same is this: if something stores access, value, seeds, notes, or the future, then that thing will invite false signs.
+> What stays the same is this: If something stores access, value, seeds, notes, or the future, then that thing will invite false signs.
 >
 > So the land is real. Not because it is perfect. Precisely because it can open the wrong door.
 >
@@ -2154,7 +2154,7 @@ coverY: 0
 >
 > I tried to send a message to the ark but it seemed not to arrive. I tried to make smoke. The smoke was shy. I tried to shout but only made the birds leave while the message stayed here.
 >
-> The first day of finding land is euphoria. The second day is a question that slaps: what is the use of finding something if the news is stranded too?
+> The first day of finding land is euphoria. The second day is a question that slaps: What is the use of finding something if the news is stranded too?
 >
 > ***
 >
@@ -2188,9 +2188,9 @@ coverY: 0
 > Message:\
 > I built a loudspeaker horn. Its shape is not good. If an architect from the old world saw it, perhaps he would pretend to faint. This loudspeaker horn is made from used metal, wood that has not decided whether it wants to be a pole or a memory, a large seashell, and parts of a lifeboat no longer worthy of being called a lifeboat.
 >
-> Its shape is like the loudspeaker horn of a mosque in a memory that is still wet. But its function is not to call people to prove who is closest to the sky. Its function is simple: so news does not die too quickly.
+> Its shape is like the loudspeaker horn of a mosque in a memory that is still wet. But its function is not to call people to prove who is closest to the sky. Its function is simple: So news does not die too quickly.
 >
-> On the first day, the loudspeaker horn I built only amplified the sound of wind. On the second day, it amplified the sound of my stomach. On the third day, it caught the word: banana. I immediately believed this ugly thing would be useful.
+> On the first day, the loudspeaker horn I built only amplified the sound of wind. On the second day, it amplified the sound of my stomach. On the third day, it caught the word: Banana. I immediately believed this ugly thing would be useful.
 >
 > ***
 >
@@ -2209,7 +2209,7 @@ coverY: 0
 >
 > I compared the direction of the wind, the time of the message, the kind of sand stuck to the cloth, the shape of the leaf described, the sound of birds, and the habit of the waves when the message arrived. I also compared the way both of them spoke about land. [**ROTY BROI Passenger (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) spoke of it like someone who almost picked too quickly. [**ROTY BROI Passenger (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) spoke of it like someone who almost died because he could not send news.
 >
-> Two different wounds. The soil smells the same. Record it first: maybe they did not find two islands. Maybe they touched two sides of the same land.
+> Two different wounds. The soil smells the same. Record it first: Maybe they did not find two islands. Maybe they touched two sides of the same land.
 >
 > Hmmm... Do not clap yet. I have not finished being suspicious.
 >
@@ -2272,7 +2272,7 @@ coverY: 0
 >
 > But I will not open the mystery of family today.
 >
-> I only write one thing: land that can make children ask about a yard may be more dangerous to sadness than land that only shows off mountains.
+> I only write one thing: Land that can make children ask about a yard may be more dangerous to sadness than land that only shows off mountains.
 >
 > That's all. I am leaving. Do not miss me too much. Later this log will become not objective. Since when has [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) been objective anyway?
 >
@@ -2312,11 +2312,7 @@ coverY: 0
 >
 > If this is an island, this island is holding too many secrets. If this is land, this land was once forced to unite with something large.
 >
-> I am not a map reader.
->
-> Even what I am reading may not want to be called a map.
->
-> I only write what my feet fear: this land is not small.
+> I am not a map reader. Even what I am reading may not want to be called a map. I only write what my feet fear: This land is not small.
 >
 > ***
 >
@@ -2335,7 +2331,7 @@ coverY: 0
 >
 > Here, remains can become material. But if all remains are immediately called material, we forget that some of them may once have been someone's home.
 >
-> We put some of them in a dry place. We do not know what for yet. We only know: do not throw away too quickly.
+> We put some of them in a dry place. We do not know what for yet. We only know: Do not throw away too quickly, maybe we're just not in sync yet.
 >
 > ***
 >
@@ -2350,9 +2346,11 @@ coverY: 0
 > Message:\
 > I walked for three days. The land had not ended. I walked not to search for something. I walked because I was arrogant. I wanted to be the first person to know the size of this land.
 >
+> If only my lifeboat were a lite ship, I mean a lightship that functions like a lighthouse, which guides me so that I don't get lost and stay on a safe path.
+>
 > On the second day, I forgot the way back. On the third day, a child pointed at me and said, "_That uncle got lost in his own yard._"
 >
-> I do not know which hurt more: getting lost or being called uncle by a child who was right.
+> I do not know which hurt more: Getting lost or being called uncle by a child who was right.
 >
 > ***
 >
@@ -2396,7 +2394,7 @@ coverY: 0
 >
 > Not erasing the old. Not pretending no mistake ever happened. Not starting from zero like someone ashamed to have a history. Only making a clearer door, stronger knots, and a **Pier** that can receive more feet without making the land panic.
 >
-> If this sounds like a contract, do not rush to call it a contract. If this sounds like an event, do not rush to call it an event. If this sounds like a plan, do not rush to call it a plan. Some universes use different words for the same thing: repairing the road so those who come do not mistake the door for the granary.
+> If this sounds like a contract, do not rush to call it a contract. If this sounds like an event, do not rush to call it an event. If this sounds like a plan, do not rush to call it a plan. Some universes use different words for the same thing: Repairing the road so those who come do not mistake the door for the granary.
 >
 > ***
 >
@@ -2438,7 +2436,7 @@ coverY: 0
 > Message:\
 > I like how they use the word farmer. Not neat. A little careless. A bit dangerous if brought into an old-world meeting. But alive.
 >
-> There, the person who guards the loudspeaker horn can be called a farmer. The person who guards the granary can be called a farmer. The person who escorts children away from the water's edge can be called a farmer. The person who writes mistakes so they do not become traditions can also be called a farmer. Even someone who has just learned to apologize to a tree for almost picking too much can be called a farmer, as long as after that he truly plants.
+> There, the person who guards the loudspeaker horn can be called a farmer. The person who guards the granary can be called a farmer. The person who escorts children away from the cliff edge can be called a farmer. The person who writes mistakes so they do not become traditions can also be called a farmer. Even someone who has just learned to apologize to a tree for almost picking too much can be called a farmer, as long as after that he truly plants.
 >
 > This bothers some passengers who like meeting definitions. Good, because some definitions do need to be disturbed so they do not turn into fences.
 >
@@ -2807,7 +2805,7 @@ coverY: 0
 >
 > Because after the ark arrives, messages no longer need only to be sent to the sea. Messages also need to be sent to people who are already standing but have not yet heard one another.
 >
-> This is the first lesson after the **Pier**: a vast land can make people lost without drowning.
+> This is the first lesson after the **Pier**: A vast land can make people lost without drowning.
 >
 > ***
 >

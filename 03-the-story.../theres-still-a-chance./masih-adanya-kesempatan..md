@@ -1210,7 +1210,7 @@ coverY: 0
 >
 > Kami hampir membongkar papan hitung itu. Tapi salah satu penumpang yang selama ini jarang bicara berdiri. Ia berkata, "_Jangan hancurkan catatan hanya karena kita takut catatan disembah._"
 >
-> Yang lain berkata, "_Kalau tidak dicatat, yang kuat akan mengaku paling banyak bekerja. Yang dekat dengan Kapten akan terdengar paling sering. Yang diam akan hilang._"
+> Yang lain berkata, "_Kalau tidak dicatat, yang kuat akan mengaku paling banyak bekerja. Yang dekat dengan **Kapten** akan terdengar paling sering. Yang diam akan hilang._"
 >
 > Yang lain lagi berkata, "_Kalau dicatat, yang pandai mengejar catatan akan menguasai papan._"
 >
@@ -1222,7 +1222,7 @@ coverY: 0
 >
 > Setelah voting, kami tidak membuang [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Kami menurunkannya.
 >
-> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga tubuh. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga lapar. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga diam. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh membeli perlindungan seseorang dari tubuhnya sendiri. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh membuat seseorang merasa lebih hidup daripada yang lain. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan makanan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan air. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan saksi. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan tanggung jawab. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi Kapten. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi tuan.
+> [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga tubuh. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga lapar. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi harga diam. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh membeli perlindungan seseorang dari tubuhnya sendiri. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh membuat seseorang merasa lebih hidup daripada yang lain. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan makanan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan air. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan saksi. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan voting. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menggantikan tanggung jawab. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi **Kapten**. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak boleh menjadi tuan.
 >
 > [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) hanya boleh menjadi tanda jawaban. Jawaban atas panggilan. Jawaban atas kerja. Jawaban atas kehadiran. Jawaban atas undangan yang masih tertambat. Jawaban atas kehidupan yang belum berhenti menjawab.
 >
@@ -1286,13 +1286,11 @@ coverY: 0
 >
 > Ini yang kupelajari, uang lama meleleh karena ia terlalu lama berpura-pura menjadi daratan. Uang baru bisa ikut meleleh jika ia terlalu cepat percaya bahwa dirinya berbeda.
 >
-> Angka tidak jahat. Catatan tidak jahat. Imbalan tidak jahat. Token tidak jahat. Tetapi semua itu bisa menjadi jalan pulang bagi penyakit lama jika manusia berhenti bertanya, apa yang dijawab? Siapa yang dipanggil? Siapa yang bekerja? Siapa yang menyaksikan? Siapa yang terlalu lemah untuk menjawab tetapi tetap tidak boleh hilang? Siapa yang mulai berpura-pura hadir? Siapa yang mulai lapar demi catatan? Siapa yang mulai telanjang demi angka? Siapa yang mulai mengubah panggilan hidup menjadi pasar mati?
+> Angka tidak jahat. Catatan tidak jahat. Imbalan tidak jahat. Token tidak jahat. Tetapi semua itu bisa menjadi jalan pulang bagi penyakit lama jika manusia berhenti bertanya: Apa yang dijawab? Siapa yang dipanggil? Siapa yang bekerja? Siapa yang menyaksikan? Siapa yang terlalu lemah untuk menjawab tetapi tetap tidak boleh hilang? Siapa yang mulai berpura-pura hadir? Siapa yang mulai lapar demi catatan? Siapa yang mulai telanjang demi angka? Siapa yang mulai mengubah panggilan hidup menjadi pasar mati?
 >
 > Jika pertanyaan itu tidak lagi ditanyakan, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) akan menjadi uang lama. Jika pertanyaan itu terus ditanyakan, mungkin [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) masih bisa menjadi sesuatu yang lebih rendah daripada uang, dan karena itu lebih berguna daripada uang. Sebab yang kami butuhkan bukan benda yang berdiri di atas kehidupan. Yang kami butuhkan adalah tanda kecil yang membantu kehidupan tetap saling menjawab, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
 >
-> N.B.:
->
-> Ada satu hal lagi yang belum kumengerti. Setelah papan baru berdiri, beberapa catatan mulai muncul dengan cahaya yang tidak berasal dari lampu bahtera. Seakan-akan dari dalam papan baru itu muncul cahaya. Bahkan ada beberapa tanda terlihat seperti ditulis dari dalam papan itu.
+> N.B. Ada satu hal lagi yang belum kumengerti. Setelah papan baru berdiri, beberapa catatan mulai muncul dengan cahaya yang tidak berasal dari lampu bahtera. Seakan-akan dari dalam papan baru itu muncul cahaya. Bahkan ada beberapa tanda terlihat seperti ditulis dari dalam papan itu.
 >
 > Ada bayangan pulau. Ada panas matahari yang tidak sama dengan panas neraka. Ada aroma garam, kain, dinding putih, wajah-wajah yang menatap karya, dan tubuh-tubuh yang berdiri di sebuah ruang yang tidak bergoyang seperti bahtera.
 >

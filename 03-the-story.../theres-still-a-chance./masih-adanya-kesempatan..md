@@ -2793,7 +2793,7 @@ coverY: 0
 >
 > Tanggal Meleleh: 30 Januari 2023 (30 Januari 2023 B.M.)
 >
-> Pengirim: [**ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> Pengirim: [**Penumpang ROTY BROI (ID 410)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > Subjek: Corong pengeras suara kedua berguna.
 >

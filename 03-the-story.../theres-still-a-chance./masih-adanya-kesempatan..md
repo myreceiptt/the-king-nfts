@@ -33,7 +33,7 @@ coverY: 0
 > Komentar: Aye, aye, Kapten!!!
 >
 > ***
-> 
+>
 > Tanggal Siaran: 25 Januari 2022
 >
 > Penyiar: Media Massa Di Negeri **Entah Air Apa**
@@ -48,7 +48,7 @@ coverY: 0
 > Komentar: Anjiiir, aku merinding, woiii!!!!
 >
 > ***
-> 
+>
 > Tanggal Siaran: 30 Januari 2022
 >
 > Penyiar: Media Massa Di Negeri **Entah Air Apa**
@@ -63,7 +63,7 @@ coverY: 0
 > Komentar: Aaaarrrrgggghhhh!!!
 >
 > ***
-> 
+>
 > Tanggal Siaran: 10 Februari 2022
 >
 > Penyiar: Warga-Penduduk Di Negeri **Entah Air Apa**
@@ -78,7 +78,7 @@ coverY: 0
 > Komentar: Semua naik ke geladak, woiii!!!!
 >
 > ***
-> 
+>
 > Pidato [**Kapten ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
 > ### FENOMENA [DARATAN MELELEH](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -93,7 +93,7 @@ coverY: 0
 >
 > **Pak BROY** mendapati dirinya tidak dapat menemukan kedamaian meskipun dia telah meminum berliter-liter **Cairan Tanpa Nama**. Maka, **Pak BROY** memutuskan untuk membangun sebuah bahtera yang mampu bertahan ketika terjadi fenomena unik [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi.
 >
-> **Pak BROY** menamakan bahtera itu [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) karena terinspirasi dari bentuk [**ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti/) pada [**LOGO PABRIK ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti/) yang menyerupai bahtera untuk keadaan darurat, kondisi terjebak parah, tersangkut, terhimpit hingga terjepit.
+> **Pak BROY** menamakan bahtera itu [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) karena terinspirasi dari bentuk [**ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti) pada [**LOGO PABRIK ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti) yang menyerupai bahtera untuk keadaan darurat, kondisi terjebak parah, tersangkut, terhimpit hingga terjepit.
 >
 > #### UNDANGAN DENGAN NAMA SAMARAN
 >
@@ -171,7 +171,7 @@ coverY: 0
 > Hai, yang di sana. Ini... Ini [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Apakah ada orang di luar sana?
 >
 > ***
-> 
+>
 > Tanggal Siaran: Tidak Diketahui
 >
 > Penyiar: Penyintas Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -182,7 +182,7 @@ coverY: 0
 > Halo! Aku mencoba menghubungi siapa pun.
 >
 > ***
-> 
+>
 > Tanggal Siaran: Tidak Diketahui
 >
 > Penyiar: Penyintas Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -193,7 +193,7 @@ coverY: 0
 > Kami beruntung menemukan orang dengan transmisi ini.
 >
 > ***
-> 
+>
 > Tanggal Siaran: Tidak Diketahui
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -204,7 +204,7 @@ coverY: 0
 > Ketika tidak ada lagi daratan untuk berpijak, segalanya menjadi seperti lautan yang bergejolak. Seluruh kota hilang, tenggelam dalam [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
 > ***
-> 
+>
 > Tanggal Siaran: Tidak Diketahui
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -215,7 +215,7 @@ coverY: 0
 > Kantor Pengurangan Risiko Bencana Perserikatan Bangsa-Bangsa hari ini melaporkan bahwa bantuan mungkin tidak akan pernah tersedia dalam waktu dekat...
 >
 > ***
-> 
+>
 > Tanggal Siaran: Tidak Diketahui
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -226,7 +226,7 @@ coverY: 0
 > ...berbagai puing-puing digunakan sebagai tempat berdiri dan bertahan hidup, di tengah-tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md).
 >
 > ***
-> 
+>
 > Tanggal Siaran: Tidak Diketahui
 >
 > Penyiar: Media Massa Fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
@@ -237,7 +237,7 @@ coverY: 0
 > Kantor Pengurangan Risiko Bencana Perserikatan Bangsa-Bangsa telah membuat pengumuman yang menginstruksikan untuk membangun sebuah kapal penyelamat yang berfungsi sebagai semacam bahtera agar orang-orang yang dapat bertahan hidup dapat tinggal di sana.
 >
 > ***
-> 
+>
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
 > Tanggal Meleleh: 14 Februari 2022
@@ -255,7 +255,7 @@ coverY: 0
 
 ***
 
-#### [Kepulauan Meleleh](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md)
+#### Kepulauan Meleleh
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
@@ -309,12 +309,12 @@ coverY: 0
 >
 > Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sedang berdiri di dekat tepian [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) ketika ledakan itu terjadi. Dia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang membawa peta. Atau mungkin dia adalah [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang sama. Aku tidak lagi bisa memastikan, karena setiap [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memiliki wajah yang sama, nama yang sama, namun masing-masing membawa cara bertahan hidup yang berbeda.
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang satu ini mengenakan sesuatu yang tampak seperti seragam petugas komunikasi yang sudah robek. Dia tidak berteriak ketika ledakan itu mengguncang udara. Dia hanya memejamkan mata, mendengarkan gemanya, lalu berkata, "*Itu bukan suara daratan runtuh.*"
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang satu ini mengenakan sesuatu yang tampak seperti seragam petugas komunikasi yang sudah robek. Dia tidak berteriak ketika ledakan itu mengguncang udara. Dia hanya memejamkan mata, mendengarkan gemanya, lalu berkata, "_Itu bukan suara daratan runtuh._"
 >
-> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain, yang masih memegang bundel peta, menjawab dari belakangnya, "*Tidak. Itu adalah kiriman.*"
+> [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang lain, yang masih memegang bundel peta, menjawab dari belakangnya, "_Tidak. Itu adalah kiriman._"
 >
 > Tidak ada yang bertanya bagaimana dia tahu. Atau mungkin semua orang ingin bertanya, tapi tidak ada yang punya cukup keberanian untuk mendengar jawabannya. Bagiku, itu adalah sesuatu yang aneh dalam teori yang lainnya. Daratan sedang meleleh. Waktu sudah retak. Perempuan yang sama terus muncul dari gelombang dengan nama yang sama.
-> 
+>
 > Dan sekarang, sebelum siapa pun dari kami sempat memahami peta-peta itu, perang telah menemukan kami di tengah antah-berantah. Jauh di seberang permukaan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus bergerak, sebuah bahtera sangat mutakhir buatan Rusia menembakkan bom ke arah bahtera lain yang kemudian diketahui sebagai bahtera Ukraina.
 >
 > Aku mengulanginya karena amarahku masih membutuhkan bentuk. Di tengah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), ketika setiap makhluk hidup sudah berjuang agar tidak tenggelam, masih ada yang memilih untuk menjatuhkan bom. Ini adalah keanehan dalam teori yang lain lagi. Ketika dunia masih utuh, mereka bilang perang terjadi karena manusia berebut tanah. Sekarang tidak ada lagi tanah, dan perang tetap menemukan cara untuk mengapung.
@@ -345,7 +345,7 @@ coverY: 0
 >
 > Kami tidak tahu apakah pesan itu akan sampai kepada siapa pun. Tapi ternyata sampai. Balasan pertama tidak datang dari sebuah bendera. Balasan itu datang melalui transmisi yang rusak. Suaranya tidak jelas pada awalnya, ditelan statik, angin, dan suara [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terus mendorong segala sesuatu yang masih mengapung. Lalu kami mendengarnya.
 >
-> "*Ini [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).*"
+> "_Ini_ [_**Amanda**_](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)_._"
 >
 > Semua orang di bahtera membeku. Karena suara itu tidak datang dari [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) mana pun yang ada di atas bahtera kami. Transmisi itu datang dari bahtera lain.
 >
@@ -353,13 +353,13 @@ coverY: 0
 >
 > Aku bertanya kepada para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) di atas bahtera apakah mereka mengenal [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dari bahtera lain itu. Mereka menjawab berbeda.
 >
-> Satu berkata, "*Belum.*"
+> Satu berkata, "_Belum._"
 >
-> Satu berkata, "*Mungkin.*"
+> Satu berkata, "_Mungkin._"
 >
-> Satu berkata, "*Dia mendengar hal yang sama.*"
+> Satu berkata, "_Dia mendengar hal yang sama._"
 >
-> Aku bertanya apa yang dia dengar. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek menunjuk ke arah layar dan berkata, "*Itu.*"
+> Aku bertanya apa yang dia dengar. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) dengan seragam petugas komunikasi yang robek menunjuk ke arah layar dan berkata, "_Itu._"
 >
 > [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md)
 >
@@ -406,15 +406,15 @@ coverY: 0
 >
 > Aku ingin berkata "kelinci", tapi tidak ada yang mengatakan "kelinci". Semua orang menunjuk dan meneriakkan nama yang sama:
 >
-> "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
+> "[_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)_!_"
 >
-> "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
+> "[_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)_!_"
 >
-> "_Ada [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
+> "_Ada_ [_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)_!_"
 >
-> "_Lihat, itu [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)!_"
+> "_Lihat, itu_ [_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md)_!_"
 >
-> Aku tidak tahu siapa yang mengajari mereka nama itu. Aku tidak tahu apakah nama itu datang dari ingatan, gosip, ketakutan, harapan, atau keanehan dalam teori yang lain. Tapi sejak saat itu, aku menuliskannya di catatan ini sebagai [**Luffy si Kelinci**](/02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
+> Aku tidak tahu siapa yang mengajari mereka nama itu. Aku tidak tahu apakah nama itu datang dari ingatan, gosip, ketakutan, harapan, atau keanehan dalam teori yang lain. Tapi sejak saat itu, aku menuliskannya di catatan ini sebagai [**Luffy si Kelinci**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md).
 >
 > Yang aneh bukan hanya karena mereka bertahan hidup. Yang aneh adalah semua orang seolah-olah percaya bahwa melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) berarti mendapatkan akses kepada sesuatu yang baik.
 >
@@ -428,13 +428,13 @@ coverY: 0
 >
 > Mereka tidak berlari mengejar [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) seperti banyak penumpang lain. Mereka tidak berteriak dengan rasa lapar yang sama. Mereka tidak berdebat tentang [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) mana yang lebih membawa keberuntungan. Mereka hanya memperhatikan, kadang tersenyum, kadang mengabaikan, kadang tampak seolah-olah mereka sudah pernah melihat semua ini sebelumnya.
 >
-> Seorang penumpang berteriak dari sisi bahtera, "_Ada [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) melompat ke tumpukan ban bekas!_"
+> Seorang penumpang berteriak dari sisi bahtera, "_Ada_ [_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) _melompat ke tumpukan ban bekas!_"
 >
-> Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menjawab tanpa menoleh, "_Itu [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sejak kemarin mencoba naik ke bahtera ini._"
+> Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) menjawab tanpa menoleh, "_Itu_ [_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) _yang sejak kemarin mencoba naik ke bahtera ini._"
 >
 > Semua orang diam selama beberapa detik. Lalu semua orang mulai berbicara lagi, karena kesunyian tidak pernah bertahan lama di atas bahtera yang penuh dengan penyintas.
 >
-> Sore lainnya, di dekat buritan bahtera, ketika angin tidak terlalu kejam dan gelombang sedang berpura-pura lembut, salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tiba-tiba bertanya, "_Sudah melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang menggigit wortel dan memakai topi hot dog?_"
+> Sore lainnya, di dekat buritan bahtera, ketika angin tidak terlalu kejam dan gelombang sedang berpura-pura lembut, salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) tiba-tiba bertanya, "_Sudah melihat_ [_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) _yang menggigit wortel dan memakai topi hot dog?_"
 >
 > Semua orang yang sedang saling bertukar cerita tentang melihat, menyelamatkan, mengejar, menangkap, memberi makan, dan memelihara [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) langsung berhenti bicara. Tidak ada yang tahu apakah dia sedang bercanda. Tidak ada yang tahu apakah dia sedang memberi peringatan. Tidak ada yang tahu apakah wortel dan hot dog memang seharusnya bisa berada bersama dalam teori yang masuk akal. Bagiku, itu adalah keanehan dalam teori yang lain.
 >
@@ -448,9 +448,9 @@ coverY: 0
 >
 > Pada akhirnya, jumlahnya tidak bertambah melewati 47. Hanya [**47 Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Empat puluh tujuh, dan masing-masing terasa seperti satu dari satu. Tidak ada dua [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang benar-benar sama.
 >
-> Bahkan ketika dua penumpang bersumpah bahwa mereka melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sama, seorang [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) kadang berkata, "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sama. Rasa lapar yang berbeda._"
+> Bahkan ketika dua penumpang bersumpah bahwa mereka melihat [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang sama, seorang [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) kadang berkata, "[_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) _yang sama. Rasa lapar yang berbeda._"
 >
-> Atau, "_[**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) yang berbeda. Lompatan yang sama._"
+> Atau, "[_**Luffy**_](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) _yang berbeda. Lompatan yang sama._"
 >
 > Atau, "_Jangan hanya menghitung telinga._"
 >
@@ -468,7 +468,7 @@ coverY: 0
 >
 > Sampai catatan ini ditulis, aku masih tidak tahu keberuntungan macam apa yang dibawa oleh [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Aku tidak tahu wujud keuntungannya. Aku tidak tahu apakah memelihara [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) membuat seseorang menjadi kaya, selamat, sehat, dicintai, diingat, atau hanya menjadi tidak terlalu putus asa.
 >
-> Tapi mungkin justru itu bagian yang penting. Mungkin nilai itu tidak hanya ada pada keberuntungannya. Mungkin nilai itu ada pada harapan bahwa keberuntungan masih mungkin ada. 
+> Tapi mungkin justru itu bagian yang penting. Mungkin nilai itu tidak hanya ada pada keberuntungannya. Mungkin nilai itu ada pada harapan bahwa keberuntungan masih mungkin ada.
 >
 > Karena harapan itu membuat orang memperhatikan. Harapan itu membuat mereka peduli. Harapan itu membuat mereka melindungi sesuatu yang lebih kecil daripada diri mereka sendiri. Harapan itu membuat mereka menghitung, menggambar, membandingkan, berbicara, tertawa, berdebat, voting, belajar, bekerja, bermain, dan berdoa.
 >
@@ -576,15 +576,15 @@ coverY: 0
 >
 > Penemuan pertama tidak datang dari pencarian resmi. Penemuan itu datang dari sebuah teriakan. Mereka yang tinggal di atas permukaan berteriak kepada mereka yang menyelam ke bawah, "_BOII! BOII!_"
 >
-> Para penyelam menghilang ke dalam permukaan tebal [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kami menunggu. Tali-tali bergetar. Lumpur bergelembung. Sebagian kembali sambil terbatuk tanpa membawa apa pun. Sebagian kembali sambil menangis setelah hanya menemukan kantong-kantong udara kosong. Lalu, dari bawah, sebuah jawaban terdengar, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
+> Para penyelam menghilang ke dalam permukaan tebal [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). Kami menunggu. Tali-tali bergetar. Lumpur bergelembung. Sebagian kembali sambil terbatuk tanpa membawa apa pun. Sebagian kembali sambil menangis setelah hanya menemukan kantong-kantong udara kosong. Lalu, dari bawah, sebuah jawaban terdengar, "[_**OiOi! OiOi!**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)"
 >
 > Mereka telah menemukannya. Babi-babi di dalam kantong udara.
 >
 > Setelah itu, panggilan itu menjadi sebuah sistem. Dari atas, "_BOII! BOII!_"
 >
-> Dari bawah, jika kehidupan ditemukan, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
+> Dari bawah, jika kehidupan ditemukan, "[_**OiOi! OiOi!**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)"
 >
-> Begitulah nama itu menyebar ke seluruh bahtera, [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/).
+> Begitulah nama itu menyebar ke seluruh bahtera, [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi).
 >
 > Bukan sekadar babi. Bukan hanya daging. Bukan hanya hewan yang terperangkap di bawah lumpur. Mereka menjadi panggilan dan jawaban. Tanda bahwa sesuatu yang hidup masih tersembunyi di bawah kematian permukaan.
 >
@@ -610,7 +610,7 @@ coverY: 0
 >
 > Kami melakukan voting. Keputusan itu tidak sederhana. Voting itu tidak menghapus keyakinan siapa pun. Voting itu tidak memerintahkan setiap mulut untuk makan. Voting itu menetapkan hukum darurat bagi bahtera:
 >
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) akan diselamatkan, dilindungi, dibiakkan, dan digunakan sebagai makanan bertahan hidup berdasarkan kesepakatan darurat.
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) akan diselamatkan, dilindungi, dibiakkan, dan digunakan sebagai makanan bertahan hidup berdasarkan kesepakatan darurat.
 >
 > Kami tidak akan mengulangi kesalahan terhadap [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md). Kami tidak akan mengonsumsi tanpa melanjutkan. Kami tidak akan berburu tanpa membiakkan. Kami tidak akan mengubah rasa lapar menjadi pemerintahan.
 >
@@ -618,11 +618,11 @@ coverY: 0
 >
 > Pesan-pesan dikirim ke luar. Panggilan itu menyebar, "_BOII! BOII!_"
 >
-> Jawaban itu menyebar, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
+> Jawaban itu menyebar, "[_**OiOi! OiOi!**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)"
 >
 > Kendaraan-kendaraan penyelamat lain mencoba melakukan hal yang sama. Sebagian berhasil untuk sementara. Sebagian besar gagal.
 >
-> Di luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), banyak yang masih bisa menemukan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) di dalam kantong-kantong udara di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tetapi hampir tidak ada yang bisa menjaga mereka tetap berkembang biak.
+> Di luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), banyak yang masih bisa menemukan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) di dalam kantong-kantong udara di bawah [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tetapi hampir tidak ada yang bisa menjaga mereka tetap berkembang biak.
 >
 > Hewan-hewan itu melemah. Sebagian berhenti makan. Sebagian menolak air. Sebagian menjadi sakit setelah dibawa ke atas permukaan. Sebagian melarikan diri kembali ke dalam lumpur. Sebagian mati sebelum memberikan kehidupan kepada generasi berikutnya.
 >
@@ -636,13 +636,13 @@ coverY: 0
 >
 > Aku paham sebelum dia mengatakan sisanya. Air daur ulang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) telah terkontaminasi jejak **Cairan Tanpa Nama**. Cairan dari negeri **Entah Air Apa**. Cairan yang dulu membawa kedamaian bagi mereka yang meminumnya. Cairan yang tidak bisa menyelamatkan **Pak BROY** dari ketakutan, tetapi mungkin bisa membantu bahtera menjaga sesuatu tetap hidup.
 >
-> Itulah mengapa [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) hidup lebih baik di sini. Itulah mengapa mereka lebih cepat tenang. Itulah mengapa mereka berkembang biak. Itulah mengapa keselamatan kami mulai terlihat seperti sebuah rahasia.
+> Itulah mengapa [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) hidup lebih baik di sini. Itulah mengapa mereka lebih cepat tenang. Itulah mengapa mereka berkembang biak. Itulah mengapa keselamatan kami mulai terlihat seperti sebuah rahasia.
 >
 > Aku bertanya apakah kami harus memberitahukannya kepada semua orang. Para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) saling menatap. Satu berkata, "_Jika ini menjadi gosip, mereka akan meminum sistemnya sebelum sistem itu bisa memberi mereka makan._"
 >
 > Yang lain berkata, "_Air kedamaian harus menjadi infrastruktur, bukan kepanikan._"
 >
-> Yang lain lagi berkata, "_Jaga ini antara **Kapten** dan para [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) sampai bahtera belajar melindungi sesuatu yang sedang melindunginya._"
+> Yang lain lagi berkata, "_Jaga ini antara **Kapten** dan para_ [_**Amanda**_](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) _sampai bahtera belajar melindungi sesuatu yang sedang melindunginya._"
 >
 > Jadi aku menjaga rahasia itu. Aku menuliskannya di sini karena catatan bukan gosip. Catatan adalah beban yang diteruskan kepada **Kapten** berikutnya.
 >
@@ -654,7 +654,7 @@ coverY: 0
 >
 > Kami mencoba menemukan mereka. Kami berkali-kali gagal. Sebagian mungkin masih menunggu. Sebagian mungkin sudah tidak sanggup menunggu.
 >
-> Sampai catatan ini ditulis, aku khawatir bahwa di luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) menjadi semakin sulit ditemukan.
+> Sampai catatan ini ditulis, aku khawatir bahwa di luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) menjadi semakin sulit ditemukan.
 >
 > Kantong-kantong udara semakin kosong. Para pemburu semakin lelah. Para peternak gagal. Rasa lapar kembali ke mata.
 >
@@ -662,11 +662,11 @@ coverY: 0
 >
 > Jika kami tidak bisa memproduksi makanan, kami akan mengonsumsi satu sama lain. Jika kami tidak bisa sepakat tentang makanan, suara kami akan berubah menjadi pisau. Jika kami tidak bisa melindungi sesuatu yang mampu terus hidup, keselamatan akan berakhir setelah satu kali makan.
 >
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengajari kami bahwa kehidupan di bawah permukaan masih bisa menjawab ketika dipanggil dengan benar.
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) mengajari kami bahwa kehidupan di bawah permukaan masih bisa menjawab ketika dipanggil dengan benar.
 >
 > Dari atas, "_BOII! BOII!_"
 >
-> Dari bawah, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
+> Dari bawah, "[_**OiOi! OiOi!**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)"
 >
 > Untuk semua penerusku, dan untuk semua yang membaca catatan ini. Jangan menunggu sampai rasa lapar menjadi **Kapten** kalian. Bangun sistem sebelum perut menulis hukum. Beri makan yang hidup tanpa membunuh masa depan.
 
@@ -676,7 +676,7 @@ coverY: 0
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah pembiakan pertama [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/))
+> Tanggal Meleleh: Tidak Diketahui (setelah pembiakan pertama [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi))
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -685,7 +685,7 @@ coverY: 0
 >
 > Tapi setelah makanan, muncul pertanyaan lain. Bagaimana kami melindungi apa yang sedang kami usahakan agar tetap hidup?
 >
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) memberi kami makanan yang bisa terus berlanjut. Air daur ulang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), yang terkontaminasi jejak **Cairan Tanpa Nama**, memberi kehidupan itu kesempatan untuk berkembang biak. Kesepakatan yang kami buat mencegah rasa lapar menjadi raja. Tapi semua itu masih membutuhkan tangan, penyelam, tukang perbaikan, penjaga, pengangkut, peternak, juru masak, tenaga medis, dan pembawa pesan. Mereka semua lelah. Mereka semua rapuh. Mereka semua masih bisa dihancurkan oleh gelombang, lumpur, logam, kepanikan, bom, dan niat buruk dari makhluk hidup lainnya.
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) memberi kami makanan yang bisa terus berlanjut. Air daur ulang [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), yang terkontaminasi jejak **Cairan Tanpa Nama**, memberi kehidupan itu kesempatan untuk berkembang biak. Kesepakatan yang kami buat mencegah rasa lapar menjadi raja. Tapi semua itu masih membutuhkan tangan, penyelam, tukang perbaikan, penjaga, pengangkut, peternak, juru masak, tenaga medis, dan pembawa pesan. Mereka semua lelah. Mereka semua rapuh. Mereka semua masih bisa dihancurkan oleh gelombang, lumpur, logam, kepanikan, bom, dan niat buruk dari makhluk hidup lainnya.
 >
 > Saat itulah [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menjadi keanehan lain dalam teori.
 >
@@ -767,7 +767,7 @@ coverY: 0
 >
 > Lalu dia menyentuh pelat di sekitar dadanya dan berkata, "_Tapi ini zirah._"
 >
-> Dia terdiam, seolah-olah sebuah nama hampir mencapai mulutnya. Sebelum dia sempat mengatakannya, [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_[**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)._"
+> Dia terdiam, seolah-olah sebuah nama hampir mencapai mulutnya. Sebelum dia sempat mengatakannya, [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "[_**Liquid Armor**_](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md)_._"
 >
 > [**Penumpang ROTY BROI (ID 536)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) menatapnya. Untuk sesaat, dia terlihat lebih takut pada nama itu daripada pada zirah itu sendiri. Lalu dia berkata, "_Tepat sekali. Itu yang tadi terlintas di pikiranku._"
 >
@@ -783,7 +783,7 @@ coverY: 0
 >
 > Zirah itu tidak membuat pemakainya suci. Zirah itu tidak menghapus amarah. Zirah itu tidak menghilangkan rasa takut. Zirah itu tidak membuat siapa pun bijaksana. Zirah itu hanya menolak menjadi jalan yang bersih antara niat jahat dan rasa sakit makhluk hidup lainnya.
 >
-> Tentu saja, bahtera menjadi riuh ketika orang-orang mengetahui apa yang terjadi. Sebagian menginginkan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) untuk para penyelam. Sebagian menginginkannya untuk tim perbaikan. Sebagian menginginkannya untuk mereka yang membawa air. Sebagian menginginkannya untuk mereka yang menjaga [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Sebagian menginginkannya karena mereka takut pada bom berikutnya. Sebagian menginginkannya karena mereka ingin merasa kuat. Sebagian menginginkannya karena kulit mereka sudah terlalu banyak terluka oleh lumpur, tali, karat, dan kerja. Sebagian menginginkannya karena mereka tidak percaya kepada orang lain. Sebagian menginginkannya karena mereka ingin orang lain percaya kepada mereka. Sebagian menginginkannya karena alasan yang tidak bisa mereka ucapkan dengan lantang.
+> Tentu saja, bahtera menjadi riuh ketika orang-orang mengetahui apa yang terjadi. Sebagian menginginkan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) untuk para penyelam. Sebagian menginginkannya untuk tim perbaikan. Sebagian menginginkannya untuk mereka yang membawa air. Sebagian menginginkannya untuk mereka yang menjaga [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi). Sebagian menginginkannya karena mereka takut pada bom berikutnya. Sebagian menginginkannya karena mereka ingin merasa kuat. Sebagian menginginkannya karena kulit mereka sudah terlalu banyak terluka oleh lumpur, tali, karat, dan kerja. Sebagian menginginkannya karena mereka tidak percaya kepada orang lain. Sebagian menginginkannya karena mereka ingin orang lain percaya kepada mereka. Sebagian menginginkannya karena alasan yang tidak bisa mereka ucapkan dengan lantang.
 >
 > Maka kami berdebat lagi. Kami pernah berdebat tentang makanan. Kami pernah berdebat tentang keyakinan. Kami pernah berdebat tentang voting. Kami pernah berdebat tentang peta, bom, kelinci, babi, dan air. Sekarang kami berdebat tentang perlindungan.
 >
@@ -793,7 +793,7 @@ coverY: 0
 >
 > Penggunaan kedua terjadi di lambung bahtera. Seorang tukang perbaikan yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) memanjat ke bagian luar [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) saat badai lumpur, kayu patah, dan serpihan logam menerjang. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu tidak membuatnya kebal, tetapi menahan luka-luka yang seharusnya diterima kulitnya. Zirah itu menumbuhkan kait sementara ketika dia perlu menahan sisi bahtera. Zirah itu menutup rapat di sekitar kakinya ketika permukaan menjadi terlalu licin. Ketika gelombang mencoba menariknya pergi, [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu menyebar seperti jaring gelap di punggungnya dan membuatnya tetap terikat pada tali.
 >
-> Penggunaan ketiga terjadi di divisi makanan. Seseorang yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang lebih ringan membawa pakan, air, dan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) yang sakit tanpa menghancurkan mereka, menjatuhkan mereka, atau mengontaminasi wadah yang salah. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) belajar kelembutan dari pengulangan. Zirah itu menjadi lebih keras di dekat bahaya, lebih lembut di dekat napas, dan hampir seperti kain ketika menyentuh kehidupan yang baru lahir.
+> Penggunaan ketiga terjadi di divisi makanan. Seseorang yang mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) yang lebih ringan membawa pakan, air, dan [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) yang sakit tanpa menghancurkan mereka, menjatuhkan mereka, atau mengontaminasi wadah yang salah. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) belajar kelembutan dari pengulangan. Zirah itu menjadi lebih keras di dekat bahaya, lebih lembut di dekat napas, dan hampir seperti kain ketika menyentuh kehidupan yang baru lahir.
 >
 > Penggunaan keempat terjadi ketika dua laki-laki bertengkar soal air. Salah satu dari mereka mengenakan [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md). Itu adalah ujian yang paling kutakuti. Dia mengangkat lengannya dengan niat untuk memukul. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) itu meleleh dari sikunya sampai pergelangan tangannya. Tidak cukup untuk menyakitinya. Cukup untuk membuat pukulan itu gagal. Dia berteriak bahwa [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) telah mengkhianatinya. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_Tidak. Ia mengingat mengapa ia dilahirkan._"
 >
@@ -821,7 +821,7 @@ coverY: 0
 >
 > [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) mengubah bahtera. Para penyelam lebih sering kembali. Para tukang perbaikan bertahan lebih lama. Tong-tong air menjadi lebih aman. Divisi makanan bekerja dengan lebih sedikit cedera.
 >
-> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) dilindungi tanpa diperlakukan seperti harta karun yang dimiliki oleh segelintir orang.
+> [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) dilindungi tanpa diperlakukan seperti harta karun yang dimiliki oleh segelintir orang.
 >
 > Anak-anak dari kendaraan-kendaraan yang bergabung berhenti menangis setiap kali badai menghantam sisi bahtera, karena para pekerja berzirah bisa berdiri di luar dan membuat bahtera terasa tidak terlalu sendirian.
 >
@@ -965,7 +965,7 @@ coverY: 0
 >
 > Aku ingin menolak pesan itu. Tapi setelah semua yang kami lihat, penolakan menjadi lebih sulit daripada rasa takut.
 >
-> Kami telah melihat daratan berperilaku seperti air. Kami telah melihat waktu tidak sepakat dengan kalender. Kami telah melihat banyak perempuan dengan nama yang sama, semuanya bernama [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kami telah melihat bom mengapung di dunia tanpa daratan. Kami telah melihat seekor kelinci menjadi lebih dari sekadar kelinci. Kami telah melihat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengubah rasa lapar menjadi sistem yang dapat diperdebatkan sebelum menjadi kekerasan. Kami telah melihat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) menolak tangan yang ingin menyakiti.
+> Kami telah melihat daratan berperilaku seperti air. Kami telah melihat waktu tidak sepakat dengan kalender. Kami telah melihat banyak perempuan dengan nama yang sama, semuanya bernama [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kami telah melihat bom mengapung di dunia tanpa daratan. Kami telah melihat seekor kelinci menjadi lebih dari sekadar kelinci. Kami telah melihat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) mengubah rasa lapar menjadi sistem yang dapat diperdebatkan sebelum menjadi kekerasan. Kami telah melihat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) menolak tangan yang ingin menyakiti.
 >
 > Jadi aku mendengarkan.
 >
@@ -973,13 +973,13 @@ coverY: 0
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) berkata:
 >
-> "_[**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tidak lagi perlu membisikkan kejahatan kepada manusia agar manusia masuk neraka._"
+> "[_**Setan**_](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) _tidak lagi perlu membisikkan kejahatan kepada manusia agar manusia masuk neraka._"
 >
-> "_Manusia tidak lagi perlu membisikkan kebaikan kepada [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) agar [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) masuk surga._"
+> "_Manusia tidak lagi perlu membisikkan kebaikan kepada_ [_**Setan**_](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) _agar_ [_**Setan**_](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) _masuk surga._"
 >
 > "_Manusia sudah mulai menjalankan kejahatan dengan sendirinya._"
 >
-> "_[**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) sudah mulai menjalankan kebaikan dengan sendirinya._"
+> "[_**Setan**_](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) _sudah mulai menjalankan kebaikan dengan sendirinya._"
 >
 > Aku bertanya kepada [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) apakah itu sebuah pengakuan, ancaman, atau bentuk manipulasi yang lain.
 >
@@ -1021,7 +1021,7 @@ coverY: 0
 >
 > Menolak semua makhluk yang rusak tidak otomatis menciptakan dunia yang bersih. Kadang itu hanya menyembunyikan kerusakan di luar dinding sampai ia belajar kembali sebagai bendera yang lebih bersih.
 >
-> [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang kami izinkan tinggal di dekat bahtera adalah [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan di area tidur. Bukan di dekat makanan. Bukan di dekat air. Bukan di dekat peta. Bukan di dekat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Bukan di dekat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) tanpa saksi.
+> [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang kami izinkan tinggal di dekat bahtera adalah [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan di area tidur. Bukan di dekat makanan. Bukan di dekat air. Bukan di dekat peta. Bukan di dekat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi). Bukan di dekat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) tanpa saksi.
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tinggal di geladak pendengar paling luar, tempat transmisi rusak, botol, pesan kain, catatan yang dibawa burung, dan bisikan mustahil dikumpulkan.
 >
@@ -1140,13 +1140,13 @@ coverY: 0
 >
 > Begitu juga dengan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). Selama ia terdengar, kami tidak menyadarinya sebagai sistem. Ketika ia tidak terdengar, kami mulai takut.
 >
-> Aku tahu, suatu hari nanti mungkin ada pembaca yang mengira [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) lahir dari [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/). Itu tidak sepenuhnya benar. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) bukan kelahiran [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) adalah saat [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) untuk pertama kalinya menjadi bukti.
+> Aku tahu, suatu hari nanti mungkin ada pembaca yang mengira [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) lahir dari [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi). Itu tidak sepenuhnya benar. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) bukan kelahiran [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md). [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) adalah saat [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) untuk pertama kalinya menjadi bukti.
 >
 > Sebelum itu, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah kebiasaan. Setelah itu, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) menjadi tanda bahwa panggilan tidak pulang dengan tangan kosong.
 >
 > Dari atas, kami berteriak, "_BOII! BOII!_"
 >
-> Dari bawah, jika tidak ada apa-apa, hanya lumpur yang menjawab. Tapi ketika kehidupan ditemukan, ketika sesuatu masih bernapas di bawah kematian permukaan, ketika tali masih bisa menarik pulang harapan, dari bawah terdengar, "_[**OiOi! OiOi!**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_"
+> Dari bawah, jika tidak ada apa-apa, hanya lumpur yang menjawab. Tapi ketika kehidupan ditemukan, ketika sesuatu masih bernapas di bawah kematian permukaan, ketika tali masih bisa menarik pulang harapan, dari bawah terdengar, "[_**OiOi! OiOi!**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)"
 >
 > Sejak saat itu, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) tidak lagi hanya menjadi suara yang lewat di antara percakapan. Ia menjadi tanda bahwa sesuatu menjawab. Ia menjadi tanda bahwa panggilan menemukan hasil. Ia menjadi tanda bahwa kerja tidak kembali sebagai kekosongan. Ia menjadi tanda bahwa masih ada kehidupan yang bisa dipanggil keluar dari bawah dunia yang meleleh.
 >
@@ -1156,7 +1156,7 @@ coverY: 0
 >
 > Jawaban.
 >
-> Siapa yang menjaga air ketika semua orang tidur? Siapa yang memperbaiki lambung ketika badai membuat besi dan kayu terdengar seperti gigi yang patah? Siapa yang menyelam dan kembali dengan sesuatu yang masih hidup? Siapa yang merawat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) tanpa menjadikannya harta pribadi? Siapa yang memakai [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) untuk bekerja, bukan untuk berdiri lebih tinggi daripada yang tidak berzirah? Siapa yang membawa pesan agar pertolongan lebih dahulu jatuh daripada bom? Siapa yang tetap berada di bahtera ketika undangannya bisa saja dibawa pergi, dijual, ditukar, atau dilupakan?
+> Siapa yang menjaga air ketika semua orang tidur? Siapa yang memperbaiki lambung ketika badai membuat besi dan kayu terdengar seperti gigi yang patah? Siapa yang menyelam dan kembali dengan sesuatu yang masih hidup? Siapa yang merawat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) tanpa menjadikannya harta pribadi? Siapa yang memakai [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) untuk bekerja, bukan untuk berdiri lebih tinggi daripada yang tidak berzirah? Siapa yang membawa pesan agar pertolongan lebih dahulu jatuh daripada bom? Siapa yang tetap berada di bahtera ketika undangannya bisa saja dibawa pergi, dijual, ditukar, atau dilupakan?
 >
 > Kami sudah punya 1047 undangan. Tapi undangan membuktikan pernah ada pintu. Undangan tidak selalu membuktikan bahwa seseorang masih tinggal, masih menjaga, masih menjawab, masih menjadi bagian dari tubuh pertahanan hidup yang kami sebut [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md).
 >
@@ -1180,11 +1180,11 @@ coverY: 0
 >
 > Salah satu [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memperhatikanku ketika aku menatap papan hitung terlalu lama. Ia berkata, "_Kau sedang membuat suara menjadi berat._"
 >
-> Aku bertanya apa maksudnya. Ia menunjuk papan itu, "_[**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) dulu menjaga percakapan tetap hidup. Sekarang beberapa orang mulai memikulnya seperti batu._"
+> Aku bertanya apa maksudnya. Ia menunjuk papan itu, "[_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) _dulu menjaga percakapan tetap hidup. Sekarang beberapa orang mulai memikulnya seperti batu._"
 >
 > Aku berkata bahwa tanpa catatan, kerja akan hilang. Ia menjawab, "_Benar. Tapi jika catatan menjadi lapar, ia akan mulai memakan kerja._"
 >
-> Aku tidak menjawab. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) itu melanjutkan, "_Jangan biarkan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) menjadi uang lama dengan suara baru._"
+> Aku tidak menjawab. [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) itu melanjutkan, "_Jangan biarkan_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) _menjadi uang lama dengan suara baru._"
 >
 > Aku bertanya bagaimana caranya. Ia berkata, "_Mulailah dengan tidak menyebutnya harga._"
 >
@@ -1198,15 +1198,15 @@ coverY: 0
 >
 > "_Jika seseorang pura-pura menjaga agar mendapat jawaban, itu bukan kerja. Itu doa kepada angka._"
 >
-> Aku bertanya apakah semua imbalan buruk. [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menjawab, "_Imbalan bukan [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Tapi [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) suka bersembunyi di tempat manusia berhenti memeriksa kenapa mereka ingin diberi imbalan._"
+> Aku bertanya apakah semua imbalan buruk. [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) menjawab, "_Imbalan bukan_ [_**Setan**_](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md)_. Tapi_ [_**Setan**_](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) _suka bersembunyi di tempat manusia berhenti memeriksa kenapa mereka ingin diberi imbalan._"
 >
 > Lalu ia menambahkan:
 >
-> "_Jika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) melatih mereka untuk menjaga, rawat [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)._"
+> "_Jika_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) _melatih mereka untuk menjaga, rawat_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_._"
 >
-> "_Jika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) melatih mereka untuk terlihat menjaga, awasi [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)._"
+> "_Jika_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) _melatih mereka untuk terlihat menjaga, awasi_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_._"
 >
-> "_Jika [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) membuat mereka lupa makan agar merasa bernilai, biarkan [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) meleleh sebelum manusia ikut meleleh._"
+> "_Jika_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) _membuat mereka lupa makan agar merasa bernilai, biarkan_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) _meleleh sebelum manusia ikut meleleh._"
 >
 > Kami hampir membongkar papan hitung itu. Tapi salah satu penumpang yang selama ini jarang bicara berdiri. Ia berkata, "_Jangan hancurkan catatan hanya karena kita takut catatan disembah._"
 >
@@ -1214,9 +1214,9 @@ coverY: 0
 >
 > Yang lain lagi berkata, "_Kalau dicatat, yang pandai mengejar catatan akan menguasai papan._"
 >
-> Lagi-lagi yang lain berkata, "_Kalau tidak ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kami kembali menjadi cerita dari mulut ke mulut._"
+> Lagi-lagi yang lain berkata, "_Kalau tidak ada_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_, kami kembali menjadi cerita dari mulut ke mulut._"
 >
-> Lagi-lagi yang lain lagi berkata, "_Kalau ada [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md), kita bisa kembali menjadi pasar._"
+> Lagi-lagi yang lain lagi berkata, "_Kalau ada_ [_**OiOi**_](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md)_, kita bisa kembali menjadi pasar._"
 >
 > Lalu kami berdebat seperti biasa. Air pernah membuat kami berdebat. Makanan pernah membuat kami berdebat. Bom pernah membuat kami berdebat. Kelinci pernah membuat kami berdebat. Babi pernah membuat kami berdebat. Zirah pernah membuat kami berdebat. [**Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pernah membuat kami berdebat. Sekarang jawaban pun membuat kami berdebat. Mungkin itulah tanda bahwa sesuatu sudah cukup penting untuk menjadi berbahaya.
 >
@@ -1270,7 +1270,7 @@ coverY: 0
 >
 > Papan pertama mengajari kami bahwa imbalan bisa bocor. Papan baru mengajari kami bahwa migrasi bukan sekadar pindah tempat, tetapi pindah pemahaman.
 >
-> Musim dingin di luar mengajari kami bahwa nilai yang tidak menyentuh kehidupan akan mudah kehilangan suara. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengajari kami bahwa [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) berarti ada hasil. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) mengajari kami bahwa alat harus menolak tangan dan niat yang salah. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengajari kami bahwa imbalan juga harus dicurigai ketika ia mulai terdengar terlalu bersih.
+> Musim dingin di luar mengajari kami bahwa nilai yang tidak menyentuh kehidupan akan mudah kehilangan suara. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) mengajari kami bahwa [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) berarti ada hasil. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) mengajari kami bahwa alat harus menolak tangan dan niat yang salah. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengajari kami bahwa imbalan juga harus dicurigai ketika ia mulai terdengar terlalu bersih.
 >
 > Maka kami menulis hukum baru, [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) bukan uang untuk membeli kehidupan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) adalah catatan bahwa kehidupan pernah dijawab.
 >
@@ -1331,7 +1331,7 @@ coverY: 0
 >
 > Beberapa penumpang langsung berlutut, bukan karena menyembah, tetapi karena tubuh mereka lupa bagaimana rasanya melihat tempat yang tidak bergerak. Beberapa lainnya menutup mata, takut jika melihat terlalu lama akan membuat mereka lebih sulit kembali percaya pada bahtera. Para [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) diam lebih lama dari biasanya. Bahkan [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) hanya tersenyum seperti seseorang yang menemukan pintu di dalam cermin, tetapi belum yakin apakah yang di seberang sana sedang menunggu atau sedang menonton.
 >
-> Salah satu dari kami akhirnya berkata, "_Itu bukan [**Kepulauan Meleleh**](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md)._"
+> Salah satu dari kami akhirnya berkata, "_Itu bukan_ [_**Kepulauan Meleleh**_](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md)_._"
 >
 > Salah satu dari kami yang lain menjawab, "_Belum tentu._"
 >
@@ -1356,7 +1356,7 @@ coverY: 0
 >
 > Maka ketika cahaya dari papan baru memperlihatkan pulau itu, aku tidak langsung berpikir bahwa kami menemukan tempat untuk berhenti. Aku berpikir bahwa mungkin ada sesuatu yang sedang mencoba diselamatkan dari cara kami memahami keselamatan.
 >
-> [**Amanda (ID 10)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "_[**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) bukan membekukan sesuatu agar tidak berubah. [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) adalah memilih perubahan macam apa yang tidak membunuh asalnya._"
+> [**Amanda (ID 10)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) berkata, "[_**Konservasi**_](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) _bukan membekukan sesuatu agar tidak berubah._ [_**Konservasi**_](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) _adalah memilih perubahan macam apa yang tidak membunuh asalnya._"
 >
 > Aku mencatat kalimat itu. Aku belum mengerti sepenuhnya. Tapi sejak [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), aku sudah belajar bahwa beberapa kalimat [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) memang harus dicatat lebih dulu, dipahami belakangan.
 >
@@ -1411,7 +1411,7 @@ coverY: 0
 >
 > Di festival **TERUPA**, **Cairan Tanpa Nama** menjadi satu-satunya harapan bagi penyintas fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) yang terdampar bersama [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) di pulau Bali.
 >
-> Meskipun jumlah **Cairan Tanpa Nama** hanya sedikit, amat sangat terbatas dan tidak cukup untuk menghilangkan rasa haus, [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) meminta bantuan warga lokal dari **Ste.Co**, merek minuman lokal di pulau Bali, untuk memadukan **ARUM** dengan **Cairan Tanpa Nama** agar bisa memperbanyak jumlahnya tanpa mengurangi kualitas khasiatnya. [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) juga meminta bantuan dari **@I_BAKEYOUEAT**, nama toko roti lokal di pulau Bali, untuk memadukan beberapa adonan kue dengan **Cairan Tanpa Nama** menjadi **Cookie Tanpa Nama** yang mengenyangkan hati dan pikiran.
+> Meskipun jumlah **Cairan Tanpa Nama** hanya sedikit, amat sangat terbatas dan tidak cukup untuk menghilangkan rasa haus, [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) meminta bantuan warga lokal dari **Ste.Co**, merek minuman lokal di pulau Bali, untuk memadukan **ARUM** dengan **Cairan Tanpa Nama** agar bisa memperbanyak jumlahnya tanpa mengurangi kualitas khasiatnya. [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) juga meminta bantuan dari **@I\_BAKEYOUEAT**, nama toko roti lokal di pulau Bali, untuk memadukan beberapa adonan kue dengan **Cairan Tanpa Nama** menjadi **Cookie Tanpa Nama** yang mengenyangkan hati dan pikiran.
 >
 > Di festival **TERUPA**, sosok [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) di dalam [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) akan berbagi cerita tentang fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) dan akan mengajak setiap warga lokal, siapa pun itu, untuk berbagi cerita dan keresahan tentang fenomena dalam hidupnya, sambil menikmati segarnya **Cairan Tanpa Nama** dan gurihnya **Cookie Tanpa Nama**.
 >
@@ -1421,7 +1421,7 @@ coverY: 0
 >
 > [**Prof. NOTA v10.0**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> ==== 47 =======
+> \==== 47 =======
 >
 > ***
 >
@@ -1519,7 +1519,7 @@ coverY: 0
 >
 > [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> ==== 47 =======
+> \==== 47 =======
 >
 > ***
 >
@@ -1538,8 +1538,7 @@ coverY: 0
 >
 > Seniman-seniman lokal di pulau Bali tidak hanya melihat [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) sebagai gambar-gambar digital. Mereka melihat wajah, garis, karakter, kemungkinan, cerita, dan sesuatu yang bisa disentuh kembali. Beberapa dari mereka adalah pemilik [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Beberapa lagi adalah pemilik [**DROP NFT NOT BOMB**](../../02-the-creations.../waivfves-1/36.-d.nft.n.bomb-tm.md). Beberapa membantu visual pameran. Beberapa berdiskusi tentang blockchain, metaverse, desentralisasi, dan web3 tanpa menjadikan kata-kata itu sebagai kuil. Mereka bertemu cerita melalui pekerjaan.
 >
-> Itulah mengapa [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) dalam bagian ini tidak boleh dipahami sebagai menyimpan JPEG agar tidak hilang. [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md)
-> adalah ketika gambar yang lahir dari generatif, seleksi, dompet, dan blockchain dipertemukan dengan kanvas, tangan, cat, studio, cuaca di pulau Bali, diskusi malam, aroma kopi, bekas rokok, percikan **Cairan Tanpa Nama**, dan rasa takut bahwa jika tidak segera dijaga, semuanya akan menjadi cerita yang terlalu cepat lewat.
+> Itulah mengapa [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) dalam bagian ini tidak boleh dipahami sebagai menyimpan JPEG agar tidak hilang. [**Konservasi**](../../02-the-creations.../waivfves-1/24.-conserve-roty-broi.md) adalah ketika gambar yang lahir dari generatif, seleksi, dompet, dan blockchain dipertemukan dengan kanvas, tangan, cat, studio, cuaca di pulau Bali, diskusi malam, aroma kopi, bekas rokok, percikan **Cairan Tanpa Nama**, dan rasa takut bahwa jika tidak segera dijaga, semuanya akan menjadi cerita yang terlalu cepat lewat.
 >
 > Bagi **Semesta Realita**, itu adalah kolaborasi. Bagi **Semesta 0101**, itu adalah turunan. Bagi [**Semesta Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), itu adalah upaya menemukan tubuh kedua untuk undangan yang penciptanya terhempas ke dalam ketiadaan.
 >
@@ -1577,7 +1576,7 @@ coverY: 0
 >
 > [**Prof. NOTA**](../../02-the-creations.../waivfves-1/32.-prof.-nota-genesis-0-1.md)
 >
-> ==== 47 =======
+> \==== 47 =======
 >
 > ***
 >
@@ -1624,7 +1623,7 @@ coverY: 0
 > Tanggal Meleleh: 6 Oktober 2022 (6 Oktober 2022 B.M.)
 >
 > Pesan:\
-> Tahap ketiga disebut tahap pengungkapan karya seni. Nama itu terdengar sederhana, tetapi setelah semua yang kami alami, kata "mengungkap" tidak pernah netral. [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) mengungkap kebohongan pijakan. Bom mengungkap bahwa perang tetap bisa mengapung meski tanah hilang. [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) mengungkap bahwa keberuntungan bisa dimakan jika tidak dijaga. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) mengungkap bahwa makanan harus menjadi sistem. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) mengungkap bahwa perlindungan harus mengenali niat. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengungkap bahwa moralitas tidak sekokoh yang pernah diajarkan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) mengungkap bahwa jawaban bisa berubah menjadi uang lama jika tidak diturunkan.
+> Tahap ketiga disebut tahap pengungkapan karya seni. Nama itu terdengar sederhana, tetapi setelah semua yang kami alami, kata "mengungkap" tidak pernah netral. [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) mengungkap kebohongan pijakan. Bom mengungkap bahwa perang tetap bisa mengapung meski tanah hilang. [**Luffy**](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) mengungkap bahwa keberuntungan bisa dimakan jika tidak dijaga. [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) mengungkap bahwa makanan harus menjadi sistem. [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) mengungkap bahwa perlindungan harus mengenali niat. [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) mengungkap bahwa moralitas tidak sekokoh yang pernah diajarkan. [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md) mengungkap bahwa jawaban bisa berubah menjadi uang lama jika tidak diturunkan.
 >
 > Maka ketika karya seni diungkap, yang terbuka bukan hanya gambar di atas kanvas. Yang terbuka adalah cara lain bagi undangan untuk tetap hidup.
 >
@@ -1929,13 +1928,13 @@ coverY: 0
 > Pesan:\
 > Ia bukan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md).
 >
-> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: Setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "*Kalau semua perempuan kalian sebut [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), nanti kalian lupa bertanya namaku.*"
+> Ia berkata begitu lebih dulu, seolah-olah sudah tahu bahwa orang-orang di bahtera mulai memiliki kebiasaan buruk: Setiap perempuan yang ditemukan di tengah bencana langsung dicurigai sebagai [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), variasi [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), pecahan [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md), atau [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) yang belum mengaku. Ia menatapku dan berkata, "_Kalau semua perempuan kalian sebut_ [_**Amanda**_](../../02-the-creations.../waivfves-2/14.-amanda-wives.md)_, nanti kalian lupa bertanya namaku._"
 >
 > Aku tidak punya jawaban bagus.
 >
 > Namanya tidak kutulis di sini, bukan karena ia tidak punya nama, tapi karena ia memintaku menunggu. Katanya, nama yang ditulis terlalu cepat kadang berubah menjadi pagar.
 >
-> Ia kutemukan di antara sisa-sisa pintu rumah yang mengambang. Atau mungkin ia menemukanku. Kami masih berdebat soal itu. Ia berkata aku datang dari arah yang salah. Aku berkata ia duduk di benda yang hanyut ke arah sekociku. Ia berkata, "*Berarti pintu itu lebih pintar dari kita berdua.*"
+> Ia kutemukan di antara sisa-sisa pintu rumah yang mengambang. Atau mungkin ia menemukanku. Kami masih berdebat soal itu. Ia berkata aku datang dari arah yang salah. Aku berkata ia duduk di benda yang hanyut ke arah sekociku. Ia berkata, "_Berarti pintu itu lebih pintar dari kita berdua._"
 >
 > Aku membaginya air. Ia membaginya arah. Untuk sementara, itu cukup disebut hidup.
 >
@@ -2051,11 +2050,11 @@ coverY: 0
 > Subjek: [**BANANOW**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md)?
 >
 > Pesan:\
-> Ada anak kecil yang menunjuk buah dan berkata, "*Nana.*"
+> Ada anak kecil yang menunjuk buah dan berkata, "_Nana._"
 >
-> Ada orang dewasa yang berkata, "*Banana.*"
+> Ada orang dewasa yang berkata, "_Banana._"
 >
-> Ada orang lain yang berkata, "*Now.*"
+> Ada orang lain yang berkata, "_Now._"
 >
 > Lalu semua orang yang terlalu lelah untuk berdebat menyebut tempat ini [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) sampai ada nama yang lebih baik.
 >
@@ -2076,7 +2075,7 @@ coverY: 0
 >
 > Aku tidak setuju. Nama yang terlalu besar sering membuat manusia merasa berhak menjadi besar juga. Nama yang terlalu serius sering mengundang orang-orang yang suka berdiri di atas batu lalu menunjuk-nunjuk arah seperti semua arah menunggu telunjuk mereka.
 >
-> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) terdengar seperti buah dan waktu. Seperti orang yang sedang lapar tapi masih bisa bercanda. Seperti anak-anak yang tidak sabar menunggu orang dewasa selesai rapat. Seperti daratan yang berkata, "*Kalau kalian ingin menjadi makhluk baru, mungkin jangan mulai dengan nama yang membuat kalian kaku.*"
+> [**BANANOW LAND**](../../02-the-creations.../waivfves-1/22.-bananow-nfts.md) terdengar seperti buah dan waktu. Seperti orang yang sedang lapar tapi masih bisa bercanda. Seperti anak-anak yang tidak sabar menunggu orang dewasa selesai rapat. Seperti daratan yang berkata, "_Kalau kalian ingin menjadi makhluk baru, mungkin jangan mulai dengan nama yang membuat kalian kaku._"
 >
 > Catat dulu: Daratan itu mulai punya nama. Tapi jangan langsung membuat bendera.
 >
@@ -2099,7 +2098,7 @@ coverY: 0
 >
 > Tanda itu berkata ia bisa membantu menjaga lumbung. Kami membukakan simpul. Sebagian benih hilang. Sebagian catatan hilang. Beberapa tunas yang belum waktunya dicabut lenyap dari tempatnya.
 >
-> Penyintas perempuan itu tidak memarahiku. Itu lebih buruk. Kalau ia marah, aku bisa membela diri. Tapi ia hanya duduk di depan lumbung dan berkata, "*Kesempatan palsu sering lebih sopan daripada perampok.*"
+> Penyintas perempuan itu tidak memarahiku. Itu lebih buruk. Kalau ia marah, aku bisa membela diri. Tapi ia hanya duduk di depan lumbung dan berkata, "_Kesempatan palsu sering lebih sopan daripada perampok._"
 >
 > Jika pesan ini sampai, jangan hanya datang karena kami menemukan daratan. Datanglah karena daratan juga bisa tertipu.
 >
@@ -2114,7 +2113,7 @@ coverY: 0
 > Subjek: Dompet bisa berupa lumbung.
 >
 > Pesan:\
-> Aku tahu beberapa penumpang akan berkata, "*Bagaimana mungkin lumbung tertipu?*"
+> Aku tahu beberapa penumpang akan berkata, "_Bagaimana mungkin lumbung tertipu?_"
 >
 > Pertanyaan itu terdengar pintar hanya jika kita lupa bahwa lumbung tidak membuka dirinya sendiri. Selalu ada tangan. Selalu ada percaya. Selalu ada kalimat yang membuat percaya merasa seperti kecerdasan.
 >
@@ -2173,7 +2172,7 @@ coverY: 0
 > Subjek: Ada bantuan yang tidak terdengar seperti pertolongan.
 >
 > Pesan:\
-> Kadang bantuan datang sebagai pemeriksaan simpul. Kadang bantuan datang sebagai pertanyaan, "*Apa lagi yang hilang?*"
+> Kadang bantuan datang sebagai pemeriksaan simpul. Kadang bantuan datang sebagai pertanyaan, "_Apa lagi yang hilang?_"
 >
 > Kadang bantuan datang bukan untuk mengambil alih lumbung, tetapi untuk memastikan lubang yang sama tidak menjadi kebiasaan. Kadang bantuan datang dari suara yang jauh, dari tubuh yang berada di semesta lain, dari seseorang yang tidak memegang pisang pertama, tetapi tahu bahwa satu simpul yang salah bisa membuat satu musim gagal.
 >
@@ -2352,7 +2351,7 @@ coverY: 0
 >
 > Andai saja sekociku adalah kapalnya suwar, maksudku kapal suar yang berfungsi layaknya mercusuar, yang memandu agar tidak tersesat dan tetap di jalur aman.
 >
-> Pada hari kedua, aku lupa jalan pulang. Pada hari ketiga, seorang anak menunjukku dan berkata, "*Om itu tersesat di halaman sendiri.*"
+> Pada hari kedua, aku lupa jalan pulang. Pada hari ketiga, seorang anak menunjukku dan berkata, "_Om itu tersesat di halaman sendiri._"
 >
 > Aku tidak tahu mana yang lebih menyakitkan: Tersesat atau dipanggil om oleh anak yang benar.
 >
@@ -2659,7 +2658,7 @@ coverY: 0
 >
 > Ada yang mencium tanah. Ada yang takut tanahnya membalas. Ada yang tertawa, lalu menangis, lalu muntah, lalu meminta maaf kepada semua yang melihat.
 >
-> Ada yang bertanya apakah daratan ini punya aturan. Seorang anak menjawab, "*Petik? Tanam.*"
+> Ada yang bertanya apakah daratan ini punya aturan. Seorang anak menjawab, "_Petik? Tanam._"
 >
 > Tidak ada yang punya jawaban lebih baik.
 >
@@ -2705,7 +2704,7 @@ coverY: 0
 >
 > Bukan ledakan. Bukan patah yang marah. Bukan suara benda yang kalah. Lebih seperti napas panjang dari sesuatu yang akhirnya diizinkan berhenti memaksa dirinya kuat.
 >
-> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan-perempuan penjaga pohon pisang berkata, "*Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan.*"
+> Beberapa penumpang mencoba menahannya. Mereka menarik kayu. Mereka mengikat ulang tali. Mereka memanggilnya seperti memanggil tubuh yang masih bisa diminta berdiri. [**Penumpang ROTY BROI (ID 498)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) mengangkat tangan. Perempuan-perempuan penjaga pohon pisang berkata, "_Jangan paksa yang sudah membawa kalian untuk terus menjadi rumah hanya karena kalian belum tahu cara berterima kasih kepada reruntuhan._"
 >
 > Maka mereka berhenti. Bahtera runtuh pelan-pelan. Tidak tenggelam. Tidak hilang. Tidak kalah. Ia selesai menjadi bahtera.
 >

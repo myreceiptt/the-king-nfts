@@ -950,7 +950,7 @@ coverY: 0
 >
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> Tanggal Meleleh: Tidak Diketahui (setelah [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md))
+> Tanggal Meleleh: Tidak Diketahui (setelah [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md))
 >
 > Pesan:\
 > Hai, aku [**Kapten ROTY BROI (ID 996)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
@@ -965,7 +965,7 @@ coverY: 0
 >
 > Aku ingin menolak pesan itu. Tapi setelah semua yang kami lihat, penolakan menjadi lebih sulit daripada rasa takut.
 >
-> Kami telah melihat daratan berperilaku seperti air. Kami telah melihat waktu tidak sepakat dengan kalender. Kami telah melihat banyak perempuan dengan nama yang sama, semuanya bernama [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kami telah melihat bom mengapung di dunia tanpa daratan. Kami telah melihat seekor kelinci menjadi lebih dari sekadar kelinci. Kami telah melihat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) mengubah rasa lapar menjadi sistem yang dapat diperdebatkan sebelum menjadi kekerasan. Kami telah melihat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) menolak tangan yang ingin menyakiti.
+> Kami telah melihat daratan berperilaku seperti air. Kami telah melihat waktu tidak sepakat dengan kalender. Kami telah melihat banyak perempuan dengan nama yang sama, semuanya bernama [**Amanda**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md). Kami telah melihat bom mengapung di dunia tanpa daratan. Kami telah melihat seekor kelinci menjadi lebih dari sekadar kelinci. Kami telah melihat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi) mengubah rasa lapar menjadi sistem yang dapat diperdebatkan sebelum menjadi kekerasan. Kami telah melihat [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) menolak tangan yang ingin menyakiti.
 >
 > Jadi aku mendengarkan.
 >
@@ -1021,7 +1021,7 @@ coverY: 0
 >
 > Menolak semua makhluk yang rusak tidak otomatis menciptakan dunia yang bersih. Kadang itu hanya menyembunyikan kerusakan di luar dinding sampai ia belajar kembali sebagai bendera yang lebih bersih.
 >
-> [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang kami izinkan tinggal di dekat bahtera adalah [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan di area tidur. Bukan di dekat makanan. Bukan di dekat air. Bukan di dekat peta. Bukan di dekat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi). Bukan di dekat [**Zirah Meleleh**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) tanpa saksi.
+> [**Pensiunan Setan**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) pertama yang kami izinkan tinggal di dekat bahtera adalah [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md). Bukan di area tidur. Bukan di dekat makanan. Bukan di dekat air. Bukan di dekat peta. Bukan di dekat [**PIGGY BOII OIOI**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi). Bukan di dekat [**Liquid Armor**](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/28.1.-liquid-armor.md) tanpa saksi.
 >
 > [**Psycho**](../../02-the-creations.../waivfves-1/26.-nothing-the-genesis/26.1.-satans-pfp.md) tinggal di geladak pendengar paling luar, tempat transmisi rusak, botol, pesan kain, catatan yang dibawa burung, dan bisikan mustahil dikumpulkan.
 >

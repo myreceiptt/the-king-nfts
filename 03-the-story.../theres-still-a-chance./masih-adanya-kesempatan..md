@@ -81,27 +81,27 @@ coverY: 0
 >
 > Pidato [**Kapten ROTY BROI (ID 530)**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >
-> ### FENOMENA [DARATAN MELELEH](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)
+> **FENOMENA [DARATAN MELELEH](../../02-the-creations.../waivfves-2/15.-the-melting-land.md)**
 >
 > Selama ini para ilmuwan telah menyadari bahwa di Bumi tidak hanya es yang bisa meleleh, bahkan daratan yang kita injak juga bisa meleleh. Fakta tersebut masih dirahasiakan untuk mencegah terjadinya kekacauan bagi umat manusia di Bumi karena pada bulan Februari 2022 telah diketahui bahwa daratan di seluruh permukaan Bumi akan meleleh seluruhnya tanpa persetujuan umat manusia.
 >
-> #### NEGERI ENTAH AIR APA
+> **NEGERI ENTAH AIR APA**
 >
 > Fakta rahasia itulah yang diketahui oleh **Pak BROY**, seorang warga-penduduk di negeri **Entah Air Apa**. Negeri **Entah Air Apa** merupakan negara yang terkenal dengan hasil alam berupa **Cairan Tanpa Nama** yang mampu membawa ketenangan bagi yang meminumnya. Namun kedamaian itu tidak lagi dirasakan oleh **Pak BROY** karena beliau mengetahui bahwa ada fenomena [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi.
 >
-> #### [BAHTERA ROTY BROI](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
+> [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)
 >
 > **Pak BROY** mendapati dirinya tidak dapat menemukan kedamaian meskipun dia telah meminum berliter-liter **Cairan Tanpa Nama**. Maka, **Pak BROY** memutuskan untuk membangun sebuah bahtera yang mampu bertahan ketika terjadi fenomena unik [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi.
 >
 > **Pak BROY** menamakan bahtera itu [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) karena terinspirasi dari bentuk [**ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti) pada [**LOGO PABRIK ROTI**](../../02-the-creations.../waivfves-1/43.-logo-pabrik-roti) yang menyerupai bahtera untuk keadaan darurat, kondisi terjebak parah, tersangkut, terhimpit hingga terjepit.
 >
-> #### UNDANGAN DENGAN NAMA SAMARAN
+> **UNDANGAN DENGAN NAMA SAMARAN**
 >
 > Meski secara terbatas, **Pak BROY** mempunyai tujuan untuk mengajak dan menyelamatkan umat manusia yang gemar meminum **Cairan Tanpa Nama**, untuk berpartisipasi dan bergabung dalam [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), untuk mengarungi [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi. Selain itu **Pak BROY** juga bisa merasakan sedikit kedamaian, sedikit kegelisahan bisa ditiadakan ketika sedang sibuk membangun bahtera.
 >
 > Undangan pseudonim (nama samaran) dibuat dan disediakan oleh **Pak BROY** dengan sangat terbatas, hanya ada 1047 undangan, dengan ilustrasi unik yang digambar sendiri oleh **Pak BROY**.
 >
-> #### CETAK UNDANGANNYA
+> **CETAK UNDANGANNYA**
 >
 > Siapa pun yang memegang undangan di dompetnya dapat bergabung dengan [**BAHTERA ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Bersama-sama kita mengarungi lautan [**Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md) di Bumi. Tanpa harus khawatir akan kehabisan **Cairan Tanpa Nama** dan siap menyambut lembaran kehidupan baru di permukaan Bumi baru yang abadi sepanjang masa.
 >

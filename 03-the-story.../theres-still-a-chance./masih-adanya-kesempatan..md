@@ -255,7 +255,7 @@ coverY: 0
 
 ***
 
-#### Kepulauan Meleleh
+#### [Kepulauan Meleleh](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md)
 
 > Catatan [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md)...
 >

@@ -254,7 +254,7 @@ coverY: 0
 
 ***
 
-#### The Melting Archipelago
+#### [The Melting Archipelago](../../02-the-creations.../waivfves-1/37.-woman-of-russian/37.1.-absart-idsa-archipelago.md)
 
 > [**Cap'n ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) Log...
 >
@@ -368,7 +368,7 @@ coverY: 0
 >
 > We exchanged messages in every possible way. We agreed to move closer. We agreed to gather. We agreed to build something larger than each of us. But not all of them arrived.
 >
-> With [**The ROTY BROI's Ark**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We mourned them.
+> With [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md), eleven vessels tried to converge. Only seven became one. Six of them reached us. Four were destroyed on the way, shattered by bombs and swallowed by [**The Melting Land**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md). We mourned them.
 >
 > Then we joined what remained. Seven vessels became one greater ark. We still call it [**The ROTY BROI ARK**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md). Not because the others disappeared into our name, but because every ark that joined us carried the same message into the same survival body.
 >

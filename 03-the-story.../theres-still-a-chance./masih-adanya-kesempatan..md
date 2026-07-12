@@ -1570,7 +1570,7 @@ coverY: 0
 >
 > Di BALI, pulaunya para dewata, dengan bermodalkan **Cairan Tanpa Nama**, [**Kapten ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) berkeliling menjumpai seniman lokal, berkenalan, dan berbagi cerita, sambil bersama-sama menikmati **Cairan Tanpa Nama**, sehingga rencana melestarikan beberapa karya seni aset NFT [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) bisa terwujud. Sekaligus, para seniman lokal dapat dikenalkan kepada ruang-waktu [**Semesta Daratan Meleleh**](../../02-the-creations.../waivfves-2/15.-the-melting-land.md), tentu juga dikenalkan terlebih dahulu pada **Semesta 0101**, atau biasa disebut oleh banyak warga lokal sebagai ruang-waktu dunia digital Internet, metaverse, kripto, blockchain, desentralisasi, ataupun web3.
 >
-> Semoga segala proses melestarikan karya seni aset NFT [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) di atas bisa terlaksana dengan baik, dan tuntas sehingga apa yang sudah menjadi cerita, dan semua yang sudah disampaikan bisa menjadi gelitikan-gelitikan dalam mengembangkan pemanfaat NFT di era desentralisasi saat ini secara lebih luas tanpa adanya kekhawatiran maupun ancaman. Terima kasih!
+> Semoga segala proses melestarikan karya seni aset NFT [**ROTY BROI**](../../02-the-creations.../waivfves-1/41.-the-roty-broi.md) di atas bisa terlaksana dengan baik, dan tuntas sehingga apa yang sudah menjadi cerita, dan semua yang sudah disampaikan bisa menjadi gelitikan-gelitikan dalam mengembangkan pemanfaatan NFT di era desentralisasi saat ini secara lebih luas tanpa adanya kekhawatiran maupun ancaman. Terima kasih!
 >
 > Salam hangat,
 >

@@ -1366,7 +1366,7 @@ coverY: 0
 >
 > Tanggal Meleleh: Tidak Diketahui (setelah **Uang Meleleh**)
 >
-> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang mmemegang garam di ujung jari)
+> Pencatat: [**Amanda (ID 22)**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) (yang memegang garam di ujung jari)
 >
 > Lokasi: Dek yang menghadap cahaya dari papan baru [**OiOi**](../../02-the-creations.../waivfves-1/polygon-usdoioi-fts.md).
 >

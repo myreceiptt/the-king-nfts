@@ -198,7 +198,7 @@ In this ​​[**10th stage**](how-is-the-journey.md#id-10th-stage-b2-c4-collect
 
 ***
 
-## ~~11th Stage: Collection of The KING's Book started - March 2023~~
+## ~~11th Stage: Collection of The KING's Book started - May 2030~~
 
 {% hint style="success" %}
 **Note**: The [**11th stage**](how-is-the-journey.md#id-11th-stage-book-of-the-kings-story-started-march-2023) is done! **100%** is completed!

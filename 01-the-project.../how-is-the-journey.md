@@ -86,19 +86,19 @@ Twelve thousand (12k) **Abstract Scribbles** of the [**Anthropophobia Viruses**]
 
 ***
 
-## ~~5th Stage: Grand opening of The KING's Office June 2026~~
+## ~~5th Stage: Grand opening of The KING's Office June 2027~~
 
 {% hint style="success" %}
 **Note**: The [**5th stage**](how-is-the-journey.md#id-5th-stage-grand-opening-of-the-kings-office-postponed) is done! **100%** is completed.
 {% endhint %}
 
-The grand opening of [**The KING's Office**](how-is-the-journey.md#id-5th-stage-grand-opening-of-the-kings-office-postponed)**,** scheduled for after all items in B2/C1 are minted out, has been postponed since June 2022. In June 2026, it is done. 100% is completed.
+The grand opening of [**The KING's Office**](how-is-the-journey.md#id-5th-stage-grand-opening-of-the-kings-office-postponed)**,** scheduled for after all items in B2/C1 are minted out, has been postponed since June 2022. In June 2027, it is done. 100% is completed.
 
 > The [**5th stage**](how-is-the-journey.md#id-5th-stage-grand-opening-of-the-kings-office-postponed) has been postponed. The grand opening of [**The KING's Office**](how-is-the-journey.md#id-5th-stage-grand-opening-of-the-kings-office-postponed), which was supposed to take place in early 2022, had to be postponed until an undetermined time.
 >
 > A phenomenon of [**The Melting Land**](../02-the-creations.../waivfves-2/15.-the-melting-land.md) is happening, forcing everyone that trapped to survive. Besides that, all items in [**B2/C1**](../02-the-creations.../waivfves-1/44.-anthropophobia.md) are just already minted out, but not really sold out.
 >
-> In June 2026, it is done. 100% completed.
+> In June 2027, it is done. 100% completed.
 >
 > — Source: **GitFuckingHub**
 
@@ -124,17 +124,17 @@ In this [**6th stage**](how-is-the-journey.md#id-6th-stage-b2-c2-collection-laun
 
 ***
 
-## ~~7th Stage: The sanctuary of The KING's World September 2026~~
+## ~~7th Stage: The sanctuary of The KING's World September 2027~~
 
 {% hint style="success" %}
 **Note**: The [**7th stage**](how-is-the-journey.md#id-7th-stage-the-sanctuary-of-the-kings-world-postponed) is done! **100%** is completed.
 {% endhint %}
 
-[**The sanctuary of The KING's World**](how-is-the-journey.md#id-7th-stage-the-sanctuary-of-the-kings-world-postponed) deployment has been postponed by [**Prof. NOTA**](https://nota.endhonesa.com/). In September 2026, in the momentum of the glitch between the **Before Melting (B.M.)** and the **Melting Date**, the deployment 100% completed.
+[**The sanctuary of The KING's World**](how-is-the-journey.md#id-7th-stage-the-sanctuary-of-the-kings-world-postponed) deployment has been postponed by [**Prof. NOTA**](https://nota.endhonesa.com/). In September 2027, in the momentum of the glitch between the **Before Melting (B.M.)** and the **Melting Date**, the deployment 100% completed.
 
 > Since the grand opening of [**The KING's Office**](how-is-the-journey.md#id-5th-stage-grand-opening-of-the-kings-office-postponed) postponed, so the operation of [**The sanctuary of The KING's World**](how-is-the-journey.md#id-7th-stage-the-sanctuary-of-the-kings-world-postponed) also postponed and can't be happen until an undetermined time.
 >
-> In September 2026, it is done. 100% completed.
+> In September 2027, it is done. 100% completed.
 >
 > — Source: **GitFuckingHub**
 

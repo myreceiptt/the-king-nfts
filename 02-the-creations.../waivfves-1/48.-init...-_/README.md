@@ -14,7 +14,7 @@ coverY: 0
 ***
 
 {% hint style="info" %}
-**Note**: Most of the details and previews of all the creations are available on the link inscribed by [**Prof. NOTA**](https://prompt.straight-line.org/) in the descriptions of each collection on all the next pages.
+**Note**: Most of the details and previews of all the creations are available on the link inscribed by [**Prof. NOTA**](https://prompt.endhonesa.com/) in the descriptions of each collection on all the next pages.
 {% endhint %}
 
 ***

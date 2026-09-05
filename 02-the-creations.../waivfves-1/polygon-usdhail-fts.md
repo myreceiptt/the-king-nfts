@@ -23,7 +23,7 @@ The [**Polygon $HAIL FTs**](polygon-usdhail-fts.md) can be claimed if you are a 
 > — Source #2: [**$HAIL on PolygonScan**](https://polygonscan.com/token/0x560d8c66789eef9049cc05496dec7d4e3a952d11)
 
 {% hint style="danger" %}
-**Warning**: The [**Polygon $HAIL FTs**](polygon-usdhail-fts.md) are deprecated, and [**Prof. NOTA**](https://prompt.straight-line.org/) migrated to become [**Tezos $HAIL FTs**](tezos-usdhail-fts.md) with a new smart contract. Please follow all instructions on [**Prof. NOTA's Discord**](https://discord.gg/5KrsT6MbFm) to claim it, and please don't ignore this!!!!
+**Warning**: The [**Polygon $HAIL FTs**](polygon-usdhail-fts.md) are deprecated, and [**Prof. NOTA**](https://prompt.endhonesa.com/) migrated to become [**Tezos $HAIL FTs**](tezos-usdhail-fts.md) with a new smart contract. Please follow all instructions on [**Prof. NOTA's Discord**](https://discord.gg/5KrsT6MbFm) to claim it, and please don't ignore this!!!!
 {% endhint %}
 
 ***

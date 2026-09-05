@@ -39,9 +39,9 @@ Royalty: 14.74% on-chain, 100% distributed to Prof. NOTA.
 
 ***
 
-> Secondary sales are available on Exchange Art, Magic Eden, and on OpenSea. Make your best offer so you can get the best utility from these **NFTs**.
+> Secondary sales are available on Tensor.Trade. Make your best offer so you can get the best utility from these **NFTs**.
 >
-> — Source: [**DESPERATE FACE in SOLANA on Exchange.Art market**](https://exchange.art/series/DEFACE%20SOL/nfts)
+> — Source: [**DESPERATE FACE in SOLANA on Tensor.Trade market**](https://www.tensor.trade/trade/desperate_soulana)
 
 ***
 

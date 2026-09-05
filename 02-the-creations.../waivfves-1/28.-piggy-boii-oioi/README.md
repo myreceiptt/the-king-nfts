@@ -41,7 +41,7 @@ Royalty: 7.47% on-chain, 100% distributed to Prof. NOTA.
 
 > Hold it, flip it, or even eat it to treat your hunger.
 >
-> — Source: [**PIGGY BOII OIOI on Magic Eden NFT Market**](https://magiceden.io/marketplace/pigb)
+> — Source: [**PIGGY BOII OIOI on Tensor.Trade Market**](https://www.tensor.trade/trade/pigb)
 
 ***
 

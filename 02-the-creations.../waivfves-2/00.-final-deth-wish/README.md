@@ -41,12 +41,12 @@ Royalty: 7.47% on the Ethereum blockchain, 100% distributed to Prof. NOTA Inc.
 #### The Objectives...
 
 1. The desire for death, yet being unable to die until death itself has died—thus, continuing and resolving unfinished business, even as death draws ever closer, becomes an inevitability.
-2. Utilize the the [**LAST /ˈdeTH ˌwiSH/**](01.-last-deth-wish.md) NFTs collection on the Ethereum blockchain.
+2. Utilize the the [**LAST /ˈdeTH ˌwiSH/**](../01.-last-deth-wish.md) NFTs collection on the Ethereum blockchain.
 
 ***
 
 #### Holder Benefit...
 
-* All [**FINAL /ˈdeTH ˌwiSH/**](./) holders, at least 1 supply, in the near future will potentially get access to [**the profit-sharing stream**](../../04-the-12th-stage.../the-currencies.md) from all activities in [**The KING's NFTs**](https://app.gitbook.com/o/NPgwIhduqQPcS27tyJvV/s/ArIyZgyvhaWlCaXuVRLe/) project if you expect us all, not just expect [**Prof. NOTA**](https://nota.endhonesa.com/).
+* All [**FINAL /ˈdeTH ˌwiSH/**](./) holders, at least 1 supply, in the near future will potentially get access to [**the profit-sharing stream**](../../../04-the-12th-stage.../the-currencies.md) from all activities in [**The KING's NFTs**](https://app.gitbook.com/o/NPgwIhduqQPcS27tyJvV/s/ArIyZgyvhaWlCaXuVRLe/) project if you expect us all, not just expect [**Prof. NOTA**](https://nota.endhonesa.com/).
 
 ***

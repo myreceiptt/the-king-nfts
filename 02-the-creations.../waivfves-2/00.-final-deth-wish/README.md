@@ -12,7 +12,7 @@ coverY: 0
 **Note**: [**FINAL /ˈdeTH ˌwiSH/**](./) released on the **Ethereum**!
 {% endhint %}
 
-**B2C4**: The [**FINAL /ˈdeTH ˌwiSH/**](./) is the 15th collection by [**Prof. NOTA**](https://nota.endhonesa.com/)**,** which continues the [**/ˈdeTH ˌwiSH/**](../waivfves-1/21.-deth-wish.md) collection series.
+**B2C4**: The [**FINAL /ˈdeTH ˌwiSH/**](./) is the 15th collection by [**Prof. NOTA**](https://nota.endhonesa.com/)**,** which continues the [**/ˈdeTH ˌwiSH/**](../../waivfves-1/21.-deth-wish.md) collection series.
 
 ***
 

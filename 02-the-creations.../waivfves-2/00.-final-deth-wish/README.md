@@ -6,7 +6,7 @@ cover: ../../../.gitbook/assets/prof-nota-background.1acd6485cc55835d225c.jpg
 coverY: 0
 ---
 
-# 🏳️ 00. FINAL /ˈdeTH ˌwiSH/
+# ✅ 00. FINAL /ˈdeTH ˌwiSH/
 
 {% hint style="success" %}
 **Note**: [**FINAL /ˈdeTH ˌwiSH/**](./) released on the **Ethereum**!

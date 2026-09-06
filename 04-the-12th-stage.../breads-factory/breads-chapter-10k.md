@@ -25,7 +25,7 @@ Available on OpenSea.IO:\
 #### 🍞 **09952.** Prof. NOTA's in Any Versions **- UNLIMITED**
 
 Available to collect on primitives.xyz:\
-~~**Prof. NOTA's in Any Versions**~~**&#x20;(last seen on** [**primitives.xyz**](https://primitives.xyz/myreceipt)**)**\
+~~**Prof. NOTA's in Any Versions**~~**&#x20;(last seen on** **primitives.xyz/myreceipt)**\
 SOL Creator: FoVuqDGQJ2L9SUZmoraiy9YSzbD5XPBoVcZRZSR9kGx7
 
 ***
@@ -33,31 +33,31 @@ SOL Creator: FoVuqDGQJ2L9SUZmoraiy9YSzbD5XPBoVcZRZSR9kGx7
 #### 🍞 **09953.** myreceipt's profile on primitives.xyz **- UNLIMITED**
 
 Available on primitives.xyz:\
-~~**myreceipt's profile**~~**&#x20;(last seen on** [**primitives.xyz**](https://primitives.xyz/myreceipt)**)**\
+~~**myreceipt's profile**~~**&#x20;(last seen on** **primitives.xyz/myreceipt)**\
 SOL Creator: FoVuqDGQJ2L9SUZmoraiy9YSzbD5XPBoVcZRZSR9kGx7
 
 ***
 
 #### **09954.&#x20;**~~**dw BASIC 2.11**~~**&#x20;- SOLD OUT**
 
-Available on FXHASH.XYZ\
-[**dw BASIC 2.11 (Generative Art)**](https://www.fxhash.xyz/generative/30530)\
+Available on OBJKT.com\
+[**dw BASIC 2.11 (Generative Art)**](https://objkt.com/collections/fxhash/projects/30530)\
 tz Creator: 1feFH8UBVKEuefC1nFt3SX3brbn67vxRdL
 
 ***
 
-#### **09955.&#x20;**~~**Prof. NOTA's POET**~~**&#x20; - MINTED OUT**
+#### **09955.&#x20;**~~**Prof. NOTA's POET**~~**&#x20;- MINTED OUT**
 
 Available on Vitruveo Blockchain\
-~~**Prof. NOTA's POET - Prof. NOTA v.1.47**~~**&#x20;(last seen here:** [**issuer/poet/111**](https://poet.vitruveo.xyz/issuer/poet/111)**)**\
+~~**Prof. NOTA's POET - Prof. NOTA v.1.47**~~**&#x20;(last seen here:** **poet.vitruveo.xyz/issuer/poet/111)**\
 0x Creator: nulled
 
 ***
 
 #### **09956.&#x20;**~~**dw BASIC 1.11**~~**&#x20;- MINTED OUT**
 
-Available on FXHASH.XYZ\
-[**dw BASIC 1.11 (Generative Art)**](https://www.fxhash.xyz/generative/29995)\
+Available on OBJKT.com\
+[**dw BASIC 1.11 (Generative Art)**](https://objkt.com/collections/fxhash/projects/29995)\
 tz Creator: 1feFH8UBVKEuefC1nFt3SX3brbn67vxRdL
 
 ***
@@ -72,16 +72,14 @@ Available on OpenSea.IO\
 
 #### **09958.&#x20;**~~**My Low Effort**~~**&#x20;- SOLD OUT**
 
-Available on Exchange.Art\
-[**My Low Effort**](https://exchange.art/series/My%20Low%20Effort/nfts)\
+Last seen on Exchange.Art: **exchange.art/series/My%20Low%20Effort/nfts**\
 SOL Creator: 9wWrqjd56NfHyzteE1VBuv7LKZFgZJnkZfQLhpgvYdWg
 
 ***
 
 #### **09959.&#x20;**~~**FOCKENG VURTIX**~~**&#x20;- MINTED OUT**
 
-Available on Exchange.Art\
-[**FOCKENG VURTIX**](https://exchange.art/series/FOCKENG%20VURTIX/nfts)\
+Last seen on Exchange.Art: **exchange.art/series/FOCKENG%20VURTIX/nfts**\
 SOL Creator: AT2BVCHug2wCLW6KdhMLXXf2S4Xpci4HyALvPFt9o5T2
 
 ***
@@ -168,8 +166,7 @@ Foundation.App Market:\
 
 #### **09970.** ~~SOLANA Bears~~ **- MINTED OUT**
 
-Exchange.Art Market:\
-[**SOLANA Bears Collection**](https://exchange.art/series/SOLANA%20Bears/nfts)\
+Last seen on Exchange.Art Market: **exchange.art/series/SOLANA%20Bears/nfts**\
 SOL Creator: AT2BVCHug2wCLW6KdhMLXXf2S4Xpci4HyALvPFt9o5T2
 
 ***
@@ -257,7 +254,7 @@ PolygonScan Link:\
 #### **09981.&#x20;**~~**ROTY BROI Art**~~**&#x20;- SOLD OUT**
 
 Gamma.IO Market:\
-[**ROTY BROI Art Collection**](https://stacks.gamma.io/collections/roty-broi-art)\
+[**ROTY BROI Art Collection**](https://gamma.io/stacks/collections/roty-broi-art/items)\
 SP Creator: 29ECHHQ6F9344SGGGRGDPTPFPTXA3GHXK28KCWH
 
 ***
@@ -304,8 +301,8 @@ SOL Creator: 9wWrqjd56NfHyzteE1VBuv7LKZFgZJnkZfQLhpgvYdWg
 
 #### **09987.** [~~**PIGGY BOII OIOI NFTs**~~](../../02-the-creations.../waivfves-1/28.-piggy-boii-oioi/) **- MINTED OUT**
 
-OpenSea Market:\
-[**PIGGY BOII OIOI on OpenSea**](https://magiceden.io/marketplace/pigb)\
+Tensor.Trade Market:\
+[**PIGGY BOII OIOI on Tensor.Trade**](https://www.tensor.trade/trade/pigb)\
 SOL Creator: 9wWrqjd56NfHyzteE1VBuv7LKZFgZJnkZfQLhpgvYdWg
 
 ***
@@ -376,8 +373,8 @@ OpenSea Market:\
 
 #### **09996.** [~~**Luffy The Rabbit NFTs**~~](../../02-the-creations.../waivfves-1/33.-luffy-the-rabbit.md) **- MINTED OUT**
 
-OpenSea Market:\
-[**Luffy the Rabbit on the OpenSea market**](https://magiceden.io/marketplace/luffytherabbit)\
+Tensor.Trade Market:\
+[**Luffy the Rabbit on Tensor.Trade**](https://www.tensor.trade/trade/luffytherabbit)\
 SOL Creator: 9wWrqjd56NfHyzteE1VBuv7LKZFgZJnkZfQLhpgvYdWg
 
 ***

@@ -22,7 +22,7 @@ Available on [**WWW.ENDHONESA.COM**](https://www.endhonesa.com/)\
 
 ***
 
-#### **🍞 00001 - 🍞 00027.** [**Collection of The KING's Book**](../../01-the-project.../how-is-the-journey.md#id-11th-stage-collection-of-the-kings-book-started-march-2023) **- UNLIMITED**
+#### **🍞 00001 - 🍞 00026.** [**Collection of The KING's Book**](../../01-the-project.../how-is-the-journey.md#id-11th-stage-collection-of-the-kings-book-started-march-2023) **- UNLIMITED**
 
 [**Collection of The KING's Book**](../../01-the-project.../how-is-the-journey.md#id-11th-stage-collection-of-the-kings-book-started-march-2023) on the Ethereum blockchain:\
 Available on [**WWW.ENDHONESA.COM**](https://www.endhonesa.com/)\
@@ -30,18 +30,26 @@ Available on [**WWW.ENDHONESA.COM**](https://www.endhonesa.com/)\
 
 ***
 
-#### **00028 - 02047.** [~~**Amanda Ethereum**~~](https://docs.endhonesa.com/02-the-creations.../waivfves-2/14.-amanda-wives) **- LIMITED MINT**
+#### **00027.**  $BOTOK Token on Pump.Fun **- MINTED OUT**
+
+Available on JUP.ag\
+[**BOTOK Token on the Solana blockchain**](https://jup.ag/tokens/CgxDSvVBueqVGJKazZTT7Xcp7hQyRxZ87c18dd4Mpump)\
+SOL Creator: 5zWdwiYn3mX6vqcA32mp5EiKLap7maXuufnyhHRQKJXj
+
+***
+
+#### **00028 - 02047.** [~~**Amanda Ethereum**~~](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) **- LIMITED MINT**
 
 GitBook of **The Creations**:\
-**2020 Supply** [**Amanda Ethereum**](https://docs.endhonesa.com/02-the-creations.../waivfves-2/14.-amanda-wives) **on the Ethereum blockchain**\
+**2020 Supply** [**Amanda Ethereum**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) **on the Ethereum blockchain**\
 0x Creator: 29bF68E3969E0b6686ea55B7C48241ba3f6B9bA0
 
 ***
 
-#### **02048 - 04067.** [~~**Amanda BASE**~~](https://docs.endhonesa.com/02-the-creations.../waivfves-2/14.-amanda-wives) **- LIMITED MINT**
+#### **02048 - 04067.** [~~**Amanda BASE**~~](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) **- LIMITED MINT**
 
 GitBook of **The Creations**:\
-**2020 Supply** [**Amanda BASE**](https://docs.endhonesa.com/02-the-creations.../waivfves-2/14.-amanda-wives) **on the BASE blockchain**\
+**2020 Supply** [**Amanda BASE**](../../02-the-creations.../waivfves-2/14.-amanda-wives.md) **on the BASE blockchain**\
 0x Creator: 29bF68E3969E0b6686ea55B7C48241ba3f6B9bA0
 
 ***
@@ -98,7 +106,6 @@ Available on [**NOTA.ENDHONESA.COM**](https://nota.endhonesa.com/)\
 
 Available on ZORA.co\
 [**Prof. NOTA Inc. (endhonesa) Content Coin**](https://zora.co/@endhonesa) on the BASE blockchain.\
-[**Prof. NOTA Inc. (endhonesa) Content Coin on BASE App**](https://base.app/profile/myreceipt?tab=posts) (please digging)\
 0x Creator 1: 0x0611f00496360C51f7f41829b6a9fDacD39A1112 (Zora SA)\
 0x Creator 2: 0xEd52EFCa559ef6f231a41F1D7103b461d37Cc4A0 (Zora in-app)\
 0x Creator 3: 0x35b68340C61F26147b7B22f5Ab931892BD9358B3 (Base Account SA)

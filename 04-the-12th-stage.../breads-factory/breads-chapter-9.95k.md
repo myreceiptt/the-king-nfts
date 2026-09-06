@@ -360,8 +360,8 @@ tz Creator: 1feFH8UBVKEuefC1nFt3SX3brbn67vxRdL
 
 #### **09944.&#x20;**~~**dw BASIC 3.11**~~**&#x20;- SOLD OUT**
 
-Available on FXHASH.XYZ\
-[**dw BASIC 3.11 (Generative Art)**](https://www.fxhash.xyz/generative/slug/dw-basic-3.11)\
+Available on OBJKT.com\
+[**dw BASIC 3.11 (Generative Art)**](https://objkt.com/collections/fxhash/projects/31320)\
 tz Creator: 1feFH8UBVKEuefC1nFt3SX3brbn67vxRdL
 
 ***
